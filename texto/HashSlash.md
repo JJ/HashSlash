@@ -59,8 +59,40 @@ dijo Roble, mostrándole de nuevo la pantalla del móvil a
 Ciriaco. Ciriaco lo cogió y se alzó las gafas, entornando a la vez un
 poco los ojos.
 
+—No, el mango es así como triangular, y no tiene las tachuelas -. Se
+levantó con el móvil en la mano y fue a otra habitación. Se oyó el
+chasquido del móvil al hacer una foto. Roble frunció los labios y alzó
+las cejas.
 
+—Has aprendido a hacer fotos con el móvil -, dijo. Ciriaco simplemente
+le mostró la foto en la que aparecía un mango negro con churretes
+marrones, triangular, aparentemente hincado en un montón de tela
+también con chafarrinones negros, marrones y rojos oscuros. Rojo
+sangre, pensó Roble. La chica muerta, a la que no había querido
+acercarse. 
 
+—Coño, ¿qué te has creído, Robles, que para darle a un botoncico hay
+que hacer arquitectura? Por cierto, que ha saltado un mensaje de
+alguien que quería comprar no sé qué. 
+
+Roble eludió la conversión de su nombre en apellido para buscar el
+mensaje del que hablaba. Efectivamente, un blog americano de crímenes
+reales le compraba las fotos. Ahora no le quedaría otro remedio que
+acercarse a la chica.
+
+—Ah, sí, un comprador que se interesa por mis novelas -, le dijo a
+Ciriaco. 
+
+—Pues decía no sé qué de fotos. Joder, Robles, que la policía no es
+tonta -, dijo, riéndose de su propia gracia. - Tú verás lo que haces,
+pero si te cae un paquete a mi no me busques. 
+
+—Pues no funciona el app de Ikea que te permite buscar por imágenes -,
+dijo Roble, que seguía pegado al teléfono.- Normal, por otro lado. 
+
+—¿Hay un app para eso? - Preguntó Ciriaco, curioso.
+
+—Hay un app para *todo*. 
 
 
 
