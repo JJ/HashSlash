@@ -40,12 +40,28 @@ regazo y hacer copa con las manos para calentárselas.
 de veinte *likes* - . Ciriaco hizo un esfuerzo para distinguir lo que
 se mostraba a esa distancia. Se distinguían borrones rojos y figuras
 geométricas de color naranja. Poco más. Ninguna cara, nada
-distintivo. 
+distintivo que permitiera reconocer ni al sitio, ni a la víctima. 
 
-—Cuidao con la polla -. Frunció un poco el ceño haciendo minería de
+—Cuidao con la polla... - Frunció un poco el ceño haciendo minería de
 datos de sus memorias de la academia de policía, casi treinta años
 atrás, a ver qué decían sobre el tema de publicar fotos de escenas del
-crimen. No encontró nada. 
+crimen. No encontró nada. El propio Roble, que vaya tela marinera de
+nombre, Roble, había estado en la academia hacía menos. Así que él
+sabría. 
+
+—Veinticinco ya. Y en Twitter casi los mismos. 
+
+—El cuchillo. De Ikea. - dijo Ciriaco, haciendo que el ritmo de tecleo
+de Roble variara.
+
+—[Gynnsam](http://www.ikea.com/es/es/catalog/products/50134950/)-,
+dijo Roble, mostrándole de nuevo la pantalla del móvil a
+Ciriaco. Ciriaco lo cogió y se alzó las gafas, entornando a la vez un
+poco los ojos.
+
+
+
+
 
 
 
