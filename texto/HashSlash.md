@@ -92,7 +92,91 @@ dijo Roble, que seguía pegado al teléfono.- Normal, por otro lado.
 
 —¿Hay un app para eso? - Preguntó Ciriaco, curioso.
 
-—Hay un app para *todo*. 
+—Hay un app para *todo*. - señaló al mueble que sostenía la televisión
+- [Byaaas](http://www.ikea.com/es/es/catalog/products/80227797/). -
+  Señaló a la mesa en la que Ciriaco había estado varias veces a punto
+  de extender los pies -
+  [Klingsbo](http://www.ikea.com/es/es/catalog/products/90128565/). 
+  
+  — ¿Y el resto? Espera, no me lo digas. Rebotados del piso de
+  Almuñécar... - Roble no contestó. Su móvil seguía emitiendo sonidos
+  y él seguía tecleando.
+  
+ — Oye, dice Paco el secretario judicial que va a tardar todavía un rato en
+ venir. ¿Por qué no echas unas fotos más mientras?
+ 
+ — ¿Y por qué no las echas tú con tu polla? - le contestó Ciriaco,
+ sonriendo abiertamente y extendiendo la mano para recibir el
+ móvil. Roble también sonrió y lo asumió como parte de esa seña de
+ identidad llamada *malafollá granaína* que todavía, después de dos
+ años de destino, seguía tratando de aprender. 
+ 
+Ciriaco volvió al cabo de un minuto. Sus pies se pegaban al suelo,
+recubierto de una paga pegajosa compuesta de capas de mugre y de
+bebidas alcohólicas o no. Le pasó el móvil a Roble. Este
+empezó a pasar las fotos y de repente fue consciente del olor a
+carnicería que venía de la habitación donde la muerta,
+irremediablemente, se descomponía. Le vino una náusea pero la combatió
+al recordar que el cuarto de baño estaba, justamente, al lado de la
+habitación donde se encontraba el cadáver. Ciriaco le dio una palmada
+en la espalda, lo que casi hizo que se le volviera a salir el vómito. 
+
+—¿Despertamos a la compañera de piso? -, preguntó Roble. - Para
+hacer tiempo.
+
+—¿Para darle el mal rato? Yo paso de consolar a niñatas. Al menos, de
+consolarlas así - le dio un codazo al joven Roble, que una vez más le
+volvió a traer la náusea a la garganta - Bastante hemos tenido con el
+novio. Menudo apollardao.
+
+—¿Apollardao? ¿Eso es granadino? - preguntó Roble. A la vez, tecleaba
+buscándolo en el móvil.
+
+—Tontolaba, agilipoyao de la vida. 
+
+—Entonces, ¿tú no crees que haya sido él?
+
+—No tengo ni puta idea, Roble. Pero me extrañaría. Cuando salga del
+Clínico le preguntaremos. Pero vamos, que no. 
+
+—¿Por?
+
+—Mira las fotos. El cuchillo.
+
+—Espera. - pasó el dedo unas cuantas veces por el móvil - Un
+[ñistra](http://www.ikea.com/es/es/catalog/products/00149317/). 
+
+—La posición del cuchillo, el ángulo, - hizo movimientos de Bates en
+la ducha en Psicosis - quien fuera tendría que ser bastante más alto
+que ella. Y este menda, así a ojo de buen cubero, era de la misma
+altura o un poco más bajo.
+
+—Y eso lo sabes porque...
+
+—Coño, Robles, porque me he visto el NCIS y el CSI y toda serie de
+maderos que echan. ¿Tú te crees que he visto muchos muertos? Con los
+dedos de esta mano se pueden contar -, mostró su mano izquierda, en la
+que le faltaba un dedo. - Y todas eran mujeres y los asesinos eran
+siempre sus parejas, que, en algunos casos, estaba justo al lado, con
+los sesos volados. Expediente cerrado, caso resuelto, te vas a casa y
+te echas la siesta.
+
+—Vaya - dijo Roble.
+
+—Qué.
+
+—Quique el periodista, que ha visto que había hecho check-in en
+FourSquare en el barrio y me acaba de poner un like en él. Lo tenemos
+aquí en un rato.
+
+—Cuidao con la polla y con el chismecico. Un día nos vas a traer
+problemas. Verás tú. 
+
+—Será la primera vez que llega un periodista a una escena de un
+crimen. 
+
+—Será la primera vez que te cogen el chisme y te lo estrellan en los
+morros -, contestó Ciriaco. 
 
 
 
