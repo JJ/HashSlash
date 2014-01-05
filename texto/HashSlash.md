@@ -173,10 +173,34 @@ aquí en un rato.
 problemas. Verás tú. 
 
 —Será la primera vez que llega un periodista a una escena de un
-crimen. 
+crimen porque se huele algo.
 
 —Será la primera vez que te cogen el chisme y te lo estrellan en los
 morros -, contestó Ciriaco. 
+
+Roble no dijo nada y siguió tecleando y cambiando de aplicación.
+
+—Mira, gracias a lo que he puesto hemos podido saber que... - movió el
+pulgar verticalmente, pasando algo por la pantalla - el color de la
+sangre - movió pulgar y corazón, ampliando algo - indica que... es de
+verdad. 
+
+Dijo esto último bajando la voz. Ciriaco se volvió a sentar, diciendo
+por el camino “Afú” varias veces, en el
+sillón y se puso a escribir en un bloc pequeñito, con una portada a
+cuadros y un alambre uniendo las hojas por su parte superior. 
+
+Se comenzaron a oir ruidos en dirección contraria a la que se
+encontraba el cadáver. Los dos giraron la cabeza en esa
+dirección. Luego se miraron el uno al otro y finalmente siguieron uno
+escribiendo en el móvil y otro en el bloc.
+
+Huir tampoco es fácil
+——————————–
+
+En realidad sí lo es, pensó Jack. Y mancha mucho menos que cualquier
+cosa que uno haya hecho que requiera tal huida.
+
 
 
 
