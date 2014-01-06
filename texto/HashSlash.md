@@ -217,7 +217,8 @@ si no, quien quiera que anduviera por la casa, que llevaba oyendo el
 chirrido de los muebles del salón durante un rato. Efectivamente, allí
 había dos personas. 
 
-Uno sí podía haber estado en la fiesta el día anterior. Tenía el pelo
+Uno sí podía haber estado en la fiesta el día anterior. Incluso lo
+recordaba, junto con unas trescientas caras y unos cuantos culitos preciosos. Tenía el pelo
 castaño rizado y peinado de forma que huyera de los laterales de la
 cabeza. Llevaba una
 [rebeca de lana de Just Cavalli](http://www.zalando.es/just-cavalli-chaqueta-de-punto-multicolor-ju622i004-502.html)
@@ -238,6 +239,44 @@ dirigió al otro, que no podría haber estado de ninguna de las maneras
 en la fiesta y cuya ropa valdría tanto como uno de los zapatos del
 otro *hipster* 
 
-— ¿Tenéis un ibuprofeno?
+— ¿Tenéis un ibuprofeno? - , les preguntó. Hipster mono la miró
+durante una fracción de segundo. El otro trató de levantarse del
+sillón, sin conseguirlo. Comenzó a cruzar el salón donde se encontraban- Da igual, ya voy a pedirle a la
+compi. 
+
+— ¡No! - dijo el viejuno, consiguiendo finalmente levantarse y
+abriendo muchos los ojos. El otro, mientras tanto, le sacaba una foto,
+lo que no le hizo maldita la gracia. O no le habría hecho tratándose
+de otra persona, pero qué diablos. Estaba mona hasta con resaca. 
+
+— Vale, vale, vale. Ya está. Cuando salga el novio me avisáis. Y otra
+cosa no tendríais, aspirina, gelocatil. ¿Oxicodona? - dijo, mirando al
+hipster. 
+
+— No, Tina, no tenemos nada, ya lo siento -, le dijo sonriendo. Seguro
+que estuvo en la fiesta, si no, ¿cómo sabía su nombre? O se lo habría
+dicho el novio de Demelza, que sería su colega. O su cuñado. Y el otro
+el suegro. Tina le sonrió. 
+
+— Vale, vale. No pasa nada. Me voy a hacer un café. ¿Queréis algo? -
+dijo, mirando a hipster de nuevo. Este miró al otro, como si pidiera
+permiso. El otro no dijo nada, pero se echó mano al bolsillo, sacó un
+móvil y miró la hora. 
+
+—Te invito a un café ahí al lado -, le dijo el hipster.
+
+—Oye, ¿tú qué te has creído? - le contestó Tina, frunciendo los
+labios. 
+
+—Así vamos a la farmacia a por pastillas... y mientras, tu amiga... 
+
+—Ah, sí. Vale, vale. Me pongo los pantalones y listo. - El viejuno,
+que parecía no haber sido consciente hasta ese momento de que llevaba
+sólo una camiseta, miró hacia el sur y se ruborizó. Viejo verde.
+
+
+Consejos para una huida
+--- 
+
 
 
