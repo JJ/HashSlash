@@ -196,12 +196,48 @@ dirección. Luego se miraron el uno al otro y finalmente siguieron uno
 escribiendo en el móvil y otro en el bloc.
 
 Huir tampoco es fácil
-——————————–
+---
 
 En realidad sí lo es, pensó Jack. Y mancha mucho menos que cualquier
 cosa que uno haya hecho que requiera tal huida.
 
+Despertar
+---
 
+Tina avanzó por el pasillo con una mano en la cabeza, tratando de
+contener el dolor que le latía y que amenazaba por expulsarle los
+globos oculares fuera del cráneo. Ahora mismo parecía que le había
+tomado una manía especial al ojo derecho,  así que lo mantenía cerrado
+y, en ocasiones, tapado con la mano derecha para mayor seguridad.
 
+Había llegado un momento en que la resistencia a levantarse no había
+podido con la necesidad de buscar un ibuprofeno en algún sitio. No lo
+había encontrado en la cocina, quizás su compañera Demelza tuviera. O
+si no, quien quiera que anduviera por la casa, que llevaba oyendo el
+chirrido de los muebles del salón durante un rato. Efectivamente, allí
+había dos personas. 
+
+Uno sí podía haber estado en la fiesta el día anterior. Tenía el pelo
+castaño rizado y peinado de forma que huyera de los laterales de la
+cabeza. Llevaba una
+[rebeca de lana de Just Cavalli](http://www.zalando.es/just-cavalli-chaqueta-de-punto-multicolor-ju622i004-502.html)
+que Tina recordaba haber visto en la web no hacía tanto. Los
+[pantalones de camuflaje eran Michael Kors](http://www.zalando.es/michael-kors-pantalon-cargo-verde-oliva-1mi22a00g-604.html)
+y la combinación era absolutamente inadecuada pero, de alguna forma,
+con el peinado, las
+[zapatillas Marc Jacobs](http://www.zalando.es/marc-jacobs-zapatillas-altas-azul-mj412c008-503.html)
+y las gafas de pasta de color  verde oliva, lo
+conseguía, quizás porque en el momento que llegabas a los zapatos te
+dabas cuenta de que llevaba varios miles de euros encima. 
+Además, no se había molestado en levantar la vista del
+teléfono, lo que lo etiquetaba como *cool* sin duda. Igual se lo
+trajo Berta anoche y lo había dejado ahí. ¿Y Berta estaría en...?
+Su cerebro le estaba avisando a base de latidos dolorosos que no era
+ni momento de chequear gente ni de pensar, de hecho, nada. Así que se
+dirigió al otro, que no podría haber estado de ninguna de las maneras
+en la fiesta y cuya ropa valdría tanto como uno de los zapatos del
+otro *hipster* 
+
+— ¿Tenéis un ibuprofeno?
 
 
