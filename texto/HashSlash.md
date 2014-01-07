@@ -245,9 +245,10 @@ sillón, sin conseguirlo. Comenzó a cruzar el salón donde se encontraban- Da i
 compi. 
 
 — ¡No! - dijo el viejuno, consiguiendo finalmente levantarse y
-abriendo muchos los ojos. El otro, mientras tanto, le sacaba una foto,
-lo que no le hizo maldita la gracia. O no le habría hecho tratándose
-de otra persona, pero qué diablos. Estaba mona hasta con resaca. 
+abriendo muchos los ojos. El otro, mientras tanto, la miraba con esas
+gafas de hipster mientras se llevaba los dedos a una de las patillas,
+la derecha, que era un poco más gorda. Sin saber por qué, que no le hizo maldita la gracia. O no le habría hecho tratándose
+de otra persona, pero qué diablos, las fotos la amaban. Estaba mona hasta con resaca. 
 
 — Vale, vale, vale. Ya está. Cuando salga el novio me avisáis. Y otra
 cosa no tendríais, aspirina, gelocatil. ¿Oxicodona? - dijo, mirando al
@@ -277,6 +278,30 @@ sólo una camiseta, miró hacia el sur y se ruborizó. Viejo verde.
 
 Consejos para una huida
 --- 
+
+La gente piensa que lo más importante a la hora de huir es ir muy
+rápido. No tienen ni idea y lo más parecido a una huida que conocen es
+cuando han escapado de un ex cambiándose de acera.
+
+Lo más importante es no mearse. 
+
+Mear significa no poder estar concentrado en el asunto entre manos
+para concentrarse en el asunto entre piernas. Significa que tienes que
+pararte. O significa que tienes que llevar un pañal.
+
+¿Qué pasa? La gente lleva pañal. Es un inconveniente, pero no tanto
+como mearse encima.
+
+Pero lo mejor es no tener que hacérselo ni encima ni en el pañal.
+
+Ergo: nada de café. Nada de agua. Nada de colas ni bebidas energéticas
+ni diuréticos diversos.
+
+—¿Desea tomar algo más?
+
+—Sí, un vasito de agua para después del café, si es tan amable.
+
+Porque yo no estoy huyendo. Soy escritor.
 
 
 
