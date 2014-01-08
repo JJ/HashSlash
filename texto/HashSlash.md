@@ -333,10 +333,92 @@ cafetería abierta. Por el camino, un bloque de casas de dos pisos con
 carteles de “Se alquila”, “Se vende”, algunos ya caídos, persianas
 echadas, escombros de burbuja.
 
-En el bar, bufandas del Granada, que andaba peleándose por los puestos
-de descenso de segunda de nuevo, parejas de jubilados y algún grupo de
-amas de casa que compartían el café post-dejada de los niños en el
-cole. 
+En el bar, bufandas del Granada, que andaba peleándose con denuedo
+para alcanzar  los puestos
+de descenso de segunda de nuevo, parejas de jubilados, jubilados sin pareja y algún grupo de
+amas y amos de casa de casa que compartían el café post-dejada de los niños en el
+cole y hablaban, precisamente, de eso.
+
+—Por eso acabamos, ¿a qué hora acabamos? -, le preguntó a Roble, que
+hizo un ruido ambiguo y puso cara de pensativo. - No te acuerdas tú
+tampoco, ¿verdad? - Roble se encogió de hombros.
+
+—Cuando Demelza... - dejó la frase sin terminar, para que Tina lo
+hiciera por él. O la dejara ahí, implicando que se había ido a la vez
+que Demelza se había ido a su habitación. O al otro barrio. Roble no
+pudo evitar sonreir.
+
+—No, espera, Demelza... yo no la vi a partir de las dos o las tres. ¿O
+las una? Espera, cuando nos quedamos con el Riki y la Santi y nos... -
+le dio una risita - No, había un grupo de tíos un poco raros ahí,
+chungos, y pasamos de ellos, pero Demelza... no sé, no me
+acuerdo. Estaría en su habitación. O se habría ido.
+
+—Las fotos... - Roble había visto ya el perfil de Facebook de Tina,
+donde había fotos hasta la 1:25, más o menos. 
+
+—Las fotos fueron la caña, qué buenas. ¿saliste tú en alguna? - se
+sacó el móvil del bolsillo y empezó a pasar el dedo por una pantalla
+tan intrínsecamente nítida y extrínsecamente sucia que parecía un
+anuncio de limpiacristales para móviles, de los que se habían hecho
+tan populares últimamente. 
+
+Se quedó pillada un rato mirando las fotos. Roble tomó nota mental de
+pedírsela más adelante. No siempre se sube absolutamente todo. De vez
+en cuando lo miraba con los ojos entornados y volvía a mirar al
+móvil. 
+
+Sonó el de Roble con el tono de Ciriaco. Eso no podía significar más
+que la llegada del juez para levantar el cadáver y el forense. Ya
+había, de hecho, visto pasar la furgoneta del anatómico-forense en
+dirección hacia el piso. 
+
+No creía que le durara mucho más el café, así que antes de que
+recibiera el impacto de la muerte de su compañera trataría de sacarle
+algo más. No una confesión, claro. Si había sido ella la asesina o no
+se acordaba o era una sicópata capaz de mentir como quien inventó la
+mentira. En cualquier caso no parecía fácil pillarla en un
+renuncio. Pero había que intentarlo.
+
+—Demelza... - empezó diciendo. Tina parecía de ese tipo de personas
+que necesitaban rellenar con palabras la conversación, al menos si no
+estaba, como en ese momento, entretenida mirando fotos en el móvil.
+
+—Sí, oye, ¿llevaba mucho rato el novio dentro? Es que fíjate cómo
+estaba el piso habrá que fregar, a ver si el novio también pega sello,
+que el tío... - Roble abrió los ojos, como sorprendido o quizás en la
+primera fase de un momento “eso que estás diciendo me molesta
+ligeramente pero lo voy a dejar pasar” - No, si no digo nada, es buena
+gente, mejor que ella -, ahí Roble entró totalmente en modo “qué me
+estás diciendo”-. No, bueno, no mejor, si ella al fin y al cabo... 
+
+—Ea -, dijo, rotundamente, Roble. 
+
+—Fíjate, el otro día... - Tina comenzó un relato complejo y con muchas
+hebras de algo que empezó con la compra de yogures en el supermercado
+y terminó con la pérdida de un cargador del móvil. - ¡Y ni siquiera
+era de ella! 
+
+De la historia se transmitía una vaga animadversión. No la suficiente
+como para clavar un cuchillo en el esternón. Roble sonrió levemente
+ante este pareado y lo anotó para un tuit posterior. También anotó la
+sonrisa para un selfie futuro. 
+
+—¿Volvemos? - dijo Tina, levantándose. - A ver cómo andan esos - le
+dijo haciendo amago de pegarle un codazo a Roble. Roble pagó, Tina no
+hizo amago siquiera. 
+
+Tras recorrer unos metros en dirección al piso, Roble vio la furgoneta
+aparcada. Tina también. Empezó a abrir los ojos, luego a
+entornarlos. Luego la boca. Roble la interrumpió.
+
+-Qué buen rato hemos echado. ¿Me dejas tu teléfono?
+
+Todavía no habían empezado el interrogatorio *oficial*, ni se
+consideraba testigo ni ninguna otra figura procesal. ¿Por qué no iba a
+poder quedar con ella y lo que surgiera?
+
+
 
 
 
