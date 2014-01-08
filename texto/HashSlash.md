@@ -273,7 +273,8 @@ labios.
 
 —Ah, sí. Vale, vale. Me pongo los pantalones y listo. - El viejuno,
 que parecía no haber sido consciente hasta ese momento de que llevaba
-sólo una camiseta, miró hacia el sur y se ruborizó. Viejo verde.
+sólo una camiseta, miró hacia el sur y se ruborizó. Viejo verde. Joven
+inconsciente. Qué frío hacía, caray. 
 
 
 Consejos para una huida
@@ -301,7 +302,41 @@ ni diuréticos diversos.
 
 —Sí, un vasito de agua para después del café, si es tan amable.
 
-Porque yo no estoy huyendo. Soy escritor.
+Porque ¿quién está  huyendo?. Yo no. Soy escritor.
+
+Café para dos
+- - - 
+
+Por un momento, Roble había creído que la chica iba a descubrir la
+situación antes de lo conveniente. El no hacerlo no sólo le evitaba
+hacer de consejero, que tendría que ser él porque Ciri era un inútil
+para prácticamente todo, sino que, además, podía aprovecharse de la
+situación sacándole algo de información a esta chica. Había un tercer
+además, que era la posibilidad de, eventualmente y con un poco de
+suerte, tirársela, lo que habría sido bastante improbable en caso de
+que su presencia estuviera asociada, desde el principio, con una
+compañera asesinada. 
+
+—Menuda fiestuqui anoche, ¿eh?
+
+—Sí, ¿verdad? - contestó Tina, un poco más animada tras haberse bebido
+el zumo de naranja de un trago y haber empezado con el café con leche
+semidesnatada, la mitad fría. - creo que vino todo el mundo, pero todo
+el mundo. Hubo un momento que no se podía ni salir ni entrar, gente
+por todos lados, en los pasillos, ni se oía la música, fíjate. No
+había música, ahora que lo pienso. Es lo guay de estar en un sitio tan
+solitario, que no molestas a nadie.
+
+Habían tenido que andar unos metros, desde el final de la carretera de
+la Sierra hasta el antiguo final de la misma, donde sí había una
+cafetería abierta. Por el camino, un bloque de casas de dos pisos con
+carteles de “Se alquila”, “Se vende”, algunos ya caídos, persianas
+echadas, escombros de burbuja.
+
+En el bar, bufandas del Granada, que andaba peleándose por los puestos
+de descenso de segunda de nuevo, parejas de jubilados y algún grupo de
+amas de casa que compartían el café post-dejada de los niños en el
+cole. 
 
 
 
