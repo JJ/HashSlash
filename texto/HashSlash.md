@@ -419,6 +419,33 @@ consideraba testigo ni ninguna otra figura procesal. ¿Por qué no iba a
 poder quedar con ella y lo que surgiera?
 
 
+Matar
+---
 
+—¿Haciendo sudokus? 
 
+No me gusta hablar con la gente. Corrijo. No me gusta hacer nada con
+la gente. Lo mío es hacerle *a* la gente. Pero a veces es inevitable
+que *la gente* te hable o te haga cosas.
+
+—No, escribiendo. 
+
+A veces contesto, si pienso que puedo darle una lección a alguien. Era
+un camarero joven, de mirada ilusa, que servilmente se esforzaba por
+satisfacer a la gente que pasaba por el café de carretera para nunca
+más volver. Del este, quizás. 
+
+—¿Escribe? ¿Novelas? - la s, un poco sibilante. - ¿Ha logrado publicar
+algo? 
+
+—Sí - un sí para tres preguntas. Estaba empezando a cargarme. Me
+levanté para irme.
+
+—Yo también escribo. Y mataría por publicar. - dijo, suspirando y
+dejando de barrer por un momento.
+
+—A veces uno tiene que hacer lo que tiene que hacer -, le contesté,
+sin mirarle. Dejé el dinero del café sobre la barra y me
+largué. Todavía me quedaba más de una hora para llegar al puerto y
+tomar el ferry.
 
