@@ -121,10 +121,9 @@ al recordar que el cuarto de baño estaba, justamente, al lado de la
 habitación donde se encontraba el cadáver. Ciriaco le dio una palmada
 en la espalda, lo que casi hizo que se le volviera a salir el vómito. 
 
-—¿Despertamos a la compañera de piso? -, preguntó Roble. - Para
-hacer tiempo.
+—La compañera de piso sigue durmiendo -, dijo Roble. 
 
-—¿Para darle el mal rato? Yo paso de consolar a niñatas. Al menos, de
+—Ahí se puede quedar. Yo paso de despertarla. ¿Para darle el mal rato? Yo paso de consolar a niñatas. Al menos, de
 consolarlas así - le dio un codazo al joven Roble, que una vez más le
 volvió a traer la náusea a la garganta - Bastante hemos tenido con el
 novio. Menudo apollardao.
@@ -132,7 +131,13 @@ novio. Menudo apollardao.
 —¿Apollardao? ¿Eso es granadino? - preguntó Roble. A la vez, tecleaba
 buscándolo en el móvil.
 
-—Tontolaba, agilipoyao de la vida. 
+—Tontolaba, agilipoyao de la vida -, dijo Ciriaco. - Kevin, ¿qué
+nombre es ese, cojones? Nombre de apollardao. 
+
+Roble miró en la
+pantalla. [Apollardao](http://www.frikipedia.es/friki/Diccionario_granadino). Vale. No
+tiene nada que ver con el tamaño del miembro. Con el que, en todo
+caso, no tenía por qué estar familiarizado Ciriaco. 
 
 —Entonces, ¿tú no crees que haya sido él?
 
@@ -154,7 +159,7 @@ altura o un poco más bajo.
 —Y eso lo sabes porque...
 
 —Coño, Robles, porque me he visto el NCIS y el CSI y toda serie de
-maderos que echan. ¿Tú te crees que he visto muchos muertos? Con los
+maderos que echen por la tele o que se pueda bajar uno. ¿Tú te crees que me ha tocado ver muchos fiambres? Con los
 dedos de esta mano se pueden contar -, mostró su mano izquierda, en la
 que le faltaba un dedo. - Y todas eran mujeres y los asesinos eran
 siempre sus parejas, que, en algunos casos, estaba justo al lado, con
@@ -305,7 +310,7 @@ ni diuréticos diversos.
 Porque ¿quién está  huyendo?. Yo no. Soy escritor.
 
 Café para dos
-- - - 
+-----
 
 Por un momento, Roble había creído que la chica iba a descubrir la
 situación antes de lo conveniente. El no hacerlo no sólo le evitaba
@@ -327,8 +332,8 @@ por todos lados, en los pasillos, ni se oía la música, fíjate. No
 había música, ahora que lo pienso. Es lo guay de estar en un sitio tan
 solitario, que no molestas a nadie.
 
-Habían tenido que andar unos metros, desde el final de la carretera de
-la Sierra hasta el antiguo final de la misma, donde sí había una
+Habían tenido que andar unos cientos de metros, desde muy cerca del final de la carretera de
+la Sierra hasta lo que, por la antigüedad de los edificios, parecía el antiguo final de la misma, donde sí había una
 cafetería abierta. Por el camino, un bloque de casas de dos pisos con
 carteles de “Se alquila”, “Se vende”, algunos ya caídos, persianas
 echadas, escombros de burbuja.
@@ -341,7 +346,9 @@ cole y hablaban, precisamente, de eso.
 
 —Por eso acabamos, ¿a qué hora acabamos? -, le preguntó a Roble, que
 hizo un ruido ambiguo y puso cara de pensativo. - No te acuerdas tú
-tampoco, ¿verdad? - Roble se encogió de hombros.
+tampoco, ¿verdad? - Roble se encogió de hombros. Tina notó el
+bloquecito cuadrado de cristal que tenía delante de las gafas. ¿Google
+Glasses? No había visto muchas. 
 
 —Cuando Demelza... - dejó la frase sin terminar, para que Tina lo
 hiciera por él. O la dejara ahí, implicando que se había ido a la vez
@@ -410,13 +417,21 @@ hizo amago siquiera.
 
 Tras recorrer unos metros en dirección al piso, Roble vio la furgoneta
 aparcada. Tina también. Empezó a abrir los ojos, luego a
-entornarlos. Luego la boca. Roble la interrumpió.
+entornarlos. Luego la boca. Roble la interrumpió. Era una furgoneta
+frigorífica normal y corriente. Podía ser la de un cátering o de unas
+mudanzas. Pero había demasiada gente alrededor, un coche patrulla
+aparcado más adelante y en un minuto vería al madero de uniforme
+plantado en la puerta. Así que era el momento de desaparecer. El
+momento consolación de damisela en apuros tenía su gracia, pero para
+eso estaba su compañero que tenía más experiencia en el tema y ninguna
+posibilidad de sacar provecho de la situación. 
 
 -Qué buen rato hemos echado. ¿Me dejas tu teléfono?
 
 Todavía no habían empezado el interrogatorio *oficial*, ni se
 consideraba testigo ni ninguna otra figura procesal. ¿Por qué no iba a
-poder quedar con ella y lo que surgiera?
+poder quedar con ella y lo que surgiera? Entrechocaron sus teléfonos,
+pasándose la información de contacto. 
 
 
 Matar
@@ -448,4 +463,9 @@ dejando de barrer por un momento.
 sin mirarle. Dejé el dinero del café sobre la barra y me
 largué. Todavía me quedaba más de una hora para llegar al puerto y
 tomar el ferry.
+
+Fiambres y bocadillos
+---
+
+Ya se había escaqueado el Roble de las narices, pensó Ciriaco. 
 
