@@ -467,5 +467,86 @@ tomar el ferry.
 Fiambres y bocadillos
 ---
 
-Ya se había escaqueado el Roble de las narices, pensó Ciriaco. 
+Ya se había escaqueado el Roble de las narices, pensó Ciriaco. Miró
+alrededor, a los de la furgona del Anatómico fumando apoyados en la
+puerta del conductor, al cachas recién salido de la academia que lucía
+músculos y tatuaje a pesar del frío, de pie y de brazos cruzados en la
+entrada al bloque, el coche del juzgado un poco más allá de donde se
+acababa de bajar la jueza, bajita, rubia con un traje de chaqueta y el
+pelo corto, no la conocía. Sería nueva, o sustituta o algo. Y Roble
+alejándose y la compañera del piso acercándose con lentitud, como no
+queriendo creer que aquello tenía que ver, de alguna forma, con ella,
+cuando no vivía nadie más en el bloque y casi en cincuenta metros a la
+redonda. 
+
+Con un poco de suerte podía entretenerla y retrasar el momento
+histeria hasta que llegara... alguien. Se fue acercando a ella, con la
+mano en el bolsillo, mesando la placa, pero Quique el periodista le
+adelantó por la izquierda y se dirigió a la chica.
+
+—¿Es usted familiar de la difunta?
+
+Ella se echó a llorar, claro. Quique se puso a grabarla. Ya veía el
+titular: “Momentos de pánico en el piso de la estudiante asesinada”,
+seguido de las frases de *stock* que tenían preparadas para esos
+casos. “Era muy querida por todos” (muy querida por todos los vecinos,
+en caso de tratarse de una barriada popular o un pueblo; frase
+preferida por el presidente de la asociación de vecinos o el alcalde pedáneo), “Tenía una vida por delante” y “No
+podía imaginar que le iba a pasar esto”. 
+
+—Anda, Quique y lárgate, cojones, no des más por culo. Luego te pasas
+por Jefatura y te damos el comunicado de prensa.
+
+—Si me dejas subir a hacer fotos.
+
+—No te dejo subir a hacer fotos.
+
+—Entonces, aquí me tienes hasta que desfile hasta la última maruja del
+barrio. Y el artículo sobre incompetencia policial lo tienes
+garantizado como no  trinquéis al asesino esta misma tarde.
+
+—Pero ¿quień se ha muerto ni niño muerto? Es un registro rutinario.
+
+—Sí, y esa furgoneta es la del fresco del barrio, oye, qué bueno, lo
+del fresco del barrio, eso va a mi blog, fijo,  y esa señora que se
+ha bajado del coche no es la jueza Blanco sino su gemela maligna que
+viene a hacer una fiesta de Tuppersex.
+
+Segundos de intercambio de frases que había aprovechado la chica para
+llegar hasta la puerta del bloque sin dejar de llorar. El agente no la
+dejó pasar y tras amagar unos golpes decidió, simplemente sentarse en
+el suelo y seguir llorando. Quique y Ciriaco se fueron hacia ella,
+pero Ciríaco volvió el brazo con la palma hacia atrás y le impidió
+continuar.
+
+—Venga, coño, Ciri, dame vidilla, cojones. ¿Cuánto?
+
+—Te voy a meter una hostia que te van a hacer palmas las orejas. Eres
+más tonto que lo que se sirve en periodista. ¿Cuándo te ha funcionado
+eso conmigo? ¿Eh? ¿Cuando?
+
+—Siempre hay una primera vez. Te sorprenderías -, le contestó Quique
+sonriendo. 
+
+—No me voy a sorprender porque eso te lo guardas pa ti y pa tus
+muertos y pa los de asuntos internos si es que te preguntan. Ahora,
+humo.
+
+—Joder, Ciri, que está el de márketing del periódico encima nuestro,
+todo lo que huela a sangre son visitas a la web, venga, va, joder...
+
+Ciriaco no dijo nada. Tina seguía llorando en el suelo y la jueza y el
+secretario judicial se acercaban ya a la puerta y tenía que
+atenderlos. 
+
+—Tres condiciones: primero, no publiques nada hasta que te
+digamos. Dos, si te enteras de algo nos lo dices a nosotros antes.
+
+Quique había aprovechado para tirar unas cuantas fotos con el móvil.
+
+—¿La tercera? -, preguntó.
+
+—Cuando me acuerde te la digo. Venga, puedes subir y echar unas
+fotos y cuando se le pase el berrinche te dejo cinco minutos con
+ella. Pero déjame a mi primero, hombre.
 
