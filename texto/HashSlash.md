@@ -550,3 +550,27 @@ Quique había aprovechado para tirar unas cuantas fotos con el móvil.
 fotos y cuando se le pase el berrinche te dejo cinco minutos con
 ella. Pero déjame a mi primero, hombre.
 
+Volver
+--- 
+
+Casa es donde dejas el sombrero, ¿no? Nadie usa sombrero hoy en día,
+así que tampoco existen los hogares de verdad. Pero sí hay un sitio a
+donde retornar, donde tienes unas pantuflas y dónde hay un sillón que,
+a base de ser utilizado para sentarte, se ha adaptado perfectamente a
+los contornos de tus nalgas. Y viceversa.
+
+A veces, el sillón es una persona.
+
+Cuando llego al puerto de Algeciras, a veces se ve el país que llamo,
+por lo pronto, mi casa. A veces no. Hoy es de esos días. Hay
+nubarrones negros sobre el estrecho. De esos que los escritores suelen
+usar para reflejar un temperamento sombrío o un estado de ánimo
+tormentoso en los personajes. Pero sólo son nubes. Y yo me siento
+estupendamente. 
+
+De repente, un rayo de sol abre las nubes y crea una isla de luz muy
+cerca de mi coche, donde espero para subir al ferry.
+
+Es mentira. Sigue nublado. ¿Por qué diablos iba a salir un rayo de luz
+para nadie? Pero os lo habíais creído, ¿verdad?
+
