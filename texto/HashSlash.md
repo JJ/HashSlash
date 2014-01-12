@@ -206,7 +206,7 @@ escribiendo en el móvil y otro en el bloc.
 Huir tampoco es fácil
 ---
 
-En realidad sí lo es, pensó Jack. Y mancha mucho menos que cualquier
+En realidad sí lo es. Y mancha mucho menos que cualquier
 cosa que uno haya hecho que requiera tal huida.
 
 Despertar
@@ -286,25 +286,26 @@ inconsciente. Qué frío hacía, caray.
 
 
 Consejos para una huida
---- 
+-----
 
-La gente piensa que lo más importante a la hora de huir es ir muy
-rápido. No tienen ni idea y lo más parecido a una huida que conocen es
+La gente piensa que lo más importante a la hora de huir es moverse muy
+rápidamente. No tienen ni idea. Lo más parecido a una huida que conocen es
 cuando han escapado de un ex cambiándose de acera.
 
 Lo más importante es no mearse. 
 
-Mear significa no poder estar concentrado en el asunto entre manos
+Tener ganas de mear significa no poder estar centrado en el asunto entre manos
 para concentrarse en el asunto entre piernas. Significa que tienes que
 pararte. O significa que tienes que llevar un pañal.
 
 ¿Qué pasa? La gente lleva pañal. Es un inconveniente, pero no tanto
-como mearse encima.
+como mearse encima. Es la diferencia entre ser un hediondo y no
+serlo. 
 
 Pero lo mejor es no tener que hacérselo ni encima ni en el pañal.
 
 Ergo: nada de café. Nada de agua. Nada de colas ni bebidas energéticas
-ni diuréticos diversos.
+ni diuréticos endulzados.
 
 —¿Desea tomar algo más?
 
@@ -453,17 +454,17 @@ un camarero joven, de mirada ilusa, que servilmente se esforzaba por
 satisfacer a la gente que pasaba por el café de carretera para nunca
 más volver. Del este, quizás. 
 
-—¿Escribe? ¿Novelas? - la s, un poco sibilante. - ¿Ha logrado publicar
+—¿Escribe? ¿Novelas? - la *s*, un poco sibilante. - ¿Hay... ha publicado
 algo? 
 
-—Sí - un sí para tres preguntas. Estaba empezando a cargarme. Me
-levanté para irme.
+—Sí -, un sí para tres preguntas. Estaba empezando a cargarme. Me
+levanté para irme, dirigiéndome hacia la barra y dejándolo atrás.
 
-—Yo también escribo. Y mataría por publicar. - dijo, suspirando y
+—Yo  escribo también. Y mataría por publicar. - dijo, suspirando y
 dejando de barrer por un momento.
 
-—A veces uno tiene que hacer lo que tiene que hacer -, le contesté,
-sin mirarle. Dejé el dinero del café sobre la barra y me
+—A veces uno tiene que hacer lo que tiene que hacer -, le contesté.
+Sin mirarle. Dejé el dinero del café sobre la barra y me
 largué. Todavía me quedaba más de una hora para llegar al puerto y
 tomar el ferry.
 
@@ -554,9 +555,11 @@ fotos y cuando se le pase el berrinche te dejo cinco minutos con
 ella. Pero déjame a mi primero, hombre.
 
 Volver
---- 
+---
 
-Casa es donde dejas el sombrero, ¿no? Nadie usa sombrero hoy en día,
+Casa es donde dejas el sombrero, ¿no? 
+
+Pero nadie usa sombrero hoy en día,
 así que tampoco existen los hogares de verdad. Pero sí hay un sitio a
 donde retornar, donde tienes unas pantuflas y dónde hay un sillón que,
 a base de ser utilizado para sentarte, se ha adaptado perfectamente a
@@ -575,5 +578,34 @@ De repente, un rayo de sol abre las nubes y crea una isla de luz muy
 cerca de mi coche, donde espero para subir al ferry.
 
 Es mentira. Sigue nublado. ¿Por qué diablos iba a salir un rayo de luz
-para nadie? Pero os lo habíais creído, ¿verdad?
+para nadie? Pero os he hecho creer que sí, ¿verdad? 
 
+Así somos los escritores.
+
+
+<h2>#FAIL</h2>
+
+Los escritores debemos tener nuestras herramientas dispuestas. Como
+los cazadores, vigilamos un tema, colocamos trampas, circulamos
+alrededor del mismo, inquirimos, cavamos.
+
+Todo eso son metáforas. Pero me gustan las metáforas. 
+
+En realidad, usamos alertas de Google, avisos de Twitter, seguimos por
+Facebook. A mi me gusta llevar también libreta: cuando algo sucede,
+móvil en mano, boli en la otra, apunto, resumo, esquematizo. 
+
+Todo eso no son metáforas. 
+
+En medio del mar, que todavía no era bravío y no parecía tener la
+intención de serlo, a pesar de los nubarrones, vibró brevemente el
+reloj. Alguna trampa había saltado, algo le había sucedido en torno a
+mi tema. Tema que se había quedado cerrado en Granada. Que debía
+haberse quedado cerrado en Granada.
+
+Estalla un trueno en la lontananza, cae un rayo, el mar se encrespa.
+
+Un par de palabras en un tweet: “Sigo viva”. 
+
+El MF Zabaleta continúa su travesía hacia Tánger. Mi mente vuelve y mi
+cuerpo también lo hará en cuanto que pueda. 
