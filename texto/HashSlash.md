@@ -36,11 +36,12 @@ poniendo una cara similar a esta :-) - ¿Qué cuchillo dices?
 sin lograrlo - . Espera, ¿qué coño has puesto? Afú, quë tropa. - Roble aprovechó la pausa para dejar el móvil en el
 regazo y hacer copa con las manos para calentárselas. 
 
-—Nada, un poco de escena del crimen en Instagram. Mira, ya tengo más
-de veinte *likes* - . Ciriaco hizo un esfuerzo para distinguir lo que
-se mostraba a esa distancia. Se distinguían borrones rojos y figuras
+—Nada ,- Sólo un poco de escena del crimen en Instagram.  Ya tenía más
+de veinte *likes*. Ciriaco hizo un esfuerzo para intentar ver qué era lo que
+había en la pantalla. Se distinguían borrones rojos y figuras
 geométricas de color naranja. Poco más. Ninguna cara, nada
-distintivo que permitiera reconocer ni al sitio, ni a la víctima. 
+distintivo que permitiera reconocer ni al sitio, ni a la
+víctima. Menos mal. 
 
 —Cuidao con la polla... - Frunció un poco el ceño haciendo minería de
 datos de sus memorias de la academia de policía, casi treinta años
@@ -49,7 +50,7 @@ crimen. No encontró nada. El propio Roble, que vaya tela marinera de
 nombre, Roble, había estado en la academia hacía menos. Así que él
 sabría. 
 
-—Veinticinco ya. Y en Twitter casi los mismos. 
+Roble vio que llevaba veinticinco ya. Y en Twitter casi los mismos. 
 
 —El cuchillo. De Ikea. - dijo Ciriaco, haciendo que el ritmo de tecleo
 de Roble variara.
@@ -64,7 +65,7 @@ levantó con el móvil en la mano y fue a otra habitación. Se oyó el
 chasquido del móvil al hacer una foto. Roble frunció los labios y alzó
 las cejas.
 
-—Has aprendido a hacer fotos con el móvil -, dijo. Ciriaco simplemente
+—Has aprendido -, dijo. Ciriaco simplemente
 le mostró la foto en la que aparecía un mango negro con churretes
 marrones, triangular, aparentemente hincado en un montón de tela
 también con chafarrinones negros, marrones y rojos oscuros. Rojo
@@ -87,6 +88,8 @@ Ciriaco.
 tonta -, dijo, riéndose de su propia gracia. - Tú verás lo que haces,
 pero si te cae un paquete a mi no me busques. 
 
+Roble seguía manipulando el teléfono.
+
 —Pues no funciona el app de Ikea que te permite buscar por imágenes -,
 dijo Roble, que seguía pegado al teléfono.- Normal, por otro lado. 
 
@@ -96,14 +99,15 @@ dijo Roble, que seguía pegado al teléfono.- Normal, por otro lado.
 - [Byaaas](http://www.ikea.com/es/es/catalog/products/80227797/). -
   Señaló a la mesa en la que Ciriaco había estado varias veces a punto
   de extender los pies -
-  [Klingsbo](http://www.ikea.com/es/es/catalog/products/90128565/). 
+  [Klingsbo](http://www.ikea.com/es/es/catalog/products/90128565/) -,
+  dijo en voz alta. 
   
   — ¿Y el resto? Espera, no me lo digas. Rebotados del piso de
   Almuñécar... - Roble no contestó. Su móvil seguía emitiendo sonidos
   y él seguía tecleando.
   
- — Oye, dice Paco el secretario judicial que va a tardar todavía un rato en
- venir. ¿Por qué no echas unas fotos más mientras?
+ — Oye, dice Paco, el secretario judicial, que va a tardar todavía un rato en
+ venir. ¿Echas unas fotos más mientras?
  
  — ¿Y por qué no las echas tú con tu polla? - le contestó Ciriaco,
  sonriendo abiertamente y extendiendo la mano para recibir el
@@ -578,6 +582,65 @@ Es mentira. Sigue nublado. ¿Por qué diablos iba a salir un rayo de luz
 para nadie? Pero os he hecho creer que sí, ¿verdad? 
 
 Así somos los escritores.
+
+Asuntos propios
+----
+
+Roble se pilló un autobús para ir hacia el Clínico a entrevistar al
+novio de la chica difunta. Kevin. De padres, seguramente, fans de
+[Aquellos maravillosos años](http://es.wikipedia.org/wiki/The_Wonder_Years)
+lo que les había marcado no sólo cultural sino físicamente. 
+
+En la parada del 33 y mientras iba en el mismo fue perfilando al
+chaval. Tenía cuenta de todo. De Jelly, de Twitter, de Facebook, de
+Instagram. Donde más se movía era en Jelly, respondiendo a todo tipo
+de preguntas estúpidas. “¿Qué color de bufanda prefieres?” “¿Caballo o
+pony?” “¿Filadelfia o Seattle?”. Si hasta retuiteaba fotos de
+animalitos. 
+
+En Instagram, mucho *selfie*, alguno con la novia. Este sería del tipo
+de gente que queda con la novia para usar, en paralelo, el móvil. Ya
+se lo podía imaginar, mandándole un Whatsapp para decirle “¿Dejamos ya
+los móviles y nos metemos mano?”
+
+Pero, por lo demás, no parecía ni el asesino ni tener nada que ver con
+el tema. Puso en Facebook el inicio oficial de la relación hacía ocho
+meses, en mayo, finales del curso pasado. ¿Una novia anterior
+especialmente celosa? No parecía tenerla, alguna amiga que
+otra. Tendría que minar fotos y posts para sacar alguna conclusión
+más, pero su olfato le decía que no.
+
+Su app monedero de *bitcoin* sonó con su tintineo metálico en ese
+momento. Ya le habían abonado las fotos que había tomado el
+Ciri, un par de *bitcoins* que no era probable que duraran
+veinticuatro horas. Sólo si esto le tomaba demasiado tiempo. 
+
+Le mandó un Whatsapp al asistente social que estaba con el chico para
+ver donde se encontraban. Seguían en urgencias y parecía que el chaval
+estaba más calmado gracias a la química. Se lo encontró tumbado, con
+los ojos cerrados, El asistente, a su lado, leía en un tablet. Se
+levantó y le dijo
+
+—Ya es cosa tuya -, miró el reloj y se puso el chaquetó para salir. -
+La familia vendrá en un rato.
+
+—Pero ¿está...? - preguntó Roble.
+
+—Atontao, sí. No sé si más de lo habitual, pero lo que le hemos metido
+es fuertecillo.
+
+—Vale. Hasta pronto. 
+
+Ahora tenía que despertarlo. Decidió no hacerlo. Además, tenía que
+solicitar al juzgado intervención de cuentas, listados de llamadas,
+tráfico de datos, claves de cuentas de correo... Entró en el
+formulario del juzgado al que habían asignado el caso y marcó
+todo. Estaba tecleando el informe de justificación cuando sonaron los
+acordes de llegada de un mensaje por WhatsApp. Era Ciri indicándole
+que habían llegado los del juzgado y que dónde coño estaba. 
+
+El sonido hizo que Kevin abriera los ojos. Ni siquiera los tenía
+marrones como [Kevin](http://es.wikipedia.org/wiki/Fred_Savage)
 
 
 <h2>#FAIL</h2>
