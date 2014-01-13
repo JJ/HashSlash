@@ -1,5 +1,9 @@
+<!--- -*-  eval: (typopunct-mode 1); eval: (typopunct-change-language: spanish) -*- -->
+
 #slash
 ====
+
+
 
 1: #JustABelieber - 2: #pelisconnata - 3: #nomepises - 4: #masterchef - 5: #slash
 ---
@@ -32,8 +36,8 @@ ninguno de los dos casos tenía más de una cifra significativa.
 —Bueno, en realidad, sí -, dijo Roble, levantando la cara del móvil y
 poniendo una cara similar a esta :-) - ¿Qué cuchillo dices? 
 
-—El de la muerta -. Hizo una pausa e intentó levantarse de nuevo,
-sin lograrlo - . Espera, ¿qué coño has puesto? Afú, quë tropa. - Roble aprovechó la pausa para dejar el móvil en el
+—El de la muerta. - Hizo una pausa e intentó levantarse de nuevo,
+sin lograrlo. - Espera, ¿qué coño has puesto? Afú, qué tropa. - Roble aprovechó la pausa para dejar el móvil en su
 regazo y hacer copa con las manos para calentárselas. 
 
 —Nada ,- Sólo un poco de escena del crimen en Instagram.  Ya tenía más
@@ -669,3 +673,23 @@ Un par de palabras en un tweet: “Sigo viva”.
 
 El MF Zabaleta continúa su travesía hacia Tánger. Mi mente vuelve y mi
 cuerpo también lo hará en cuanto que pueda. 
+
+## La página en blanco
+
+Cualquier escritor te hablará de ese momento angustioso en el que
+tienes que enfrentarte a una página y las teclas repelen las llemas de
+tus dedos como tu cerebro repele las ideas.
+
+Comenzar. Quizás no es problema de repulsión cerebral de ideas. Antes
+al contrario, las ideas se agolpan, se aglomeran, se enredan unas con
+otras, se pelean, pero, en una victoria pírrica, todas acaban vencidas
+y ninguna te arroja el artículo que seguido de un sustantivo y más
+adelante un verbo acabarían, de por sí, constiyendo una frase.
+
+Peor es recomenzar. Cuando, una vez terminado el trabajo, el editor, los
+primeros lectors, el querido y despreciado público, lo arrojan a la
+basura y hay que empezar de nuevo.
+
+La chica no ha muerto. Volvemos al principio. 
+
+Y ahora es algo personal.
