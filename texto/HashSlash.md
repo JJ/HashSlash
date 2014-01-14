@@ -43,7 +43,7 @@ poniendo una cara similar a esta :-) - ¿Qué cuchillo dices?
 sin lograrlo. - Espera, ¿qué coño has puesto? Afú, qué tropa. - Roble aprovechó la pausa para dejar el móvil en su
 regazo y hacer copa con las manos para calentárselas. 
 
-—Nada ,- Sólo un poco de escena del crimen en Instagram.  Ya tenía más
+—Nada ,- sólo un poco de #escenadelcrimen en Instagram.  Ya tenía más
 de veinte *likes*. Ciriaco hizo un esfuerzo para intentar ver qué era lo que
 había en la pantalla. Se distinguían borrones rojos y figuras
 geométricas de color naranja. Poco más. Ninguna cara, nada
@@ -72,7 +72,7 @@ levantó con el móvil en la mano y fue a otra habitación. Se oyó el
 chasquido del móvil al hacer una foto. Roble frunció los labios y alzó
 las cejas.
 
-—Has aprendido -, dijo. Ciriaco simplemente
+—Has aprendido -, dijo Roble a modo de halago. Ciriaco simplemente
 le mostró la foto en la que aparecía un mango negro con churretes
 marrones, triangular, aparentemente hincado en un montón de tela
 también con chafarrinones negros, marrones y rojos oscuros. Rojo
@@ -102,7 +102,7 @@ dijo Roble, que seguía pegado al teléfono.- Normal, por otro lado.
 
 —¿Hay un app para eso? - Preguntó Ciriaco, curioso.
 
-—Hay un app para *todo*. - señaló al mueble que sostenía la televisión
+—Hay un app para *todo* -, señaló al mueble que sostenía la televisión
 - [Byaaas](http://www.ikea.com/es/es/catalog/products/80227797/). -
   Señaló a la mesa en la que Ciriaco había estado varias veces a punto
   de extender los pies -
@@ -111,10 +111,13 @@ dijo Roble, que seguía pegado al teléfono.- Normal, por otro lado.
   
   — ¿Y el resto? Espera, no me lo digas. Rebotados del piso de
   Almuñécar... - Roble no contestó. Su móvil seguía emitiendo sonidos
-  y él seguía tecleando.
+  y él seguía tecleando. - No hay app - dijo aaahhh - para eso,
+  ¿verdad? 
   
- — Oye, dice Paco, el secretario judicial, que va a tardar todavía un rato en
- venir. ¿Echas unas fotos más mientras?
+  Ciríaco se rió de su propia gracia. 
+  
+ — Paco, el secretario judicial, - dijo Roble.- Va a tardar en
+ venir. ¿Unas fotos más mientras?
  
  — ¿Y por qué no las echas tú con tu polla? - le contestó Ciriaco,
  sonriendo abiertamente y extendiendo la mano para recibir el
@@ -132,7 +135,9 @@ al recordar que el cuarto de baño estaba, justamente, al lado de la
 habitación donde se encontraba el cadáver. Ciriaco le dio una palmada
 en la espalda, lo que casi hizo que se le volviera a salir el vómito. 
 
-—La compañera de piso sigue durmiendo -, dijo Roble. 
+—La compañera de piso -, dijo Roble. Seguía durmiendo. Dos chicas en
+un piso de tres dormitorios, que podían permitirse porque estaba lejos
+de cualquier facultad y prácticamente de todo.
 
 —Ahí se puede quedar. Yo paso de despertarla. ¿Para darle el mal rato? Yo paso de consolar a niñatas. Al menos, de
 consolarlas así - le dio un codazo al joven Roble, que una vez más le
@@ -148,9 +153,9 @@ nombre es ese, cojones? Nombre de apollardao.
 Roble miró en la
 pantalla. [Apollardao](http://www.frikipedia.es/friki/Diccionario_granadino). Vale. No
 tiene nada que ver con el tamaño del miembro. Con el que, en todo
-caso, no tenía por qué estar familiarizado Ciriaco. 
+caso, no tenía por qué estar familiarizado Ciriaco en el caso de este muchacho. 
 
-—Entonces, ¿tú no crees que haya sido él?
+—Veredicto: ¿inocente? - dijo Roble. 
 
 —No tengo ni puta idea, Roble. Pero me extrañaría. Cuando salga del
 Clínico le preguntaremos. Pero vamos, que no. 
@@ -159,10 +164,11 @@ Clínico le preguntaremos. Pero vamos, que no.
 
 —Mira las fotos. El cuchillo.
 
-—Espera. - pasó el dedo unas cuantas veces por el móvil - Un
+—Espera. - Pasó el dedo unas cuantas veces por el móvil - Un
 [ñistra](http://www.ikea.com/es/es/catalog/products/00149317/). 
 
-—La posición del cuchillo, el ángulo, - hizo movimientos de Bates en
+—La posición del cuchillo, el ángulo, - hizo movimientos de Bates
+apuñalando la cortina de
 la ducha en Psicosis - quien fuera tendría que ser bastante más alto
 que ella. Y este menda, así a ojo de buen cubero, era de la misma
 altura o un poco más bajo.
@@ -181,27 +187,32 @@ te echas la siesta.
 
 —Qué.
 
-—Quique el periodista, que ha visto que había hecho check-in en
-FourSquare en el barrio y me acaba de poner un like en él. Lo tenemos
-aquí en un rato.
+—Quique el periodista. - Quique había  visto que Roble había hecho check-in en
+FourSquare en el barrio y me acaba de poner un like en él. - Viene.
 
-—Cuidao con la polla y con el chismecico. Un día nos vas a traer
+—Cuidao con la polla y con el chismecico. Porque se ha enterado por el
+chismecico, ¿no? - Roble puso cara de póker. - Un día nos vas a traer
 problemas. Verás tú. 
 
-—Será la primera vez que llega un periodista a una escena de un
-crimen porque se huele algo.
+—Será la primera vez que un periodista... - Roble no siguió,
+consciente de la inutilidad de discutir con Ciriaco y también de la de
+cualquier consejo que Ciriaco le hiciera al respecto.
 
 —Será la primera vez que te cogen el chisme y te lo estrellan en los
 morros -, contestó Ciriaco. 
 
-Roble no dijo nada y siguió tecleando y cambiando de aplicación.
+Roble no dijo nada y siguió tecleando, cambiando de aplicación.
 
-—Mira, gracias a lo que he puesto hemos podido saber que... - movió el
+—Mira, dicen que... - movió el
 pulgar verticalmente, pasando algo por la pantalla - el color de la
 sangre - movió pulgar y corazón, ampliando algo - indica que... es de
 verdad. 
 
-Dijo esto último bajando la voz. Ciriaco se volvió a sentar, diciendo
+Dijo esto último bajando la voz, consciente del #fail y #vayanovedad
+implícito en sus palabras. También se quejaban del tratamiento Lomo de
+la foto. Poco más. Los seguidores de Dexter parecían no estar muy
+espabilados a estas horas de la mañana. 
+Ciriaco se volvió a sentar, diciendo
 por el camino “Afú” varias veces, en el
 sillón y se puso a escribir en un bloc pequeñito, con una portada a
 cuadros y un alambre uniendo las hojas por su parte superior. 
@@ -498,7 +509,8 @@ adelantó por la izquierda y se dirigió a la chica.
 
 —¿Es usted familiar de la difunta?
 
-Ella se echó a llorar, claro. Quique se puso a grabarla. Ya veía el
+Ella abrió muchos los ojos y se echó a llorar, claro. Y Quique se puso
+a grabarla, claro. Ya veía el
 titular: “Momentos de pánico en el piso de la estudiante asesinada”,
 seguido de las frases de *stock* que tenían preparadas para esos
 casos. “Era muy querida por todos” (muy querida por todos los vecinos,
@@ -515,7 +527,8 @@ por Jefatura y te damos el comunicado de prensa.
 
 —Entonces, aquí me tienes hasta que desfile hasta la última maruja del
 barrio. Y el artículo sobre incompetencia policial lo tienes
-garantizado como no  trinquéis al asesino esta misma tarde.
+garantizado como no  trinquéis al asesino esta misma tarde. Esta misma
+mañana. 
 
 —Pero ¿quień se ha muerto ni niño muerto? Es un registro rutinario.
 
@@ -534,11 +547,11 @@ continuar.
 —Venga, coño, Ciri, dame vidilla, cojones. ¿Cuánto?
 
 —Te voy a meter una hostia que te van a hacer palmas las orejas. Eres
-más tonto que lo que se sirve en periodista. ¿Cuándo te ha funcionado
+más tonto que lo que se sirve normalmente en periodista. ¿Cuándo te ha funcionado
 eso conmigo? ¿Eh? ¿Cuando?
 
 —Siempre hay una primera vez. Te sorprenderías -, le contestó Quique
-sonriendo. 
+sonriendo y volviendo a dejar la cartera en el bolsillo de atrás. 
 
 —No me voy a sorprender porque eso te lo guardas pa ti y pa tus
 muertos y pa los de asuntos internos si es que te preguntan. Ahora,
@@ -647,7 +660,43 @@ acordes de llegada de un mensaje por WhatsApp. Era Ciri indicándole
 que habían llegado los del juzgado y que dónde coño estaba. 
 
 El sonido hizo que Kevin abriera los ojos. Ni siquiera los tenía
-marrones como [Kevin](http://es.wikipedia.org/wiki/Fred_Savage)
+marrones como [Kevin](http://es.wikipedia.org/wiki/Fred_Savage). Miró
+a Roble con cara de asustado, miró en derredor, volvió a cerrarlos y a
+abrirlos, como si no se creyera donde estaba. Cogió el móvil y miró la
+hora y empezó a respirar rápidamente. Lo que fuera que le habían
+metido, se le estaba pasando. Miró a Roble.
+
+—Sí, soy Roble García, del Cuerpo de Policía Nacional. - Kevin miró
+ como si no lo conociera, pero algo encajó en su cabeza. - Cuéntame.
+ 
+ Kevin rompió a llorar de nuevo. Roble fue al cuarto de baño del box y
+cogió un rollo de papel higiénico. Se lo pasó.
+
+—Hay que encontrar al asesino, Kevin -, dijo Roble, en tono
+tranquilizador. - Ayúdanos. ¿La fiesta?
+
+—No fui a la fiesta. Si hubiera ido... - Roble lo miró bien. Si
+hubiera ido, estaría borracho o muerto. O las dos cosas. Pero no se lo
+dijo. 
+
+—¿Y cómo...? - preguntó Roble.
+
+—Demelza lleva iBra - Roble sabía lo que era, ropa interior
+inteligente que te detectaba desde el latido cardíaco hasta toxinas
+presentes en el sudor. Las parejas no lo eran de verdad hasta que no
+se agregaba el iBra o iBoxers de la pareja al app del móvil de uno. -
+Dejó de transmitir a partir de las tres  o las cuatro, y me despertó
+al sonar una alarma en mi móvil, y yo era como, “Qué diablos pasa“, y
+le pongo un Whatsapp, y no me contesta, y yo como “Qué diablos pasa“,
+otra vez...
+
+—Pero hasta las ocho...
+
+—Si, por yo era como “Bueno, a veces se lo quita y se pone uno que no
+lleva sensor, no pasa nada“, pero de todas formas fui, y, y...
+
+Otra llantina. 
+
 
 
 <h2>#FAIL</h2>
