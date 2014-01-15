@@ -742,6 +742,24 @@ Peor es recomenzar. Cuando, una vez terminado el trabajo, el editor, los
 primeros lectors, el querido y despreciado público, lo arrojan a la
 basura y hay que empezar de nuevo.
 
-La chica no ha muerto. Volvemos al principio. 
+La chica no ha muerto. No la he matado, corrijo. Volvemos al principio. 
 
 Y ahora es algo personal.
+
+
+## Escribir es sufrir
+
+Sufra usted primero, le dijo algún famoso escritor ruso a un no tan
+famoso escritor en ciernes. Cretino.
+
+Pero cierto. 
+
+Sufrir para volver a encontrar el tema, seguirlo, perseguirlo y,
+finalmente, atenazarlo y terminarlo. Pero el sufrimiento se exacerba
+si el tema te elude. Mucho más si se ha ido a Lituania. Allí es donde
+se ha ido la chica. Eso es lo que dice en su perfil en Facebook y sus
+tweets están geolocalizados por Vilna y alrededores. En Minsk, a
+veces. 
+
+Escribe, conocerás mundo. No lo dijo nadie, pero podía haberlo dicho
+Paul Theroux.
