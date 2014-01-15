@@ -3,7 +3,18 @@
 #slash
 ====
 
+## Ese día
 
+El día siguiente a mi asesinato no comenzó demasiado bien. Primero: el
+dolor de cabeza. Segundo: las náuseas. Tercero: un tío en pelotas al
+que no conozco de nada, a mi lado.
+
+Mejor borra tercero. Qué pedazo de tío. Joder, lo que se ve debajo de
+las sábanas. 
+
+Mejor bórralo todo. El día podía haber empezado mejor. Pero una vez
+que desperté al tío empezando, como es natural, por aquello, tampoco
+empezó demasiado mal. 
 
 1: #JustABelieber - 2: #pelisconnata - 3: #nomepises - 4: #masterchef - 5: #slash
 ---
@@ -219,11 +230,6 @@ encontraba el cadáver. Los dos giraron la cabeza en esa
 dirección. Luego se miraron el uno al otro y finalmente siguieron uno
 escribiendo en el móvil y otro en el bloc.
 
-Huir tampoco es fácil
----
-
-En realidad sí lo es. Y mancha mucho menos que cualquier
-cosa que uno haya hecho que requiera tal huida.
 
 Despertar
 ---
@@ -300,34 +306,6 @@ que parecía no haber sido consciente hasta ese momento de que llevaba
 sólo una camiseta, miró hacia el sur y se ruborizó. Viejo verde. Joven
 inconsciente. Qué frío hacía, caray. 
 
-
-Consejos para una huida
------
-
-La gente piensa que lo más importante a la hora de huir es moverse muy
-rápidamente. No tienen ni idea. Lo más parecido a una huida que conocen es
-cuando han escapado de un ex cambiándose de acera.
-
-Lo más importante es no mearse. 
-
-Tener ganas de mear significa no poder estar centrado en el asunto entre manos
-para concentrarse en el asunto entre piernas. Significa que tienes que
-pararte. O significa que tienes que llevar un pañal.
-
-¿Qué pasa? La gente lleva pañal. Es un inconveniente, pero no tanto
-como mearse encima. Es la diferencia entre ser un hediondo y no
-serlo. 
-
-Pero lo mejor es no tener que hacérselo ni encima ni en el pañal.
-
-Ergo: nada de café. Nada de agua. Nada de colas ni bebidas energéticas
-ni diuréticos endulzados.
-
-—¿Desea tomar algo más?
-
-—Sí, un vasito de agua para después del café, si es tan amable.
-
-Porque ¿quién está  huyendo?. Yo no. Soy escritor.
 
 Café para dos
 -----
@@ -454,36 +432,6 @@ poder quedar con ella y lo que surgiera? Entrechocaron sus teléfonos,
 pasándose la información de contacto. 
 
 
-Matar
----
-
-—¿Haciendo sudokus? 
-
-No me gusta hablar con la gente. Corrijo. No me gusta hacer nada con
-la gente. Lo mío es hacerle *a* la gente. Pero a veces es inevitable
-que *la gente* te hable o te haga cosas.
-
-—No, escribiendo. 
-
-A veces contesto, si pienso que puedo darle una lección a alguien. Era
-un camarero joven, de mirada ilusa, que servilmente se esforzaba por
-satisfacer a la gente que pasaba por el café de carretera para nunca
-más volver. Del este, quizás. 
-
-—¿Escribe? ¿Novelas? - la *s*, un poco sibilante. - ¿Hay... ha publicado
-algo? 
-
-—Sí -, un sí para tres preguntas. Estaba empezando a cargarme. Me
-levanté para irme, dirigiéndome hacia la barra y dejándolo atrás.
-
-—Yo  escribo también. Y mataría por publicar. - dijo, suspirando y
-dejando de barrer por un momento.
-
-—A veces uno tiene que hacer lo que tiene que hacer -, le contesté.
-Sin mirarle. Dejé el dinero del café sobre la barra y me
-largué. Todavía me quedaba más de una hora para llegar al puerto y
-tomar el ferry.
-
 Fiambres y bocadillos
 ---
 
@@ -571,34 +519,6 @@ Quique había aprovechado para tirar unas cuantas fotos con el móvil.
 —Cuando me acuerde te la digo. Venga, puedes subir y echar unas
 fotos y cuando se le pase el berrinche te dejo cinco minutos con
 ella. Pero déjame a mi primero, hombre.
-
-Volver
----
-
-Casa es donde dejas el sombrero, ¿no? 
-
-Pero nadie usa sombrero hoy en día,
-así que tampoco existen los hogares de verdad. Pero sí hay un sitio a
-donde retornar, donde tienes unas pantuflas y dónde hay un sillón que,
-a base de ser utilizado para sentarte, se ha adaptado perfectamente a
-los contornos de tus nalgas. Y viceversa.
-
-A veces, el sillón es una persona.
-
-Cuando llego al puerto de Algeciras, a veces se ve el país que llamo,
-por lo pronto, mi casa. A veces no. Hoy es de esos días. Hay
-nubarrones negros sobre el estrecho. De esos que los escritores suelen
-usar para reflejar un temperamento sombrío o un estado de ánimo
-tormentoso en los personajes. Pero sólo son nubes. Y yo me siento
-estupendamente. 
-
-De repente, un rayo de sol abre las nubes y crea una isla de luz muy
-cerca de mi coche, donde espero para subir al ferry.
-
-Es mentira. Sigue nublado. ¿Por qué diablos iba a salir un rayo de luz
-para nadie? Pero os he hecho creer que sí, ¿verdad? 
-
-Así somos los escritores.
 
 Asuntos propios
 ----
@@ -696,67 +616,3 @@ Otra llantina.
 
 
 
-<h2>#FAIL</h2>
-
-Los escritores debemos tener nuestras herramientas dispuestas. Como
-los cazadores, vigilamos un tema, colocamos trampas, circulamos
-alrededor del mismo, inquirimos, cavamos.
-
-Todo eso son metáforas. Pero me gustan las metáforas. 
-
-En realidad, usamos alertas de Google, avisos de Twitter, seguimos por
-Facebook. A mi me gusta llevar también libreta: cuando algo sucede,
-móvil en mano, boli en la otra, apunto, resumo, esquematizo. 
-
-Todo eso no son metáforas. 
-
-En medio del mar, que todavía no era bravío y no parecía tener la
-intención de serlo, a pesar de los nubarrones, vibró brevemente el
-reloj. Alguna trampa había saltado, algo le había sucedido en torno a
-mi tema. Tema que se había quedado cerrado en Granada. Que debía
-haberse quedado cerrado en Granada.
-
-Estalla un trueno en la lontananza, cae un rayo, el mar se encrespa.
-
-Un par de palabras en un tweet: “Sigo viva”. 
-
-El MF Zabaleta continúa su travesía hacia Tánger. Mi mente vuelve y mi
-cuerpo también lo hará en cuanto que pueda. 
-
-## La página en blanco
-
-Cualquier escritor te hablará de ese momento angustioso en el que
-tienes que enfrentarte a una página y las teclas repelen las llemas de
-tus dedos como tu cerebro repele las ideas.
-
-Comenzar. Quizás no es problema de repulsión cerebral de ideas. Antes
-al contrario, las ideas se agolpan, se aglomeran, se enredan unas con
-otras, se pelean, pero, en una victoria pírrica, todas acaban vencidas
-y ninguna te arroja el artículo que seguido de un sustantivo y más
-adelante un verbo acabarían, de por sí, constiyendo una frase.
-
-Peor es recomenzar. Cuando, una vez terminado el trabajo, el editor, los
-primeros lectors, el querido y despreciado público, lo arrojan a la
-basura y hay que empezar de nuevo.
-
-La chica no ha muerto. No la he matado, corrijo. Volvemos al principio. 
-
-Y ahora es algo personal.
-
-
-## Escribir es sufrir
-
-Sufra usted primero, le dijo algún famoso escritor ruso a un no tan
-famoso escritor en ciernes. Cretino.
-
-Pero cierto. 
-
-Sufrir para volver a encontrar el tema, seguirlo, perseguirlo y,
-finalmente, atenazarlo y terminarlo. Pero el sufrimiento se exacerba
-si el tema te elude. Mucho más si se ha ido a Lituania. Allí es donde
-se ha ido la chica. Eso es lo que dice en su perfil en Facebook y sus
-tweets están geolocalizados por Vilna y alrededores. En Minsk, a
-veces. 
-
-Escribe, conocerás mundo. No lo dijo nadie, pero podía haberlo dicho
-Paul Theroux.
