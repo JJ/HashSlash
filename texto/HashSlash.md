@@ -435,18 +435,21 @@ sonrisa para un selfie futuro.
 dijo haciendo amago de pegarle un codazo a Roble. Roble pagó, Tina no
 hizo amago siquiera. 
 
-Tras recorrer unos metros en dirección al piso, Roble vio la furgoneta
+Recorrieron unos metros en dirección al piso. Unos metros por encima
+de los tejados, diferentes drones revoloteaban en dirección a la
+ciudad o alejándose de ella. Uno realizaba un circuito, muy cerca de
+la puerta del bloque. Justo debajo de él, Roble vio la furgoneta
 aparcada. Tina también. Empezó a abrir los ojos, luego a
 entornarlos. Luego la boca. Roble la interrumpió. Era una furgoneta
 frigorífica normal y corriente. Podía ser la de un cátering o de unas
 mudanzas. Pero había demasiada gente alrededor, un coche patrulla
 aparcado más adelante y en un minuto vería al madero de uniforme
-plantado en la puerta. Así que era el momento de desaparecer. El
+plantado en la puerta. Así que, para Roble, había llegado el momento de desaparecer. El
 momento consolación de damisela en apuros tenía su gracia, pero para
 eso estaba su compañero que tenía más experiencia en el tema y ninguna
 posibilidad de sacar provecho de la situación. 
 
--Qué buen rato hemos echado. ¿Me dejas tu teléfono?
+—Qué buen rato hemos echado-, dijo Roble.- ¿Me pasas tu número de teléfono?
 
 Todavía no habían empezado el interrogatorio *oficial*, ni se
 consideraba testigo ni ninguna otra figura procesal. ¿Por qué no iba a
@@ -694,6 +697,51 @@ lleva sensor, no pasa nada“, pero de todas formas fui, y, y...
 
 Otra llantina. 
 
+—Estaba... - dijo Roble, intentando volver a la conversación.
+
+—Medio caída de la cama -, dijo entre hipidos-, un charco de sangre en
+el suelo, el pelo...
+
+—De espaldas.
+
+—Sí. No. Era como... 
+
+—La cara... 
+
+—Sólo un poco. Estaba como desfigurada. No parecía ella.
+
+Se echó a llorar y Roble ya no pudo sacarlo de ese lugar oscuro y
+aparentemente muy líquido. Sonaron diferentes melodías y Roble,
+eventualmente, se fue.
+
+
+## Sentido y sensibilidad
+ 
+Tina no estaba tampoco en condiciones de responder a muchas
+preguntas. Ciriaco le pidió que le hiciera una lista de las personas
+que habían asistido a la fiesta, que tratara de recordar cuando había
+visto a Demelza por última vez. Dejó la pregunta sobre drogas y
+cualquier otra actividad ilegal para más adelante. Total, acabaría
+saliendo. Esas cosas siempre salían.
+
+—¿Había alguien extraño en la fiesta? - le preguntó, finalmente. Tina
+dejó de secarse los ojos y lo miró.
+
+—A partir de cierta hora, *todos* éramos extraños.
+
+Se la pasó, como había prometido, a Quique. Móvil en mano, éste le
+preguntó:
+
+—¿Cómo se siente por la muerte de su compañera de piso?
+
+Ciri no se sorprendió en absoluto de que, una vez más, los periodistas
+hicieran grandes esfuerzos para sacar de dentro de cada persona los
+tópicos que contenían. Sin embargo, la respuesta fue
+
+—Pobre... Ahora, ¿cómo diablos voy a pagar yo el piso?
+
+Con casi treinta años de policía, Ciríaco pensó que la condición
+humana nunca dejaría de sorprenderle.
 
 
 <h2>#FAIL</h2>
