@@ -714,7 +714,8 @@ el suelo, el pelo...
 —Sólo un poco. Estaba como desfigurada. No parecía ella.
 
 Se echó a llorar y Roble ya no pudo sacarlo de ese lugar oscuro y
-aparentemente muy líquido. Sonaron diferentes melodías y Roble,
+aparentemente muy líquido. Sonaron diferentes melodías procedentes de
+diferentes aparatos y Roble,
 eventualmente, se fue.
 
 
@@ -741,11 +742,78 @@ Ciri no se sorprendió en absoluto de que, una vez más, los periodistas
 hicieran grandes esfuerzos para sacar de dentro de cada persona los
 tópicos que contenían. Sin embargo, la respuesta fue
 
-—Pobre... Ahora, ¿cómo diablos voy a pagar yo el piso?
+—Pobre... Ahora, ¿cómo voy a poder pagar yo el piso?
 
 Con casi treinta años de policía, Ciríaco pensó que la condición
 humana nunca dejaría de sorprenderle.
 
+## Identidad
+
+Roble estaba de pie en el autobús, de vuelta a su casa, cuando recibió
+la llamada de Ciriaco, poniéndole al día del interrogatorio de Tina y
+de la llegada de recoge-fiambres, en palabras del propio
+Ciriaco. Inmediatamente le envió un mensaje a Tina quedando para unas
+cervezas por la noche.
+
+Sus planes inmediatos incluían dormir unas cuantas horas. Había estado
+de servicio toda la noche, un turno de diez horas, y el caso no
+parecía tener visos de ser resuelto fácilmente. Arma oportunista,
+persona sin grandes enemistades ni, aparentemente, amistades, grupos
+ambos que podían pasar a la categoría de asesinos fácilmente. 
+
+Mientras pensaba esto, escuchaba la conversación en el asiento de
+atrás. 
+
+—No, los videos son muy de principio de década. Ahora lo que la peña
+demanda es el texto. Más portable, más ubicuo, más modos de
+interacción. Más largo. 
+
+Su compañero o compañera emitió un sonido de continuidad de la
+comunicación. Quien hablaba, una persona que, por la voz, podría tener
+tanto la edad de Ciriaco como la de Roble, continuaba.
+
+—No requiere nada, en realidad. Un video, tres minutos, ahora qué veo,
+¿no? Un libro son horas y horas de entretenimiento sin tener que
+molestarse en pensar qué haces luego, ¿te das cuenta?
+
+Sí se debía dar cuenta, porque continuó.
+
+—Además, lo mejor de los libros es que la gente *no los lee*, ¿te das
+cuenta? Satisfacen su necesidad inmediata de adquirir algo, por poco
+dinero, o de poseer y pueden vanagloriarse de ello en las redes
+sociales, ¿sabes? 
+
+Roble se entretuvo mirando el perfil de la chica muerta, Demelza. Ahí
+estaban sus compras de libros, efectivamente. Una cantidad
+considerable de títulos que incluían referencias tórridas o
+abiertamente eróticas. Y ahí estaban sus propios libros publicados y
+las felicitaciones correspondientes, algunas veces miles de ellas. *69
+tonos de 0XEEE* parecía uno de los más populares, con historias que
+hablaban de cómo escalaba los puestos de ventas y cómo había alcanzado
+mil ventas y luego mil quinientas, dos mil... *Rearrancando tus
+sentimientos* parecía también bastante popular, y *Fundiéndote la
+EPROM* también. Había más de una docena, todos con un éxito
+considerable. Consultó los resúmenes, todos muy parecidos, mujer
+arrastrada por una pasión por lo cibernético y atrapada por el amor
+mecánico que, finalmente, acaba reprogramándolo. *Mecaporno*, en
+resumen. Y, aparentemente, del bueno, por los puestos de ventas en los
+que se situaba. 
+
+Ya que estaba consultando ventas, Roble miró las suyas
+propias. *Mátame a las tres* había vendido algo, pero *Si no me matas,
+me enfado* seguía estancado en un par de ventas al día. No estaba mal,
+pero tendría que sacar algún título nuevo próximamente si no quería
+que el público huyera de los *selfie-thrillers* buscando cualquier
+otra cosa. *Mecaporno*, por ejemplo. Mientras tanto, el de atrás
+continuaba.
+
+—Y todo el mundo es un poeta cuando habla de lo que le gusta. Por
+ejemplo, a ti te gusta el ganchillo, ¿no? Las novelas sobre el
+ganchillo son un género todavía sin explorar. Anímate... - Algo pitó -
+¿Lo ves? Acabo de vender uno de *Cirios por manzanas* - Más pitidos -
+Y otro de *Velas y van vegetales*. 
+
+—Pues invítame a una caña.
 
 <h2>#FAIL</h2>
 
