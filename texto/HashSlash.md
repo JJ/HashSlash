@@ -147,15 +147,17 @@ novio. Menudo apollardao.
 —¿Apollardao? ¿Eso es granadino? - preguntó Roble. A la vez, tecleaba
 buscándolo en el móvil.
 
-—Tontolaba, agilipoyao de la vida -, dijo Ciriaco. - Kevin, ¿qué
+—Tontolaba, agilipoyao de la vida, persona que lleva ya dos años
+trabajando en Granada y no sabe lo que significa la palabra “apollardao“ -, dijo Ciriaco. - Kevin, ¿qué
 nombre es ese, cojones? Nombre de apollardao. 
 
 Roble miró en la
 pantalla. [Apollardao](http://www.frikipedia.es/friki/Diccionario_granadino). Vale. No
 tiene nada que ver con el tamaño del miembro. Con el que, en todo
-caso, no tenía por qué estar familiarizado Ciriaco en el caso de este muchacho. 
+caso, no tenía por qué estar familiarizado Ciriaco en el caso de este
+tal Kevin. 
 
-—Veredicto: ¿inocente? - dijo Roble. 
+—Veredicto: ¿inocente? - preguntó Roble. 
 
 —No tengo ni puta idea, Roble. Pero me extrañaría. Cuando salga del
 Clínico le preguntaremos. Pero vamos, que no. 
@@ -330,7 +332,7 @@ ni diuréticos endulzados.
 
 —Sí, un vasito de agua para después del café, si es tan amable.
 
-Porque ¿quién está  huyendo?. Yo no. Soy escritor.
+Porque ¿quién está  huyendo?. Yo no. Sólo soy un escritor.
 
 Café para dos
 -----
@@ -456,8 +458,10 @@ posibilidad de sacar provecho de la situación.
 
 Todavía no habían empezado el interrogatorio *oficial*, ni se
 consideraba testigo ni ninguna otra figura procesal. ¿Por qué no iba a
-poder quedar con ella y lo que surgiera? Entrechocaron sus teléfonos,
-pasándose la información de contacto. 
+poder quedar con ella y lo que surgiera? Se dieron la mano para que
+sus pulseras intercabiaran los datos de contacto; Roble dejó la suya
+unos segundos más de lo estrictamente necesario y Tina no hizo ademán
+de soltarse. 
 
 
 Matar
@@ -756,27 +760,39 @@ Ciriaco. Inmediatamente le envió un mensaje a Tina quedando para unas
 cervezas por la noche.
 
 Sus planes inmediatos incluían dormir unas cuantas horas. Había estado
-de servicio toda la noche, un turno de diez horas, y el caso no
+de servicio toda la noche, un turno de diez horas que al final parecía
+haberse extendido unas pocas más, la pulsera ya le
+estaba avisando de que era hora de dormir si se quería mantener
+saludable y con la piel tersa. Además, el caso no
 parecía tener visos de ser resuelto fácilmente. Arma oportunista,
-persona sin grandes enemistades ni, aparentemente, amistades, grupos
-ambos que podían pasar a la categoría de asesinos fácilmente. 
+persona sin grandes enemistades ni, aparentemente, amistades,
+categorías 
+ambas que podían pasar a la de asesinos fácilmente. 
 
 Mientras pensaba esto, escuchaba la conversación en el asiento de
 atrás. 
 
 —No, los videos son muy de principio de década. Ahora lo que la peña
-demanda es el texto. Más portable, más ubicuo, más modos de
-interacción. Más largo. 
+demanda es el texto, ¿sabes?. Más portable, más ubicuo, más modos de
+interacción. Más largo, más oportunidades de interacción, más
+posibilidades de viralidad, ¿no?
 
 Su compañero o compañera emitió un sonido de continuidad de la
 comunicación. Quien hablaba, una persona que, por la voz, podría tener
-tanto la edad de Ciriaco como la de Roble, continuaba.
+tanto la edad de Ciriaco como la de Roble, continuaba. Las gafas de
+Roble habían recolectado las firmas electrónicas de todo el mundo y ya
+sabía, al menos, si se había encontrado con ellos alguna vez. Con un
+poco de suerte, podía tener alguna información adicional y asociar la
+firma a una persona. 
 
 —No requiere nada, en realidad. Un video, tres minutos, ahora qué veo,
 ¿no? Un libro son horas y horas de entretenimiento sin tener que
 molestarse en pensar qué haces luego, ¿te das cuenta?
 
-Sí se debía dar cuenta, porque continuó.
+Sí se debía dar cuenta, porque continuó. Roble ya había asociado la
+voz a un *podcast* aparecido en algún sitio, lo que le dio también un
+nombre y todas las demás coordenadas. Usaba el nombre Vicente
+Asterisco. 
 
 —Además, lo mejor de los libros es que la gente *no los lee*, ¿te das
 cuenta? Satisfacen su necesidad inmediata de adquirir algo, por poco
@@ -799,7 +815,7 @@ mecánico que, finalmente, acaba reprogramándolo. *Mecaporno*, en
 resumen. Y, aparentemente, del bueno, por los puestos de ventas en los
 que se situaba. 
 
-Ya que estaba consultando ventas, Roble miró las suyas
+Y ya que estaba consultando ventas, Roble miró las suyas
 propias. *Mátame a las tres* había vendido algo, pero *Si no me matas,
 me enfado* seguía estancado en un par de ventas al día. No estaba mal,
 pero tendría que sacar algún título nuevo próximamente si no quería
@@ -813,7 +829,78 @@ ganchillo son un género todavía sin explorar. Anímate... - Algo pitó -
 ¿Lo ves? Acabo de vender uno de *Cirios por manzanas* - Más pitidos -
 Y otro de *Velas y van vegetales*. 
 
-—Pues invítame a una caña.
+Roble comprobó el perfil de Amazon de Vicente a ver si decía la verdad, por pura
+rutina. Los escritores siempre mienten. No pudo comprobarlo, porque
+Amazon no revela las ventas, pero el de las velas parecía estar en el tramo de las
+decenas de miles con más venta que indicaba que habría vendido quizás
+uno en las últimas horas. Igual decía la verdad.
+
+—Pues invítame a una caña. - contestó el amigo, o, más concretamente,
+compañero de asiento en el autobús. 
+
+## Los muertos no hablan, los vivos sí.
+
+Ciriaco recibió una llamada, esta vez por el walkie. 
+
+—Inspector, una tipa aquí que quiere subir porque dice que vive ahí o
+no sé qué.
+
+—¿Qué?
+
+La tal Tina estaba sentada en el sofá donde ellos habían estado
+sentado antes. Tras el breve berrinche se había puesto a disposición
+de los agentes, posiblemente para asegurarse de que no rompían nada y
+después de trastear un rato en su propia habitación, “arreglándose“,
+decía. 
+
+—Aguántala ahí -, dijo Ciriaco por el walkie.
+
+—Jefe, no sé si querrá...
+
+—Lavín, compae, que se espere, cojones.
+
+—Es que...
+
+Ciriaco cortó la comunicación. Le puso una mano en el hombro a Tina
+que estaba concentrada jugando en el móvil. Le habían pedido que no
+dijera nada a nadie, pero seguro que ya lo había puesto en tres redes
+sociales diferentes.
+
+—Tina, ¿quienes vivís aquí?
+
+—Bueno, Demelza y yo, pero Demelza está muerta, - se le escapó una
+risita -, así que yo sola. 
+
+—¿Nadie más? ¿Ningún amigo o amiga que venga de vez en cuando,
+conocido, familiar del dueño? Son tres dormitorios, ¿no?
+
+—Sí, pero el tercero no lo usamos, bueno, sí lo usamos, pero vamos, no
+vive nadie, vivir, lo que se dice vivir, vamos.
+
+Ciriaco se quedó pensando. 
+
+—¿Me puedes acompañar un momento?
+
+Bajaron un tramo de escaleras, Ciriaco delante, Tina unos escalones
+por detrás. Tina no dejó el móvil ni un momento, sus pies conocían el
+camino. 
+
+—¡Tinaaa! - Oyó Ciríaco cuando se pusieron a la vista de la puerta. 
+
+—¿Demelza? - dijo Tina, metiéndose el móvil en el bolsillo y bajando
+las escaleras de dos en dos.
+
+—¿Te han...? - comenzó a decir Demelza, pero Tina se avalanzó sobre
+ella y le dio un abrazo, chillando a la vez.
+
+El agente de la puerta y Ciriaco se miraron, el primero con una
+sonrisa socarrona. Ciriaco se rascó el círculo depilado
+involuntariamente y en continuo aumento de su cabeza. Quique, que
+estaba por los alrededores, se asomó al portal y le hizo un gesto
+inquisitivo con la cabeza, levantándola, seguido por otro señando con
+la barbilla a la amalgama de dos chicas. Ciriaco abrió las manos
+indicándole que no tenía ni idea y le hizo dos gestos simétricos con
+la cabeza indicándole que se largara.
 
 <h2>#FAIL</h2>
 
@@ -821,7 +908,7 @@ Los escritores debemos tener nuestras herramientas dispuestas. Como
 los cazadores, vigilamos un tema, colocamos trampas, circulamos
 alrededor del mismo, inquirimos, cavamos.
 
-Todo eso son metáforas. Pero me gustan las metáforas. 
+Todo eso son metáforas. Pero a los escritores nos gustan las metáforas. 
 
 En realidad, usamos alertas de Google, avisos de Twitter, seguimos por
 Facebook. A mi me gusta llevar también libreta: cuando algo sucede,
@@ -837,7 +924,7 @@ haberse quedado cerrado en Granada.
 
 Estalla un trueno en la lontananza, cae un rayo, el mar se encrespa.
 
-Un par de palabras en un tweet: “Sigo viva”. 
+Un par de palabras en un tweet de `@demechza`: “Sigo viva”. 
 
 El MF Zabaleta continúa su travesía hacia Tánger. Mi mente vuelve y mi
 cuerpo también lo hará en cuanto que pueda. 
