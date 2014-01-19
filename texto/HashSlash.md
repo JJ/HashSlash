@@ -903,7 +903,7 @@ la cabeza indicándole que se largara.
 
 ##Vuelta al ruedo
 
-—Entonces, ¿quién es la muerta? - preguntó Roble.
+—¿Quién es la muerta? - preguntó Roble.
 
 —Ainoa González Tovar. - dijo Ciriaco, mirando a cierta distancia el
 DNI que cogía con los guantes.
@@ -917,6 +917,34 @@ quien le había llamado había sido Ciriaco o, en plan más general, *el
 deber* y había sustituido su cama por una bebida energética que había
 comprado por el camino en una tienda de inmigrantes orientales
 posiblemente ilegales. 
+
+Ahora Roble tenía grupos de neuronas adormecidas luchando con otras
+sobreexcitadas. El resultado era que no podía pensar claramente. La
+muerta no estaba muerta. Pero había una muerta. 
+
+—Ni Tina ni Demelza, la muerta, -, dijo Ciríaco; Roble hizo una
+mueca -, vale, que no está muerta, es para entendernos, que dicen que
+no, que no la conocen.
+
+—Pero... - dijo Roble.
+
+—Sí, qué pollas hacía en la habitación de la muerta, - dijo Ciriaco
+
+—Y... - continuó Roble.
+
+—Y el asesino. O asesina. No han robado nada, o al menos eso parece o
+parecerá cuando limpien el estropicio - Roble dio una arcada - Y
+además había un bolso de más. Que es donde hemos encontrado este DNI,
+o sea que era de la muerta.
+
+Roble miró.
+
+—La de verdad. A partir de ahora, la muerta de verdad será la muerta
+de verdad. La otra, sólo *la muerta*. 
+
+—Pero...
+
+—Ni peros ni manzanas. Yo me entiendo. 
 
 <h2>#FAIL</h2>
 
@@ -982,3 +1010,9 @@ veces.
 
 Escribe, conocerás mundo. No lo dijo nadie, pero podía haberlo dicho
 Paul Theroux.
+
+
+## Agradecimientos
+
+A [Marcos Taracido](http://twitter.com/marcostaracido) por su buen
+humor y haber descubierto un error que a mi se me había pasado. 
