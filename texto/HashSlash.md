@@ -1,7 +1,6 @@
 <!--- -*-  eval: (typopunct-mode 1); eval: (typopunct-change-language: spanish) -*- -->
 
-#slash
-====
+<h1>#slash</h1>
 
 
 
@@ -898,6 +897,23 @@ inquisitivo con la cabeza, levantándola, seguido por otro señando con
 la barbilla a la amalgama de dos chicas. Ciriaco abrió las manos
 indicándole que no tenía ni idea y le hizo dos gestos simétricos con
 la cabeza indicándole que se largara.
+
+##Vuelta al ruedo
+
+—Entonces, ¿quién es la muerta? - preguntó Roble.
+
+—Ainoa González Tovar. - dijo Ciriaco, mirando a cierta distancia el
+DNI que cogía con los guantes.
+
+Roble se frotó los ojos y le dio una palmada a la pulsera, que le
+avisaba insistentemente para que se fuera a dormir. 
+
+La llamada de Ciríaco le había pillado subiendo la cuesta hacia su
+casa, desde donde una cama confortable y cálida parecía llamarle. Pero
+quien le había llamado había sido Ciriaco o, en plan más general, *el
+deber* y había sustituido su cama por una bebida energética que había
+comprado por el camino en una tienda de inmigrantes orientales
+posiblemente ilegales. 
 
 <h2>#FAIL</h2>
 
