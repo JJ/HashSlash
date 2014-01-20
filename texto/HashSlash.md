@@ -462,7 +462,6 @@ sus pulseras intercabiaran los datos de contacto; Roble dejó la suya
 unos segundos más de lo estrictamente necesario y Tina no hizo ademán
 de soltarse. 
 
-
 Matar
 ---
 
@@ -839,7 +838,10 @@ compañero de asiento en el autobús.
 
 ## Los muertos no hablan, los vivos sí.
 
-Ciriaco recibió una llamada, esta vez por el walkie. 
+El walkie de Ciriaco emitió un sonido. Estaba de nuevo en el salón del
+piso, evitando sentarse en el sillón caníbal y esperando que salieran
+el secretario judicial y la jueza, que habían entrado hacía unos
+minutos junto con el médico. 
 
 —Inspector, una tipa aquí que quiere subir porque dice que vive ahí o
 no sé qué.
@@ -905,13 +907,14 @@ la cabeza indicándole que se largara.
 
 —¿Quién es la muerta? - preguntó Roble.
 
-—Ainoa González Tovar. - dijo Ciriaco, mirando a cierta distancia el
+—Ainhoa González Tovar -, dijo Ciriaco, mirando a cierta distancia el
 DNI que cogía con los guantes.
 
 Roble se frotó los ojos y le dio una palmada a la pulsera, que le
 avisaba insistentemente para que se fuera a dormir. 
 
-La llamada de Ciríaco le había pillado subiendo la cuesta hacia su
+La llamada de Ciríaco le había pillado subiendo la cuesta del Barranco
+del Abogado hacia su
 casa, desde donde una cama confortable y cálida parecía llamarle. Pero
 quien le había llamado había sido Ciriaco o, en plan más general, *el
 deber* y había sustituido su cama por una bebida energética que había
@@ -919,7 +922,9 @@ comprado por el camino en una tienda de inmigrantes orientales
 posiblemente ilegales. 
 
 Ahora Roble tenía grupos de neuronas adormecidas luchando con otras
-sobreexcitadas. El resultado era que no podía pensar claramente. La
+sobreexcitadas. El resultado de la lucha era una victoria pírrica de
+las sobreexcitadas que, por la propia excitación, tampoco eran
+precisamente vehículos eficaces de pensamientos complejos. La
 muerta no estaba muerta. Pero había una muerta. 
 
 —Ni Tina ni Demelza, la muerta, -, dijo Ciríaco; Roble hizo una
@@ -933,8 +938,11 @@ no, que no la conocen.
 —Y... - continuó Roble.
 
 —Y el asesino. O asesina. No han robado nada, o al menos eso parece o
-parecerá cuando limpien el estropicio - Roble dio una arcada - Y
-además había un bolso de más. Que es donde hemos encontrado este DNI,
+parecerá cuando limpien el estropicio. - Roble dio una arcada - Y
+además había un bolso de más. O un bolso situado en un lugar donde, al
+parecer, no se encuentran los bolsos, si no no le habría llamado la
+atención a la jueza, - dijo, con un gesto de perplejidad. - 
+Que es donde hemos encontrado este DNI,
 o sea que era de la muerta.
 
 Roble miró.
@@ -945,6 +953,82 @@ de verdad. La otra, sólo *la muerta*.
 —Pero...
 
 —Ni peros ni manzanas. Yo me entiendo. 
+
+Roble miró de reojo a Tina, que apoyada en una pared, charlaba
+animadamente con Demelza. Esta, sin embargo, miraba con cierto
+nerviosismo hacia la puerta del pasillo que daba a su habitación,
+de donde procedían ruidos de frotar de plasticos, de fotos disparadas
+y de indicaciones monosilábicas de un miembro del equipo de
+criminalística a la otra. 
+
+—Pero no la conocen.
+
+—Tina no, por nombre, la cara le suena, dice, - esta volvió la cara
+para mirarlos, al escuchar su nombre - pero Demelza no ha dicho que no, le suena una Ainoa que
+le escribió hace tiempo, pero podría ser Aitora.
+
+—Aitora...
+
+—Yo que sé, tío, a mi me sacas de las Ramonas y las Maripuris y no me
+aclaro, - dijo Ciriaco, abriendo los brazos. - Que lo va a buscar a
+ver. 
+
+Roble fue una vez más a su móvil a ver qué aparecía en las diferentes
+redes sociales de una o de otra. Tardaría, pero si había algo,
+aparecería. 
+
+Los dos agentes de criminalística aparecieron en ese momento,
+quitándose las capuchas, un agente ya veterano y una agente
+relativamente novata que Roble veía por primera vez. Venían cargados
+con una bolsa reutilizable del Mercadona en la que ponía PRUEBAS
+escrito en rotulador. 
+
+—Ya avisamos nosotros a los de la furgoneta de fiambres, - dijo él. 
+
+Salieron en un momento era espacial, con los trajes de papel, que
+Roble se moría por fotografiar pero que en esta ocasión no había
+estado suficientemente rápido como para hacerlo. Sus neuronas le
+estaban traicionando. 
+
+Pasaron al lado de las dos chicas diciéndole, de una forma un tanto
+automática, “Mi pésame“. Tina soltó una risita. Demelza la miró,
+poniendo inmediatamente los ojos en blanco.
+
+Al momento salieron la jueza y el secretario. 
+
+—Esto está listo-, dijo el secretario. La jueza estaba blanca, pero
+recuperó el color rápidamente. 
+
+—En cuanto que sepáis algo, me llamáis. Ciriaco, ¿no? - Ciriaco
+asintió. - Pasadme los teléfonos por si os tengo que llamar. ¿Se os
+ocurre qué puede haber sido?
+
+—Asesinato, - dijo Ciriaco sin pensárselo.
+
+—No podemos aventurar nada, señoría, - “Puri“, le interrumpió . -
+Puri, - dijo Roble. Ciriaco le guiñó un ojo. - No parece robo y no
+sabemos nada de la víctima para ir por otro camino. 
+
+—Pero ¿qué hacía aquí? - preguntó Puri.
+
+Roble miró a Demelza, que le devolvió la mirada. 
+
+—No...
+
+—Que no lo sabemos, Puri, - le interrumpió Roble. - Ayer hubo una
+fiesta pollúa por aquí. Se metería para echar un quiqui o dormir la
+mona o en plan Ricitos de Oro probando las camitas...
+
+Puri hizo una mueca y el secretario judicial soltó una carcajada.
+
+—O a robar - dijo Demelza, mirando a Roble.
+
+—A robar... - repitió Roble. 
+
+En ese momento, Tina pareció recordar algo y se fue corriendo a su
+cuarto, cerrando la puerta. Salió al cabo de un minuto, sonriendo. 
+
+*voy por aquí* 
 
 <h2>#FAIL</h2>
 
