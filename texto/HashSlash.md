@@ -1028,7 +1028,13 @@ Puri hizo una mueca y el secretario judicial soltó una carcajada.
 En ese momento, Tina pareció recordar algo y se fue corriendo a su
 cuarto, cerrando la puerta. Salió al cabo de un minuto, sonriendo. 
 
-*voy por aquí* 
+El campo de batalla del cerebro de Roble, mientras tanto, aparecía
+plagado de neuronas en estado catatónico. Bajó la cabeza y emprendió
+el viaje hacia su casa.
+
+Iba por la mitad de la cuesta cuando su pulsera vibró y en ella
+apareció un mensaje informándole de que había encontrado una conexión
+entre las dos muertas. La real y la putativa. 
 
 <h2>#FAIL</h2>
 
@@ -1055,7 +1061,42 @@ Estalla un trueno en la lontananza, cae un rayo, el mar se encrespa.
 Un par de palabras en un tweet de `@demechza`: “Sigo viva”. 
 
 El MF Zabaleta continúa su travesía hacia Tánger. Mi mente vuelve y mi
-cuerpo también lo hará en cuanto que pueda. 
+cuerpo también lo hará en cuanto que pueda.
+
+## Interludios y preludios
+
+Volviendo a su casa en Huétor Vega, en la periferia granadina, Ciriaco
+pilló un segmento corto en el que hablaban, en el informativo local de
+la radio, de una matanza en Granada, dos mujeres muertas sin razón
+aparente. Tardó un rato en darse cuenta de que hablaban de su caso,
+primero, porque el único dato que coincidía con la realidad era que
+alguien había muerto y segundo, porque no era ese tema el que le
+preocupaba en ese momento. Pensaba, por este orden, en que se estaba
+haciendo mayor, en que tenía que entregar el temario de las
+oposiciones a la editorial prácticamente ya, en que estaba en la
+cuesta de enero y no sabía cómo iba a pagar el inglés de los niños y
+en que si no llegaba a casa en unos minutos no le daría tiempo de
+descansar antes de volver a la academia por la tarde a dar clase.
+
+Nunca le había dado demasiado valor a eso de pensar en un caso. Los
+casos, casi siempre, se resolvían solos o no se resolvían. Dejaba
+pistas, lo soltaba a su compañero de celda, lo acababan trincando por
+otra cosa y confesaba. Este, igual. Jolines, que eran chavales
+jóvenes, de la generación mejor preparada, aunque no tanto como la de
+sus hijos que entre las clases de violín, las de alemán y las de go
+eran capaces de echarse unos chinos con el mismitico Einstein y
+ganarles. Qué remedio, además. Como estaban las cosas y como volverían
+a estar, o estaban preparados o acabarían de funcionarios como él y
+pluriempleados para evitar que los hijos de sus hijos, los nietos,
+acabaran también como él. El ciclo de la vida.
+
+Llegó a su casa. No había nadie. Las camas de sus hijos sin hacer. Los
+platos del desayuno en la mesa. Hizo unas, lavó otros, se hizo un
+bocata que se comió viendo el telediario y se acostó. Un microsegundo
+más tarde le despertó un mensaje en el móvil avisándole de que el
+informe preliminar de la autopsia estaba listo. “Me parece muy bien“,
+pensó. Se vistió, cogió la cartera con las cosas de la academia y se
+marchó de casa. Ya repasaría los temas por el camino. 
 
 ## La página en blanco
 
