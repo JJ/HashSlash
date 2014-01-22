@@ -930,7 +930,7 @@ no, que no la conocen.
 
 —Pero... - dijo Roble.
 
-—Sí, qué pollas hacía en la habitación de la muerta, - dijo Ciriaco
+—Sí, qué pollas hacía en la habitación de la muerta, - dijo Ciriaco.
 
 —Y... - continuó Roble.
 
@@ -1094,6 +1094,60 @@ más tarde le despertó un mensaje en el móvil avisándole de que el
 informe preliminar de la autopsia estaba listo. “Me parece muy bien“,
 pensó. Se vistió, cogió la cartera con las cosas de la academia y se
 marchó de casa. Ya repasaría los temas por el camino. 
+
+## Insomnio
+
+El insomnio que te impide dormir la siesta es más inexcrutable e
+infinitamente más inexorable que el que hace que no duermas de
+noche. Se puede perder el sueño de noche por muchas razones. Pero
+hacen falta sustancias potentes y preocupaciones acuciantes para
+perder el sueño post-almuerzo.  Por eso, pensaba Roble, alguien debía
+haber pensado una palabra especial para ello. ¿Insiesto? ¿Minusiesto? 
+
+Poco antes de llegar a su casa la pulsera le había avisado de que
+había encontrado la conexión entre la chica muerta y la chica que
+había parecido estar muerta. Ainhora había felicitado, repetidamente,
+a Demelza cuando había anunciado la publicación de una nueva novela y
+en varias ocasiones había pulsado un *me gusta* sobre alguna otra
+publicación, principalmente literaria. No parecían estar conectadas
+directamente, sino que las interacciones se reducían a las *fan page*
+de los libros de Demelza. De hecho, sólo en esas: También Ainhoa
+publicaba, con bastante más regularidad que Demelza y, al parecer, de
+forma casi exclusiva, usando los personajes y situaciones de los
+libros de la misma. *Fan fiction*, pues. Así se empieza y así
+empezamos todos, pensó Roble. Él había empezado escribiendo novelas de
+Erlendur, el detective de la serie situada en Reykjavik de
+[Arnaldul Indridason](http://es.wikipedia.org/wiki/Arnaldur_Indri%C3%B0ason). Erlendur,
+mucho más joven que en las novelas originales, viajaba a Benidorm a
+ayudar a la guardia civil a resolver el asesinato, en extrañas
+circunstancias, de un turista islandés y su gato. Estaba llena de
+clichés hasta en la descripción que incluía el cliché *extrañas
+circunstancias*, como si hubiera asesinatos cotidianos y
+habituale. Sólo Erlendur había sido capaz de entender que, en
+realidad, la asesina, una regentadora de un quiosco de churros, a
+quien había deseado matar era al gato, siendo el turista, a quien
+había llamado Thor por su desconocimiento de nombres y apellidos de
+esas latitudes, un simple daño colateral del envenamiento de una rosca
+de churros con matarratas. 
+
+Roble se había quedado muy contento con el resultado, pero en el foro
+de fan-fiction permaneció durante muchos años como único ejemplo de
+fan-fiction-crimen-islandia y sólo superó la docena de lecturas al
+cabo de unos cuantos años. De ello, Roble concluyó que la fan-fiction
+tenía más escritores que lectores (si es que, de hecho, tenía una
+cantidad de lectores no nula) y que, si quería dedicarse a escribir
+trataría de hacerlo sobre cosas que la gente, efectivamente, quisiera
+leer. 
+
+Pero era joven y todo parecía bonito y nuevo y brillante y eso debía
+de haber empujado a Ainhoa a comenzar con la fan-fiction de un tema
+que, bien pensado, se prestaba a ello. 
+
+Se puso a leer algo de lo que había escrito. Empezaba a hablar de
+mecapenes ya en el segundo párrafo. Y, al parecer, no dejaba de
+hacerlo. Ni de cometer errores gramaticales. Y faltas de ortografía.
+
+Realmente, era para matarla.
 
 ## La página en blanco
 
