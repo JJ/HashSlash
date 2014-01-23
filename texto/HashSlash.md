@@ -19,7 +19,9 @@ víctima - dijo, chasqueando la lengua.
 Roble puso la boca en posición de "Ah", pero no dijo nada.
 
 —No estarás poniendo nada de esto - hizo un gesto señalando a su
-alrededor con la mano - en la Internet esa - Ciriaco hizo un
+alrededor con la mano - en la Internet esa.
+
+Ciriaco hizo un
 pequeño esfuerzo para levantarse del sillón desfondado en el que se
 encontraba sentado.
 
@@ -32,7 +34,7 @@ nublado y la temperatura en el interior del piso era escasamente
 diferente de la que hacía al final de la carretera de la Sierra. En
 ninguno de los dos casos tenía más de una cifra significativa. 
 
-—Bueno, en realidad, sí -, dijo Roble, levantando la cara del móvil y
+—Bueno, en realidad... -, dijo Roble, levantando la cara del móvil y
 poniendo una cara similar a esta :-) - ¿Qué cuchillo dices? 
 
 —El de la muerta. - Hizo una pausa e intentó levantarse de nuevo,
@@ -55,7 +57,7 @@ sabría.
 
 Roble vio que llevaba veinticinco ya. Y en Twitter casi los mismos. 
 
-—El cuchillo. De Ikea. - dijo Ciriaco, haciendo que el ritmo de tecleo
+—Lo que te decía, el cuchillo. De Ikea. - dijo Ciriaco, haciendo que el ritmo de tecleo
 de Roble variara.
 
 —[Gynnsam](http://www.ikea.com/es/es/catalog/products/50134950/)-,
@@ -63,9 +65,9 @@ dijo Roble, mostrándole de nuevo la pantalla del móvil a
 Ciriaco. Ciriaco lo cogió y se alzó las gafas, entornando a la vez un
 poco los ojos.
 
-—No, el mango es así como triangular, y no tiene las tachuelas -. Se
-levantó con el móvil en la mano y fue a otra habitación. Se oyó el
-chasquido del móvil al hacer una foto. Roble frunció los labios y alzó
+—No, el mango es así como triangular, y no tiene las tachuelas -, dijo Ciriaco. Se
+levantó con el móvil en la mano y fue a la habitación donde se encontraba el cadáver. Se oyó el
+chasquido de la aplicación al hacer una foto. Roble frunció los labios y alzó
 las cejas.
 
 —Has aprendido -, dijo Roble a modo de halago. Ciriaco simplemente
@@ -79,12 +81,12 @@ acercarse.
 que hacer arquitectura? Por cierto, que ha saltado un mensaje de
 alguien que quería comprar no sé qué. 
 
-Roble eludió la conversión de su nombre en apellido para buscar el
+Roble eludió la conversión de su nombre singular en apellido plural para buscar el
 mensaje del que hablaba. Efectivamente, un blog americano de crímenes
 reales le compraba las fotos. Ahora no le quedaría otro remedio que
 acercarse a la chica.
 
-—Ah, sí, un comprador que se interesa por mis novelas -, le dijo a
+—Ah, sí. Mis novelas -, le dijo a
 Ciriaco. 
 
 —Pues decía no sé qué de fotos. Joder, Robles, que la policía no es
@@ -93,8 +95,8 @@ pero si te cae un paquete a mi no me busques.
 
 Roble seguía manipulando el teléfono.
 
-—Pues no funciona el app de Ikea que te permite buscar por imágenes -,
-dijo Roble, que seguía pegado al teléfono.- Normal, por otro lado. 
+—El app de Ikea. No funciona. -,
+dijo Roble, que seguía pegado al teléfono.- Normal. 
 
 —¿Hay un app para eso? - Preguntó Ciriaco, curioso.
 
@@ -105,19 +107,18 @@ dijo Roble, que seguía pegado al teléfono.- Normal, por otro lado.
   [Klingsbo](http://www.ikea.com/es/es/catalog/products/90128565/) -,
   dijo en voz alta. 
   
-  — ¿Y el resto? Espera, no me lo digas. Rebotados del piso de
+  — ¿Y el resto? Espera, no me lo digas. Rebotados desde el piso de
   Almuñécar... - Roble no contestó. Su móvil seguía emitiendo sonidos
   y él seguía tecleando. - No hay app - dijo aaahhh - para eso,
   ¿verdad? 
   
   Ciríaco se rió de su propia gracia. 
   
- — Paco, el secretario judicial, - dijo Roble.- Va a tardar en
- venir. ¿Unas fotos más mientras?
+ — Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Ciriaco. 
  
  — ¿Y por qué no las echas tú con tu polla? - le contestó Ciriaco,
  sonriendo abiertamente y extendiendo la mano para recibir el
- móvil. Roble también sonrió y lo asumió como parte de esa seña de
+ móvil. Roble también sonrió, asumiendo la respuesta como parte de esa seña de
  identidad llamada *malafollá granaína* que todavía, después de dos
  años de destino, seguía tratando de aprender. 
  
@@ -1169,6 +1170,26 @@ La chica no ha muerto. No la he matado, corrijo. Volvemos al principio.
 
 Y ahora es algo personal.
 
+## En otro mundo
+
+Clases. Más clases. El alumno que, al final de la clase, se queda
+preguntar por las claves, las verdaderas claves, para sacar adelante
+las oposiciones. ¿Alguien que conocer? ¿Alguien que sobornar? Ciriaco
+no se cansaba de decirles que las oposiciones, como el trabajo
+policial, eran simplemente cuestión de constancia y de esfuerzo. A
+veces, los jovenzuelos y a veces no tanto que componían el alumnado,
+lo miraban y se sonreían como diciendo "Sí, como si nos lo fueras a
+contar en caso de saberlo", o quizás "Infeliz, los años que tiene y
+todavía no sabe cómo funciona el mundo".
+
+Ciriaco, en realidad, pensaba que tenían razón. Si lo supiera, no se
+lo iba a contar. Pero él entró en la policía de esa forma, muchos años
+de academia y de gimnasio, muchas horas de juventud perdidas. Si había
+otra forma, él no lo sabía. Pero no creía que la hubiera.  Por eso
+tenían razón en lo segundo que pensaban. Con los años que tenía y
+todavía no sabía cómo funcionaba el mundo.
+
+Y, a estas alturas, tampoco tenía ganas de ponerse a averiguarlo. 
 
 ## Escribir es sufrir
 
