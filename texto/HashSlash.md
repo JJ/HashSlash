@@ -239,8 +239,8 @@ tomado una manía especial al ojo derecho,  así que lo mantenía cerrado
 y, en ocasiones, tapado con la mano derecha para mayor seguridad.
 
 Había llegado un momento en que la resistencia a levantarse no había
-podido con la necesidad de buscar un ibuprofeno en algún sitio. No lo
-había encontrado en la cocina, quizás su compañera Demelza tuviera. O
+podido con la necesidad de ingerir  una dosis de ibuprofeno. No la
+había encontrado en la cocina. Quizás su compañera Demelza tuviera. O
 si no, quien quiera que anduviera por la casa, que llevaba oyendo el
 chirrido de los muebles del salón durante un rato. Efectivamente, allí
 había dos personas. 
@@ -282,7 +282,7 @@ de otra persona, pero qué diablos, las fotos la amaban. Estaba mona hasta con r
 cosa no tendríais, aspirina, gelocatil. ¿Oxicodona? - dijo, mirando al
 hipster. 
 
-— No, Tina, no tenemos nada, ya lo siento -, le dijo sonriendo. Seguro
+— No, Tina. Nada. Ya lo siento -, le dijo sonriendo. Seguro
 que estuvo en la fiesta, si no, ¿cómo sabía su nombre? O se lo habría
 dicho el novio de Demelza, que sería su colega. O su cuñado. Y el otro
 el suegro. Tina le sonrió. 
@@ -292,12 +292,12 @@ dijo, mirando a hipster de nuevo. Este miró al otro, como si pidiera
 permiso. El otro no dijo nada, pero se echó mano al bolsillo, sacó un
 móvil y miró la hora. 
 
-—Te invito a un café ahí al lado -, le dijo el hipster.
+—Te invito a uno -, le dijo el hipster.
 
 —Oye, ¿tú qué te has creído? - le contestó Tina, frunciendo los
 labios. 
 
-—Así vamos a la farmacia a por pastillas... y mientras, tu amiga... 
+—Las pastillas... Y mientras, tu amiga... 
 
 —Ah, sí. Vale, vale. Me pongo los pantalones y listo. - El viejuno,
 que parecía no haber sido consciente hasta ese momento de que llevaba
@@ -337,14 +337,15 @@ Café para dos
 -----
 
 Por un momento, Roble había creído que la chica iba a descubrir la
-situación antes de lo conveniente. El no hacerlo no sólo le evitaba
+situación antes de lo conveniente.  El que no lo hiciera hacerlo no sólo le evitaba
 hacer de consejero, que tendría que ser él porque Ciri era un inútil
 para prácticamente todo, sino que, además, podía aprovecharse de la
 situación sacándole algo de información a esta chica. Había un tercer
 además, que era la posibilidad de, eventualmente y con un poco de
 suerte, tirársela, lo que habría sido bastante improbable en caso de
 que su presencia estuviera asociada, desde el principio, con una
-compañera asesinada. 
+compañera asesinada. No es una buena forma de presentarte. “Hola, soy
+poli, tu compi ha muerto y, por casualidad, ¿no la habrás matado tu?“.
 
 —Menuda fiestuqui anoche, ¿eh?
 
@@ -354,9 +355,18 @@ semidesnatada, la mitad fría. - creo que vino todo el mundo, pero todo
 el mundo. Hubo un momento que no se podía ni salir ni entrar, gente
 por todos lados, en los pasillos, ni se oía la música, fíjate. No
 había música, ahora que lo pienso. Es lo guay de estar en un sitio tan
-solitario, que no molestas a nadie.
+solitario, que no molestas a nadie. 
 
-Habían tenido que andar unos cientos de metros, desde muy cerca del final de la carretera de
+Roble pensó que era una chica totalmente aceptable, si no el tipo de
+chica por el que se haría algo épico, como, por ejemplo, dejar a otra
+chica. En ese momento del día, el pelo no era su fuerte. El que
+hubiera salido a la calle sin dedicarle cierto tiempo más allá de un
+cepillado sin vigor tampoco le había favorecido. Pero era cóncava
+donde la evolución había hecho a las mujeres cóncavas y convexa en los
+sitios correspondientes. Perfectamente aceptable, por
+supuesto. Siempre que, claro. 
+
+Habían tenido que andar unos cien metros, desde muy cerca del final de la carretera de
 la Sierra hasta lo que, por la antigüedad de los edificios, parecía el antiguo final de la misma, donde sí había una
 cafetería abierta. Por el camino, un bloque de casas de dos pisos con
 carteles de “Se alquila”, “Se vende”, algunos ya caídos, persianas
@@ -528,14 +538,16 @@ por Jefatura y te damos el comunicado de prensa.
 
 —Si me dejas subir a hacer fotos.
 
-—No te dejo subir a hacer fotos.
+—No te dejo subir a hacer fotos - , dijo Ciriaco, haciendo a la vez un
+gesto con la mano. 
 
-—Entonces, aquí me tienes hasta que desfile hasta la última maruja del
+—Entonces, aquí me tienes hasta que desfile desde la primera a la última maruja del
 barrio. Y el artículo sobre incompetencia policial lo tienes
 garantizado como no  trinquéis al asesino esta misma tarde. Esta misma
 mañana. 
 
-—Pero ¿quień se ha muerto ni niño muerto? Es un registro rutinario.
+—Pero ¿quień se ha muerto ni niño muerto? - dijo Ciriaco, encogiendo
+los hombros y metiéndose las manos en los bolsillos - Es un registro rutinario.
 
 —Sí, y esa furgoneta es la del fresco del barrio, oye, qué bueno, lo
 del fresco del barrio, eso va a mi blog, fijo,  y esa señora que se
@@ -549,7 +561,8 @@ el suelo y seguir llorando. Quique y Ciriaco se fueron hacia ella,
 pero Ciríaco volvió el brazo con la palma hacia atrás y le impidió
 continuar.
 
-—Venga, coño, Ciri, dame vidilla, cojones. ¿Cuánto?
+—Venga, coño, Ciri, dame vidilla, cojones. ¿Cuánto? - le preguntó
+Quique, echándose la mano a la cartera en el bolsillo de atrás. 
 
 —Te voy a meter una hostia que te van a hacer palmas las orejas. Eres
 más tonto que lo que se sirve normalmente en periodista. ¿Cuándo te ha funcionado
@@ -565,7 +578,7 @@ humo.
 —Joder, Ciri, que está el de márketing del periódico encima nuestro,
 todo lo que huela a sangre son visitas a la web, venga, va, joder...
 
-Ciriaco no dijo nada. Tina seguía llorando en el suelo y la jueza y el
+Ciriaco no dijo nada. Tina había vuelto al suelo a llorar y la jueza y el
 secretario judicial se acercaban ya a la puerta y tenía que
 atenderlos. 
 
