@@ -1182,6 +1182,65 @@ La chica no ha muerto. No la he matado, corrijo. Volvemos al principio.
 
 Y ahora es algo personal.
 
+## Citas
+
+Realmente, Roble se sorprendió cuando recibió un mensaje de Tina
+indicándole dónde estaba y si se le quería unir. 
+
+“Estoy liado“ Le contestó. Nunca era una mala táctica hacerse el
+difícil, pero era cierto que le acababan de llegar los informes de la
+autopsia hacía una hora, a las nueve de la noche. La causa de la
+muerte era evidente, pero Roble aprendió que el deceso se había
+producido entre las dos y las tres de la mañana. 
+
+Así que se había dedicado a procesar y etiquetar todas las fotos de la
+fiesta publicadas en las diferentes redes sociales. No él,
+claro. Tenía una serie de servicios en la nube, algunos no exactamente
+legales, que hacían eso por ti. Recortar caras, buscar referencias,
+nombre de la cara y una línea temporal de lo publicado y de lo que se
+podía averiguar sin haber publicado. 
+
+Había habido veinticinco personas antes de las tres, veintitrés
+después. Varios sin identificar, porque aparecían en todas las fotos
+de espaldas o, simplemente, porque no tenían ninguna foto publicada
+que permitiera hacerlo.
+
+Como en el chiste en que la persona busca las llaves debajo de la
+farola porque hay más luz, estaba tratando de concentrarse en las
+personas que sí conocían. Un chico y una chica. El chico era joven, un
+estudiante Erasmus de Eslovenia, Jože Türk. Una incógnita. Tendría que
+ir a visitarlo. La chica, Lola Gil Mas, no era estudiante ni se
+dedicaba, aparentemente, a nada, aparecía con la camiseta de una
+discoteca, de azafata de congresos. Iría a visitarla. 
+
+Les había mandado sendos mensajes, preguntándoles cuando podía
+verlos. Todavía no había recibido respuesta. Pero había continuado
+trazando la red social de la chica que, eventualmente, había resultado
+muerta, a quién conocía, qué tipo de relación tenía. Y mirando fotos
+de la escena del crimen. De las que tomó el equipo de criminalística
+también pasó unas cuantas a sus contactos, lo que le reportó unos
+bitcoins más para su cuenta particular. 
+
+Todo eso tampoco le había reportado demasiado tiempo. Lo que estaba
+haciendo, realmente, era escribir. Quería acabar otra novela para
+publicarla antes de final de mes. Si no mantenías un ritmo de
+publicación continuo los lectores te acaban abandonando. Y él no
+quería que eso sucediera. 
+
+“Y yo sola en el [Jaraiz](http://detapeoporgranada.blogspot.com.es/2010/04/jaraiz-editado.html)“ Era un bar del Realejo, no demasiado lejos de
+la comisaría. “Tú verás.“
+
+Es posible que tuviera que salir ya. La víctima de la novela que
+estaba escribiendo contaba cómo veía, a través de la ventana de su
+vecino, una pared con una colección de sierras mecánicas. No todas
+ellas limpias. Limpias de polvo, se entendía. Pero quizás era muy
+obvio que ahora el vecino llegara y viera al otro vecino viéndolo...
+
+Necesitaba otro enfoque. Y si Tina no se lo daba, él sí iba a darle a
+ella algo. Le mandó un mensaje de vuelta.
+
+“Estoy ahí en quince minutos.“
+
 
 ## Escribir es sufrir
 
@@ -1204,4 +1263,6 @@ Paul Theroux.
 ## Agradecimientos
 
 A [Marcos Taracido](http://twitter.com/marcostaracido) por su buen
-humor y haber descubierto un error que a mi se me había pasado. 
+humor y haber descubierto un error que a mi se me había pasado (lo que
+debería ser obvio, porque si no se me hubiera pasado no habría sido un
+error). 
