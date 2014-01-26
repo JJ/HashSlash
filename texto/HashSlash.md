@@ -1244,6 +1244,17 @@ ella algo. Le mandó un mensaje de vuelta.
 
 “Estoy ahí en quince minutos.“
 
+## Mientras tanto, en un lugar de la periferia granadina
+
+Ciriaco hizo inventario de los miembros de su familia. En el salón, su
+mujer leía un bestseller. Su hijo mayor, en su cuarto, escuchaba
+música y hablaba por el móvil. Su hijo pequeño jugaba con la consola
+portátil. Cómo ha ido el día, bien, bien. sonrisas con arrugas, besos secos. 
+
+Se hizo un bocadillo de jamón y se lo tomó con una cerveza. Se fue a
+su cuarto y se puso la serie policíaca que estuvieran echando en ese
+momento, una serie coreana titulada “Mala gente“. Se durmió antes del
+informe del forense.
 
 ## Escribir es sufrir
 
@@ -1262,6 +1273,66 @@ veces.
 Escribe, conocerás mundo. No lo dijo nadie, pero podía haberlo dicho
 Paul Theroux.
 
+## Nuboso, con posibilidad de polvo
+
+Roble se puso los auriculares para que el móvil le leyera el completo
+el informa del forense según bajaba la cuesta para encontrarse con
+Tina. Nada de tóxicos más allá de lo esperable tras una fiesta, nada
+de signos de violación, ni rastros de maltrato habitual excepto una
+fractura soldada tiempo atrás. No había restos de piel bajo las uñas,
+saliva en ningún sitio. El asesino, o quizás la asesina, había
+llegado, la había apuñalado por la espalda y se había largado. O se
+había quedado a verla desangrarse, lentamente, viendo cómo el charco
+de sangre se expandía hasta que el corazón dejaba de latir y ya dejaba
+de expandirse con cada latido, simplemente fluía mansamente fuera del
+cuerpo. 
+
+Nada de eso estaba en la autopsia, claro. Pero era una imagen que le
+gustaba insertar, con diferentes variaciones, en las fantasías de las
+víctimas que eran los protagonistas de sus novelas. 
+
+La autopsia decía que había sido una sola cuchillada la que había
+causado la muerte. Lo que decía mucho de la calidad de los cuchillos
+del Ikea, aunque no era posible que lo incluyeran en su
+publicidad. ¿Qué nos decía todo esto del asesino?
+
+Roble tenía un app que perfilaba a los posibles sospechosos a partir
+de los datos conocidos del crimen. También había hecho
+[algún curso online sobre análisis de escena del crimen](http://www.strath.ac.uk/press/newsreleases/headline_746589_en.html). Pero
+aquí se podía aplicar el sentido común. Un ejercicio vano, porque el
+libro sobre el sentido común de los asesinos todavía no estaba
+escrito. Pero, ante la falta de experiencia de Roble en la
+investigación de asesinatos, era lo único a lo que podía recurrir. Así
+que decidió fijarse especialmente en el Erasmus esloveno. 
+
+Llegaba ya al Jaraiz, atravesando calles vacías con ventanas cerradas,
+callejones que olían a humedad y a meados. Entró en el Jaraiz, donde
+grupos animados sostenían cañas y frágiles copas de vino en las
+manos. Tina no estaba allí; giró a la izquierda desde la barra y entró
+a la habitación interior, donde había unas cuantas mesas. Casi todas
+estaban vacías y en la que estaba ocupada un grupo de personas de
+mediana edad se concentraban en sus móviles, en silencio sólo
+interrumpido por trinos de aviso que parecían o pájaros o los
+dinosaurios cantarinos de Parque Jurásico.
+
+Dio la vuelta para salir y se encontró con Tina, sonriendo.
+
+—¡Hola! 
+
+Roble abrió la boca, pero no dijo nada. Se le acercó y le dio un beso
+en una mejilla. 
+
+—Estaba en el cuarto de baño. - Le señaló una mesa vacía en la que
+había un vaso relleno de algo rosado, casi vacío. A su alrededor,
+escombros de mesa de bar: migas de pan, gotas de grasa, bolitas de servilletas,
+palillos de dientes partidos. La escena del crimen tras el asesinato
+de una tapa. 
+
+Roble se sentó.
+
+—Así que policía, ¿no? Eso mola. ¿Eso mola?
+
+Exacto, pensó Roble. Y precisamente por ese orden.
 
 ## Agradecimientos
 
