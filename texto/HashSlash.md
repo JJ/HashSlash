@@ -1375,7 +1375,7 @@ multilateral.
 
 —Muy chulo tu chaleco, por cierto. ¿Es de...?
 
-—A medida. De Londres - contestó Roble.
+—A medida. De Liverpool. - contestó Roble.
 
 —Y cuesta...
 
@@ -1412,6 +1412,33 @@ de Demelza y la propia Tina. Al lado de Demelza, Kevin levantó
 brevemente la cabeza de su móvil, sin llegar a saludar.
 
 —¡Hola!
+
+## Escribir es sufrir, la secuela
+
+Lituania está jodidamente lejos. Espera, eso es poco
+literario. Lituania está la hostia de lejos. 
+
+Tampoco es literario, pero es la pura verdad. Lo peor de los sitios
+que están lejos no es que lo estén. Sino que para llegar a ellos hay
+que pasar forzosamente por alguna etapa en la que hay una línea de
+bajo coste. O pagar varios miles de euros.
+
+Sin contrato editorial y con prisa. Vámonos a Lituania.
+
+Aunque los grandes escritores también lo son porque tienen grandes
+escritores a su
+sombra. [Escritores fantasma](http://es.wikipedia.org/wiki/Escritor_fantasma),
+los llaman. Ya los usaba para escribir las novelas que se publicaban
+bajo su nombre. ¿Por qué no usarlo para esto, esta obra literaria
+escrita sobre el papel en blanco de la realidad y con sangre? Lituania
+y asesinos a sueldo, si es que prácticamente una idea llevaba a la
+otra. 
+
+Envió desde el móvil un mensaje a sus contactos en México y Filipinas
+pidiéndoles nombres, “para documentación“. A los pocos minutos tenía
+los teléfonos de un par de ellos en Lituania. Y otros dos en
+Birmania. Nunca se sabía cuando podía venir bien un asesino a sueldo
+en Birmania.
 
 ## Agradecimientos
 
