@@ -1334,6 +1334,85 @@ Roble se sentó.
 
 Exacto, pensó Roble. Y precisamente por ese orden.
 
+## Despertar
+
+Ciriaco se despertó cuando su mujer entró en la cama. Se dio la vuelta
+y siguió durmiendo. 
+
+Volvió a despertarse cuando pasó el camión de la basura. Estuvo
+despierto durante unos diez minutos recordando el material que tenía
+que preparar para las clases del día siguiente en la academia. 
+
+Luego estuvo despierto otros diez minutos esperando que su mujer
+dejara de roncar. Al final consiguió que cambiara de postura y dejó de
+hacerlo. Se volvió a dormir.
+
+## Camino de la cama
+
+Roble creía en escuchar.
+
+Quizás, no, pensó Roble. Creía en oír.
+
+Quizás tampoco. Creía en la presencia física mientras otra persona
+hablaba con un cierto grado de atención prestado para insertar frases,
+gestos y palabras clave que encaminaran a la persona escuchada a donde
+él quería que fuera. Su cama. O la de ella. 
+
+Por el camino, pescaba alguna idea. Ella estudiaba algo relacionado
+con la química. O quería estudiarlo. O trabajaba en algo relacionado
+con la química, aunque cuando apuntó a esto último en una frase
+pareció arrepentirse de decirlo rápidamente. O quería escribir algo
+relacionado con ello.
+
+Aparte del fin último de la conversación, también le relajaba
+escuchar, porque no tenía que concentrarse en contestar o en elaborar
+historias de seducción. Había mujeres que se dejaban seducir por la
+palabra, por los gestos. Pero en muchas, la primera y por tanto única
+impresión era la que contaba. La conversación era, por tanto, sólo un
+juego en el que los dos sabían qué iba a ocurrir y los dos sabían que
+los dos sabían qué iba a ocurrir. Importaba poco que fuera uni o
+multilateral.
+
+—Muy chulo tu chaleco, por cierto. ¿Es de...?
+
+—A medida. De Londres - contestó Roble.
+
+—Y cuesta...
+
+—Cuesta. Sí - sonrió.
+
+Medio bitcoin, sí. Le había costado casi todo lo que había obtenido
+con las fotos de un asesinato-suicidio particularmente escatológico. Y
+eso que las había tomado desde el umbral de la puerta, sin asomarse
+más que para ver, en general, dónde se situaban los cadáveres. Luego
+había tenido que verlas en pantalla para seleccionar las más
+enfocadas, claro, pero no sentía las mismas náuseas si no las veía en
+directo. 
+
+Tina tampoco se vestía de baratillo. La e-pulsera que llevaba, el
+perfume, los zapatos, todo era caro. Sobre todo los zapatos. No algo
+fuera de lo habitual para una estudiante. Pero sí lo suficiente para
+llamar la atención de un policía. 
+
+—Y tu ropa... - introdujo Roble en la conversación. Tina contó qué le
+había hecho decidirse, dónde la había comprado, cuando... lo único que
+no dijo es de dónde sacaba el dinero. Ninguna referencia a fuente de
+ingresos, a llamada desesperada a los padres para aumentar el límite
+del crédito de la tarjeta, a las ganancias de un fin de semana en la
+barra de un bar o bailando en una discoteca. 
+
+Tendría que averiguarlo. Fue al servicio y desde allí solicitó a la
+juez Blanco la intervención de las cuentas electrónicas, llamadas del
+móvil y cuentas corrientes. Nada intrusivo y nada de lo que ella
+pudiera darse cuenta. Si en los alrededores de un asesinato había
+mucho dinero, algo siempre acababa oliendo a sangre. 
+
+Cuando volvió a donde estaba Tina, le recibieron las caras sonrientes
+de Demelza y la propia Tina. Al lado de Demelza, Kevin levantó
+brevemente la cabeza de su móvil, sin llegar a saludar.
+
+—¡Hola!
+
 ## Agradecimientos
 
 A [Marcos Taracido](http://twitter.com/marcostaracido) por su buen
