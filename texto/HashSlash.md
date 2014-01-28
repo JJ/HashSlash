@@ -237,8 +237,8 @@ tomado una manía especial al ojo derecho,  así que lo mantenía cerrado
 y, en ocasiones, tapado con la mano derecha para mayor seguridad.
 
 Había llegado un momento en que la resistencia a levantarse no había
-podido con la necesidad de buscar un ibuprofeno en algún sitio. No lo
-había encontrado en la cocina, quizás su compañera Demelza tuviera. O
+podido con la necesidad de ingerir  una dosis de ibuprofeno. No la
+había encontrado en la cocina. Quizás su compañera Demelza tuviera. O
 si no, quien quiera que anduviera por la casa, que llevaba oyendo el
 chirrido de los muebles del salón durante un rato. Efectivamente, allí
 había dos personas. 
@@ -280,7 +280,7 @@ de otra persona, pero qué diablos, las fotos la amaban. Estaba mona hasta con r
 cosa no tendríais, aspirina, gelocatil. ¿Oxicodona? - dijo, mirando al
 hipster. 
 
-— No, Tina, no tenemos nada, ya lo siento -, le dijo sonriendo. Seguro
+— No, Tina. Nada. Ya lo siento -, le dijo sonriendo. Seguro
 que estuvo en la fiesta, si no, ¿cómo sabía su nombre? O se lo habría
 dicho el novio de Demelza, que sería su colega. O su cuñado. Y el otro
 el suegro. Tina le sonrió. 
@@ -290,12 +290,12 @@ dijo, mirando a hipster de nuevo. Este miró al otro, como si pidiera
 permiso. El otro no dijo nada, pero se echó mano al bolsillo, sacó un
 móvil y miró la hora. 
 
-—Te invito a un café ahí al lado -, le dijo el hipster.
+—Te invito a uno -, le dijo el hipster.
 
 —Oye, ¿tú qué te has creído? - le contestó Tina, frunciendo los
 labios. 
 
-—Así vamos a la farmacia a por pastillas... y mientras, tu amiga... 
+—Las pastillas... Y mientras, tu amiga... 
 
 —Ah, sí. Vale, vale. Me pongo los pantalones y listo. - El viejuno,
 que parecía no haber sido consciente hasta ese momento de que llevaba
@@ -335,14 +335,15 @@ Café para dos
 -----
 
 Por un momento, Roble había creído que la chica iba a descubrir la
-situación antes de lo conveniente. El no hacerlo no sólo le evitaba
+situación antes de lo conveniente.  El que no lo hiciera hacerlo no sólo le evitaba
 hacer de consejero, que tendría que ser él porque Ciri era un inútil
 para prácticamente todo, sino que, además, podía aprovecharse de la
 situación sacándole algo de información a esta chica. Había un tercer
 además, que era la posibilidad de, eventualmente y con un poco de
 suerte, tirársela, lo que habría sido bastante improbable en caso de
 que su presencia estuviera asociada, desde el principio, con una
-compañera asesinada. 
+compañera asesinada. No es una buena forma de presentarte. “Hola, soy
+poli, tu compi ha muerto y, por casualidad, ¿no la habrás matado tu?“.
 
 —Menuda fiestuqui anoche, ¿eh?
 
@@ -352,9 +353,18 @@ semidesnatada, la mitad fría. - creo que vino todo el mundo, pero todo
 el mundo. Hubo un momento que no se podía ni salir ni entrar, gente
 por todos lados, en los pasillos, ni se oía la música, fíjate. No
 había música, ahora que lo pienso. Es lo guay de estar en un sitio tan
-solitario, que no molestas a nadie.
+solitario, que no molestas a nadie. 
 
-Habían tenido que andar unos cientos de metros, desde muy cerca del final de la carretera de
+Roble pensó que era una chica totalmente aceptable, si no el tipo de
+chica por el que se haría algo épico, como, por ejemplo, dejar a otra
+chica. En ese momento del día, el pelo no era su fuerte. El que
+hubiera salido a la calle sin dedicarle cierto tiempo más allá de un
+cepillado sin vigor tampoco le había favorecido. Pero era cóncava
+donde la evolución había hecho a las mujeres cóncavas y convexa en los
+sitios correspondientes. Perfectamente aceptable, por
+supuesto. Siempre que, claro. 
+
+Habían tenido que andar unos cien metros, desde muy cerca del final de la carretera de
 la Sierra hasta lo que, por la antigüedad de los edificios, parecía el antiguo final de la misma, donde sí había una
 cafetería abierta. Por el camino, un bloque de casas de dos pisos con
 carteles de “Se alquila”, “Se vende”, algunos ya caídos, persianas
@@ -526,14 +536,16 @@ por Jefatura y te damos el comunicado de prensa.
 
 —Si me dejas subir a hacer fotos.
 
-—No te dejo subir a hacer fotos.
+—No te dejo subir a hacer fotos - , dijo Ciriaco, haciendo a la vez un
+gesto con la mano. 
 
-—Entonces, aquí me tienes hasta que desfile hasta la última maruja del
+—Entonces, aquí me tienes hasta que desfile desde la primera a la última maruja del
 barrio. Y el artículo sobre incompetencia policial lo tienes
 garantizado como no  trinquéis al asesino esta misma tarde. Esta misma
 mañana. 
 
-—Pero ¿quień se ha muerto ni niño muerto? Es un registro rutinario.
+—Pero ¿quień se ha muerto ni niño muerto? - dijo Ciriaco, encogiendo
+los hombros y metiéndose las manos en los bolsillos - Es un registro rutinario.
 
 —Sí, y esa furgoneta es la del fresco del barrio, oye, qué bueno, lo
 del fresco del barrio, eso va a mi blog, fijo,  y esa señora que se
@@ -547,7 +559,8 @@ el suelo y seguir llorando. Quique y Ciriaco se fueron hacia ella,
 pero Ciríaco volvió el brazo con la palma hacia atrás y le impidió
 continuar.
 
-—Venga, coño, Ciri, dame vidilla, cojones. ¿Cuánto?
+—Venga, coño, Ciri, dame vidilla, cojones. ¿Cuánto? - le preguntó
+Quique, echándose la mano a la cartera en el bolsillo de atrás. 
 
 —Te voy a meter una hostia que te van a hacer palmas las orejas. Eres
 más tonto que lo que se sirve normalmente en periodista. ¿Cuándo te ha funcionado
@@ -563,7 +576,7 @@ humo.
 —Joder, Ciri, que está el de márketing del periódico encima nuestro,
 todo lo que huela a sangre son visitas a la web, venga, va, joder...
 
-Ciriaco no dijo nada. Tina seguía llorando en el suelo y la jueza y el
+Ciriaco no dijo nada. Tina había vuelto al suelo a llorar y la jueza y el
 secretario judicial se acercaban ya a la puerta y tenía que
 atenderlos. 
 
@@ -1170,6 +1183,7 @@ La chica no ha muerto. No la he matado, corrijo. Volvemos al principio.
 
 Y ahora es algo personal.
 
+<<<<<<< HEAD
 ## En otro mundo
 
 Clases. Más clases. El alumno que, al final de la clase, se queda
@@ -1190,6 +1204,77 @@ tenían razón en lo segundo que pensaban. Con los años que tenía y
 todavía no sabía cómo funcionaba el mundo.
 
 Y, a estas alturas, tampoco tenía ganas de ponerse a averiguarlo. 
+=======
+## Citas
+
+Realmente, Roble se sorprendió cuando recibió un mensaje de Tina
+indicándole dónde estaba y si se le quería unir. 
+
+“Estoy liado“ Le contestó. Nunca era una mala táctica hacerse el
+difícil, pero era cierto que le acababan de llegar los informes de la
+autopsia hacía una hora, a las nueve de la noche. La causa de la
+muerte era evidente, pero Roble aprendió que el deceso se había
+producido entre las dos y las tres de la mañana. 
+
+Así que se había dedicado a procesar y etiquetar todas las fotos de la
+fiesta publicadas en las diferentes redes sociales. No él,
+claro. Tenía una serie de servicios en la nube, algunos no exactamente
+legales, que hacían eso por ti. Recortar caras, buscar referencias,
+nombre de la cara y una línea temporal de lo publicado y de lo que se
+podía averiguar sin haber publicado. 
+
+Había habido veinticinco personas antes de las tres, veintitrés
+después. Varios sin identificar, porque aparecían en todas las fotos
+de espaldas o, simplemente, porque no tenían ninguna foto publicada
+que permitiera hacerlo.
+
+Como en el chiste en que la persona busca las llaves debajo de la
+farola porque hay más luz, estaba tratando de concentrarse en las
+personas que sí conocían. Un chico y una chica. El chico era joven, un
+estudiante Erasmus de Eslovenia, Jože Türk. Una incógnita. Tendría que
+ir a visitarlo. La chica, Lola Gil Mas, no era estudiante ni se
+dedicaba, aparentemente, a nada, aparecía con la camiseta de una
+discoteca, de azafata de congresos. Iría a visitarla. 
+
+Les había mandado sendos mensajes, preguntándoles cuando podía
+verlos. Todavía no había recibido respuesta. Pero había continuado
+trazando la red social de la chica que, eventualmente, había resultado
+muerta, a quién conocía, qué tipo de relación tenía. Y mirando fotos
+de la escena del crimen. De las que tomó el equipo de criminalística
+también pasó unas cuantas a sus contactos, lo que le reportó unos
+bitcoins más para su cuenta particular. 
+
+Todo eso tampoco le había reportado demasiado tiempo. Lo que estaba
+haciendo, realmente, era escribir. Quería acabar otra novela para
+publicarla antes de final de mes. Si no mantenías un ritmo de
+publicación continuo los lectores te acaban abandonando. Y él no
+quería que eso sucediera. 
+
+“Y yo sola en el [Jaraiz](http://detapeoporgranada.blogspot.com.es/2010/04/jaraiz-editado.html)“ Era un bar del Realejo, no demasiado lejos de
+la comisaría. “Tú verás.“
+
+Es posible que tuviera que salir ya. La víctima de la novela que
+estaba escribiendo contaba cómo veía, a través de la ventana de su
+vecino, una pared con una colección de sierras mecánicas. No todas
+ellas limpias. Limpias de polvo, se entendía. Pero quizás era muy
+obvio que ahora el vecino llegara y viera al otro vecino viéndolo...
+
+Necesitaba otro enfoque. Y si Tina no se lo daba, él sí iba a darle a
+ella algo. Le mandó un mensaje de vuelta.
+
+“Estoy ahí en quince minutos.“
+
+## Mientras tanto, en un lugar de la periferia granadina
+
+Ciriaco hizo inventario de los miembros de su familia. En el salón, su
+mujer leía un bestseller. Su hijo mayor, en su cuarto, escuchaba
+música y hablaba por el móvil. Su hijo pequeño jugaba con la consola
+portátil. Cómo ha ido el día, bien, bien. sonrisas con arrugas, besos secos. 
+
+Se hizo un bocadillo de jamón y se lo tomó con una cerveza. Tiró la cerveza que le sobraba, puso el cubierto en el lavavajillas y se fue a
+su cuarto y se puso la serie policíaca que estuvieran echando en ese
+momento, una serie coreana titulada “Mala gente“. Se durmió antes del
+informe del forense.
 
 ## Escribir es sufrir
 
@@ -1208,8 +1293,183 @@ veces.
 Escribe, conocerás mundo. No lo dijo nadie, pero podía haberlo dicho
 Paul Theroux.
 
+## Nuboso, con posibilidad de polvo
+
+Roble se puso los auriculares para que el móvil le leyera el completo
+el informa del forense según bajaba la cuesta para encontrarse con
+Tina. Nada de tóxicos más allá de lo esperable tras una fiesta, nada
+de signos de violación, ni rastros de maltrato habitual excepto una
+fractura soldada tiempo atrás. No había restos de piel bajo las uñas,
+saliva en ningún sitio. El asesino, o quizás la asesina, había
+llegado, la había apuñalado por la espalda y se había largado. O se
+había quedado a verla desangrarse, lentamente, viendo cómo el charco
+de sangre se expandía hasta que el corazón dejaba de latir y ya dejaba
+de expandirse con cada latido, simplemente fluía mansamente fuera del
+cuerpo. 
+
+Nada de eso estaba en la autopsia, claro. Pero era una imagen que le
+gustaba insertar, con diferentes variaciones, en las fantasías de las
+víctimas que eran los protagonistas de sus novelas. 
+
+La autopsia decía que había sido una sola cuchillada la que había
+causado la muerte. Lo que decía mucho de la calidad de los cuchillos
+del Ikea, aunque no era posible que lo incluyeran en su
+publicidad. ¿Qué nos decía todo esto del asesino?
+
+Roble tenía un app que perfilaba a los posibles sospechosos a partir
+de los datos conocidos del crimen. También había hecho
+[algún curso online sobre análisis de escena del crimen](http://www.strath.ac.uk/press/newsreleases/headline_746589_en.html). Pero
+aquí se podía aplicar el sentido común. Un ejercicio vano, porque el
+libro sobre el sentido común de los asesinos todavía no estaba
+escrito. Pero, ante la falta de experiencia de Roble en la
+investigación de asesinatos, era lo único a lo que podía recurrir. Así
+que decidió fijarse especialmente en el Erasmus esloveno. 
+
+Llegaba ya al Jaraiz, atravesando calles vacías con ventanas cerradas,
+callejones que olían a humedad y a meados. Entró en el Jaraiz, donde
+grupos animados sostenían cañas y frágiles copas de vino en las
+manos. Tina no estaba allí; giró a la izquierda desde la barra y entró
+a la habitación interior, donde había unas cuantas mesas. Casi todas
+estaban vacías y en la que estaba ocupada un grupo de personas de
+mediana edad se concentraban en sus móviles, en silencio sólo
+interrumpido por trinos de aviso que parecían o pájaros o los
+dinosaurios cantarinos de Parque Jurásico.
+
+Dio la vuelta para salir y se encontró con Tina, sonriendo.
+
+—¡Hola! 
+
+Roble abrió la boca, pero no dijo nada. Se le acercó y le dio un beso
+en una mejilla. 
+
+—Estaba en el cuarto de baño. - Le señaló una mesa vacía en la que
+había un vaso relleno de algo rosado, casi vacío. A su alrededor,
+escombros de mesa de bar: migas de pan, gotas de grasa, bolitas de servilletas,
+palillos de dientes partidos. La escena del crimen tras el asesinato
+de una tapa. 
+
+Roble se sentó.
+
+—Así que policía, ¿no? Eso mola. ¿Eso mola?
+
+Exacto, pensó Roble. Y precisamente por ese orden.
+
+## Despertar
+
+Ciriaco se despertó cuando su mujer entró en la cama. Se dio la vuelta
+y siguió durmiendo. 
+
+Volvió a despertarse cuando pasó el camión de la basura. Estuvo
+despierto durante unos diez minutos recordando el material que tenía
+que preparar para las clases del día siguiente en la academia. 
+
+Luego estuvo despierto otros diez minutos esperando que su mujer
+dejara de roncar. Al final consiguió que cambiara de postura y dejó de
+hacerlo. Se volvió a dormir.
+
+## Camino de la cama
+
+Roble creía en escuchar.
+
+Quizás, no, pensó Roble. Creía en oír.
+
+Quizás tampoco. Creía en la presencia física mientras otra persona
+hablaba con un cierto grado de atención prestado para insertar frases,
+gestos y palabras clave que encaminaran a la persona escuchada a donde
+él quería que fuera. Su cama. O la de ella. 
+
+Por el camino, pescaba alguna idea. Ella estudiaba algo relacionado
+con la química. O quería estudiarlo. O trabajaba en algo relacionado
+con la química, aunque cuando apuntó a esto último en una frase
+pareció arrepentirse de decirlo rápidamente. O quería escribir algo
+relacionado con ello.
+
+Aparte del fin último de la conversación, también le relajaba
+escuchar, porque no tenía que concentrarse en contestar o en elaborar
+historias de seducción. Había mujeres que se dejaban seducir por la
+palabra, por los gestos. Pero en muchas, la primera y por tanto única
+impresión era la que contaba. La conversación era, por tanto, sólo un
+juego en el que los dos sabían qué iba a ocurrir y los dos sabían que
+los dos sabían qué iba a ocurrir. Importaba poco que fuera uni o
+multilateral.
+
+—Muy chulo tu chaleco, por cierto. ¿Es de...?
+
+—A medida. De Liverpool. - contestó Roble.
+
+—Y cuesta...
+
+—Cuesta. Sí - sonrió.
+
+Medio bitcoin, sí. Le había costado casi todo lo que había obtenido
+con las fotos de un asesinato-suicidio particularmente escatológico. Y
+eso que las había tomado desde el umbral de la puerta, sin asomarse
+más que para ver, en general, dónde se situaban los cadáveres. Luego
+había tenido que verlas en pantalla para seleccionar las más
+enfocadas, claro, pero no sentía las mismas náuseas si no las veía en
+directo. 
+
+Tina tampoco se vestía de baratillo. La e-pulsera que llevaba, el
+perfume, los zapatos, todo era caro. Sobre todo los zapatos. No algo
+fuera de lo habitual para una estudiante. Pero sí lo suficiente para
+llamar la atención de un policía. 
+
+—Y tu ropa... - introdujo Roble en la conversación. Tina contó qué le
+había hecho decidirse, dónde la había comprado, cuando... lo único que
+no dijo es de dónde sacaba el dinero. Ninguna referencia a fuente de
+ingresos, a llamada desesperada a los padres para aumentar el límite
+del crédito de la tarjeta, a las ganancias de un fin de semana en la
+barra de un bar o bailando en una discoteca. 
+
+Tendría que averiguarlo. Fue al servicio y desde allí solicitó a la
+juez Blanco la intervención de las cuentas electrónicas, llamadas del
+móvil y cuentas corrientes. Nada intrusivo y nada de lo que ella
+pudiera darse cuenta. Si en los alrededores de un asesinato había
+mucho dinero, algo siempre acababa oliendo a sangre. 
+
+Cuando volvió a donde estaba Tina, le recibieron las caras sonrientes
+de Demelza y la propia Tina. Al lado de Demelza, Kevin levantó
+brevemente la cabeza de su móvil, sin llegar a saludar y sin llegar realmente a despegar los ojos de él.
+
+—¡Hola! - dijo Demelza. 
+
+## Escribir es sufrir, la secuela
+
+Lituania está jodidamente lejos. Espera, eso es poco
+literario. Lituania está la hostia de lejos. 
+
+Tampoco es literario, pero es la pura verdad. Lo peor de los sitios
+que están lejos no es que lo estén. Sino que para llegar a ellos hay
+que pasar forzosamente por alguna etapa en la que hay una línea de
+bajo coste. O pagar varios miles de euros.
+
+Sin contrato editorial y con prisa. Vámonos a Lituania.
+
+Aunque los grandes escritores también lo son porque tienen grandes
+escritores a su
+sombra. [Escritores fantasma](http://es.wikipedia.org/wiki/Escritor_fantasma),
+los llaman. Ya los usaba para escribir las novelas que se publicaban
+bajo su nombre. ¿Por qué no usarlo para esto, esta obra literaria
+escrita sobre el papel en blanco de la realidad y con sangre? Lituania
+y asesinos a sueldo, si es que prácticamente una idea llevaba a la
+otra. 
+
+Envió desde el móvil un mensaje a sus contactos en México y Filipinas
+pidiéndoles nombres, “para documentación“. A los pocos minutos tenía
+los teléfonos de un par de ellos en Lituania. Y otros dos en
+Birmania. Nunca se sabía cuando podía venir bien un asesino a sueldo
+en Birmania.
+
+## Interrogatorios a varias bandas
+
+—¿Quién la ha matado, entonces? - preguntó Demelza, mirándolo a los ojos.
+
+No le había sido fácil introducirse en la conversación. Tina hacía huir al silencio como los escritores independientes a la fama. Cuando encontaba uno, empezaba a llenarlo con palabras hasta que, derrotado, desaparecía y no asomaba su cabeza calva por los alrededores en unos días. Pero eventualmente, Tina tuvo que ausentarse a por una copa, otra copa, o algo que, en general, tenía que ver con el trasiego de líquidos por su cuerpo. El silencio retornó entonces haciendo sentirse a todo el mundo incómodo, así que Demelza, con esa frase, lo había pateado de forma contundente para que se batiera de nuevo en retirada. 
+
 
 ## Agradecimientos
 
 A [Marcos Taracido](http://twitter.com/marcostaracido) por su buen
-humor y haber descubierto un error que a mi se me había pasado. 
+humor y haber descubierto un error que a mi se me había pasado (lo que
+debería ser obvio, porque si no se me hubiera pasado no habría sido un
+error). 
