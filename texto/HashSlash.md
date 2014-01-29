@@ -1466,6 +1466,15 @@ en Birmania.
 
 No le había sido fácil introducirse en la conversación. Tina hacía huir al silencio como los escritores independientes a la fama. Cuando encontaba uno, empezaba a llenarlo con palabras hasta que, derrotado, desaparecía y no asomaba su cabeza calva por los alrededores en unos días. Pero eventualmente, Tina tuvo que ausentarse a por una copa, otra copa, o algo que, en general, tenía que ver con el trasiego de líquidos por su cuerpo. El silencio retornó entonces haciendo sentirse a todo el mundo incómodo, así que Demelza, con esa frase, lo había pateado de forma contundente para que se batiera de nuevo en retirada. 
 
+## Encontrando el camino
+
+La labor de un escritor es hacer que sus personajes encuentren su propio camino en el mundo que ha creado para ellos. Ese es el problema. Estos lituanos tenían ya el mundo creado y han sido incapaces de encontrar el camino que los lleve a una chica española, con pinta de chica española, que habla español y que va dejando todo tipo de pistas de por dónde anda por Vilna y las excursiones que hace a Riga e incluso cuando se acercó a Kiev a hacer a saber qué. 
+
+"Que no la encontramos, jefe", insisten, mientras simultáneamente piden dinero, más dinero, siempre dinero. Dinero que no tengo y que no tendré si no consigo el contrato. Porque uno escribe para que le quieran, pero yo no escribo, lo hacen por mi mis Ivanes y Alexis y Yaivan allende el Atlántico y además, lo hago por el dinero. Y la fama. Y el dinero. Para hacer una gran novela, hace falta una gran muerte.
+
+Y estos lituanos son incapaces de proporcionármela. Lo tendré que hacer yo solo.
+
+Y volando en bajo coste. 
 
 ## Agradecimientos
 
