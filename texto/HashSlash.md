@@ -193,14 +193,15 @@ FourSquare en el barrio y me acaba de poner un like en él. - Viene.
 chismecico, ¿no? - Roble puso cara de póker. - Un día nos vas a traer
 problemas. Verás tú. 
 
-—Será la primera vez que un periodista... - Roble no siguió,
+—Será la primera vez... - Roble no siguió,
 consciente de la inutilidad de discutir con Ciriaco y también de la de
 cualquier consejo que Ciriaco le hiciera al respecto.
 
 —Será la primera vez que te cogen el chisme y te lo estrellan en los
-morros -, contestó Ciriaco. 
+morros -, le contestó Ciriaco. 
 
-Roble no dijo nada y siguió tecleando, cambiando de aplicación.
+Roble no dijo nada y siguió golpeando con la yema de los dedos y la
+ocasional uña la pantalla de su móvil, cambiando de aplicación.
 
 —Mira, dicen que... - movió el
 pulgar verticalmente, pasando algo por la pantalla - el color de la
@@ -208,15 +209,17 @@ sangre - movió pulgar y corazón, ampliando algo - indica que... es de
 verdad. 
 
 Dijo esto último bajando la voz, consciente del #fail y #vayanovedad
-implícito en sus palabras. También se quejaban del tratamiento Lomo de
+implícito en sus palabras. Pero los comentaristas de la imagen no sólo
+habían hecho eso. También se quejaban del tratamiento Lomo de
 la foto. Poco más. Los seguidores de Dexter parecían no estar muy
-espabilados a estas horas de la mañana. 
-Ciriaco se volvió a sentar, diciendo
-por el camino “Afú” varias veces, en el
-sillón y se puso a escribir en un bloc pequeñito, con una portada a
+espabilados a estas horas de la mañana.
+
+Ciriaco se volvió a sentar en el
+sillón, diciendo
+por el camino “Afú” varias veces,  y se puso a escribir en un bloc pequeñito, con una portada a
 cuadros y un alambre uniendo las hojas por su parte superior. 
 
-Se comenzaron a oir ruidos en dirección contraria a la que se
+Se comenzaron a oir ruidos en dirección opuesta a la que se
 encontraba el cadáver. Los dos giraron la cabeza en esa
 dirección. Luego se miraron el uno al otro y finalmente siguieron uno
 escribiendo en el móvil y otro en el bloc.
@@ -231,12 +234,12 @@ Despertar
 ---
 
 Tina avanzó por el pasillo con una mano en la cabeza, tratando de
-contener el dolor que le latía y que amenazaba por expulsarle los
+contener el dolor que le latía ahí dentro y que amenazaba por expulsarle los
 globos oculares fuera del cráneo. Ahora mismo parecía que le había
 tomado una manía especial al ojo derecho,  así que lo mantenía cerrado
 y, en ocasiones, tapado con la mano derecha para mayor seguridad.
 
-Había llegado un momento en que la resistencia a levantarse no había
+Habría querido seguir en la cama, pero había llegado un momento en que la resistencia a levantarse no había
 podido con la necesidad de ingerir  una dosis de ibuprofeno. No la
 había encontrado en la cocina. Quizás su compañera Demelza tuviera. O
 si no, quien quiera que anduviera por la casa, que llevaba oyendo el
