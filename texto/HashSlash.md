@@ -22,7 +22,9 @@ víctima - dijo, chasqueando la lengua.
 Roble puso la boca en posición de "Ah", pero no dijo nada.
 
 —No estarás poniendo nada de esto - hizo un gesto señalando a su
-alrededor con la mano - en la Internet esa - Ciriaco hizo un
+alrededor con la mano - en la Internet esa.
+
+Ciriaco hizo un
 pequeño esfuerzo para levantarse del sillón desfondado en el que se
 encontraba sentado.
 
@@ -35,7 +37,7 @@ nublado y la temperatura en el interior del piso era escasamente
 diferente de la que hacía al final de la carretera de la Sierra. En
 ninguno de los dos casos tenía más de una cifra significativa. 
 
-—Bueno, en realidad, sí -, dijo Roble, levantando la cara del móvil y
+—Bueno, en realidad... -, dijo Roble, levantando la cara del móvil y
 poniendo una cara similar a esta :-) - ¿Qué cuchillo dices? 
 
 —El de la muerta. - Hizo una pausa e intentó levantarse de nuevo,
@@ -58,7 +60,7 @@ sabría.
 
 Roble vio que llevaba veinticinco ya. Y en Twitter casi los mismos. 
 
-—El cuchillo. De Ikea. - dijo Ciriaco, haciendo que el ritmo de tecleo
+—Lo que te decía, el cuchillo. De Ikea. - dijo Ciriaco, haciendo que el ritmo de tecleo
 de Roble variara.
 
 —[Gynnsam](http://www.ikea.com/es/es/catalog/products/50134950/)-,
@@ -66,9 +68,9 @@ dijo Roble, mostrándole de nuevo la pantalla del móvil a
 Ciriaco. Ciriaco lo cogió y se alzó las gafas, entornando a la vez un
 poco los ojos.
 
-—No, el mango es así como triangular, y no tiene las tachuelas -. Se
-levantó con el móvil en la mano y fue a otra habitación. Se oyó el
-chasquido del móvil al hacer una foto. Roble frunció los labios y alzó
+—No, el mango es así como triangular, y no tiene las tachuelas -, dijo Ciriaco. Se
+levantó con el móvil en la mano y fue a la habitación donde se encontraba el cadáver. Se oyó el
+chasquido de la aplicación al hacer una foto. Roble frunció los labios y alzó
 las cejas.
 
 —Has aprendido -, dijo Roble a modo de halago. Ciriaco simplemente
@@ -82,12 +84,12 @@ acercarse.
 que hacer arquitectura? Por cierto, que ha saltado un mensaje de
 alguien que quería comprar no sé qué. 
 
-Roble eludió la conversión de su nombre en apellido para buscar el
+Roble eludió la conversión de su nombre singular en apellido plural para buscar el
 mensaje del que hablaba. Efectivamente, un blog americano de crímenes
 reales le compraba las fotos. Ahora no le quedaría otro remedio que
 acercarse a la chica.
 
-—Ah, sí, un comprador que se interesa por mis novelas -, le dijo a
+—Ah, sí. Mis novelas -, le dijo a
 Ciriaco. 
 
 —Pues decía no sé qué de fotos. Joder, Robles, que la policía no es
@@ -96,8 +98,8 @@ pero si te cae un paquete a mi no me busques.
 
 Roble seguía manipulando el teléfono.
 
-—Pues no funciona el app de Ikea que te permite buscar por imágenes -,
-dijo Roble, que seguía pegado al teléfono.- Normal, por otro lado. 
+—El app de Ikea. No funciona. -,
+dijo Roble, que seguía pegado al teléfono.- Normal. 
 
 —¿Hay un app para eso? - Preguntó Ciriaco, curioso.
 
@@ -108,19 +110,18 @@ dijo Roble, que seguía pegado al teléfono.- Normal, por otro lado.
   [Klingsbo](http://www.ikea.com/es/es/catalog/products/90128565/) -,
   dijo en voz alta. 
   
-  — ¿Y el resto? Espera, no me lo digas. Rebotados del piso de
+  — ¿Y el resto? Espera, no me lo digas. Rebotados desde el piso de
   Almuñécar... - Roble no contestó. Su móvil seguía emitiendo sonidos
   y él seguía tecleando. - No hay app - dijo aaahhh - para eso,
   ¿verdad? 
   
   Ciríaco se rió de su propia gracia. 
   
- — Paco, el secretario judicial, - dijo Roble.- Va a tardar en
- venir. ¿Unas fotos más mientras?
+ — Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Ciriaco. 
  
  — ¿Y por qué no las echas tú con tu polla? - le contestó Ciriaco,
  sonriendo abiertamente y extendiendo la mano para recibir el
- móvil. Roble también sonrió y lo asumió como parte de esa seña de
+ móvil. Roble también sonrió, asumiendo la respuesta como parte de esa seña de
  identidad llamada *malafollá granaína* que todavía, después de dos
  años de destino, seguía tratando de aprender. 
  
@@ -195,14 +196,15 @@ FourSquare en el barrio y me acaba de poner un like en él. - Viene.
 chismecico, ¿no? - Roble puso cara de póker. - Un día nos vas a traer
 problemas. Verás tú. 
 
-—Será la primera vez que un periodista... - Roble no siguió,
+—Será la primera vez... - Roble no siguió,
 consciente de la inutilidad de discutir con Ciriaco y también de la de
 cualquier consejo que Ciriaco le hiciera al respecto.
 
 —Será la primera vez que te cogen el chisme y te lo estrellan en los
-morros -, contestó Ciriaco. 
+morros -, le contestó Ciriaco. 
 
-Roble no dijo nada y siguió tecleando, cambiando de aplicación.
+Roble no dijo nada y siguió golpeando con la yema de los dedos y la
+ocasional uña la pantalla de su móvil, cambiando de aplicación.
 
 —Mira, dicen que... - movió el
 pulgar verticalmente, pasando algo por la pantalla - el color de la
@@ -210,15 +212,17 @@ sangre - movió pulgar y corazón, ampliando algo - indica que... es de
 verdad. 
 
 Dijo esto último bajando la voz, consciente del #fail y #vayanovedad
-implícito en sus palabras. También se quejaban del tratamiento Lomo de
+implícito en sus palabras. Pero los comentaristas de la imagen no sólo
+habían hecho eso. También se quejaban del tratamiento Lomo de
 la foto. Poco más. Los seguidores de Dexter parecían no estar muy
-espabilados a estas horas de la mañana. 
-Ciriaco se volvió a sentar, diciendo
-por el camino “Afú” varias veces, en el
-sillón y se puso a escribir en un bloc pequeñito, con una portada a
+espabilados a estas horas de la mañana.
+
+Ciriaco se volvió a sentar en el
+sillón, diciendo
+por el camino “Afú” varias veces,  y se puso a escribir en un bloc pequeñito, con una portada a
 cuadros y un alambre uniendo las hojas por su parte superior. 
 
-Se comenzaron a oir ruidos en dirección contraria a la que se
+Se comenzaron a oir ruidos en dirección opuesta a la que se
 encontraba el cadáver. Los dos giraron la cabeza en esa
 dirección. Luego se miraron el uno al otro y finalmente siguieron uno
 escribiendo en el móvil y otro en el bloc.
@@ -233,12 +237,12 @@ Despertar
 ---
 
 Tina avanzó por el pasillo con una mano en la cabeza, tratando de
-contener el dolor que le latía y que amenazaba por expulsarle los
+contener el dolor que le latía ahí dentro y que amenazaba por expulsarle los
 globos oculares fuera del cráneo. Ahora mismo parecía que le había
 tomado una manía especial al ojo derecho,  así que lo mantenía cerrado
 y, en ocasiones, tapado con la mano derecha para mayor seguridad.
 
-Había llegado un momento en que la resistencia a levantarse no había
+Habría querido seguir en la cama, pero había llegado un momento en que la resistencia a levantarse no había
 podido con la necesidad de ingerir  una dosis de ibuprofeno. No la
 había encontrado en la cocina. Quizás su compañera Demelza tuviera. O
 si no, quien quiera que anduviera por la casa, que llevaba oyendo el
@@ -1185,6 +1189,28 @@ La chica no ha muerto. No la he matado, corrijo. Volvemos al principio.
 
 Y ahora es algo personal.
 
+<<<<<<< HEAD
+## En otro mundo
+
+Clases. Más clases. El alumno que, al final de la clase, se queda
+preguntar por las claves, las verdaderas claves, para sacar adelante
+las oposiciones. ¿Alguien que conocer? ¿Alguien que sobornar? Ciriaco
+no se cansaba de decirles que las oposiciones, como el trabajo
+policial, eran simplemente cuestión de constancia y de esfuerzo. A
+veces, los jovenzuelos y a veces no tanto que componían el alumnado,
+lo miraban y se sonreían como diciendo "Sí, como si nos lo fueras a
+contar en caso de saberlo", o quizás "Infeliz, los años que tiene y
+todavía no sabe cómo funciona el mundo".
+
+Ciriaco, en realidad, pensaba que tenían razón. Si lo supiera, no se
+lo iba a contar. Pero él entró en la policía de esa forma, muchos años
+de academia y de gimnasio, muchas horas de juventud perdidas. Si había
+otra forma, él no lo sabía. Pero no creía que la hubiera.  Por eso
+tenían razón en lo segundo que pensaban. Con los años que tenía y
+todavía no sabía cómo funcionaba el mundo.
+
+Y, a estas alturas, tampoco tenía ganas de ponerse a averiguarlo. 
+=======
 ## Citas
 
 Realmente, Roble se sorprendió cuando recibió un mensaje de Tina
@@ -1251,7 +1277,7 @@ mujer leía un bestseller. Su hijo mayor, en su cuarto, escuchaba
 música y hablaba por el móvil. Su hijo pequeño jugaba con la consola
 portátil. Cómo ha ido el día, bien, bien. sonrisas con arrugas, besos secos. 
 
-Se hizo un bocadillo de jamón y se lo tomó con una cerveza. Se fue a
+Se hizo un bocadillo de jamón y se lo tomó con una cerveza. Tiró la cerveza que le sobraba, puso el cubierto en el lavavajillas y se fue a
 su cuarto y se puso la serie policíaca que estuvieran echando en ese
 momento, una serie coreana titulada “Mala gente“. Se durmió antes del
 informe del forense.
@@ -1409,9 +1435,9 @@ mucho dinero, algo siempre acababa oliendo a sangre.
 
 Cuando volvió a donde estaba Tina, le recibieron las caras sonrientes
 de Demelza y la propia Tina. Al lado de Demelza, Kevin levantó
-brevemente la cabeza de su móvil, sin llegar a saludar.
+brevemente la cabeza de su móvil, sin llegar a saludar y sin llegar realmente a despegar los ojos de él.
 
-—¡Hola!
+—¡Hola! - dijo Demelza. 
 
 ## Escribir es sufrir, la secuela
 
@@ -1439,6 +1465,22 @@ pidiéndoles nombres, “para documentación“. A los pocos minutos tenía
 los teléfonos de un par de ellos en Lituania. Y otros dos en
 Birmania. Nunca se sabía cuando podía venir bien un asesino a sueldo
 en Birmania.
+
+## Interrogatorios a varias bandas
+
+—¿Quién la ha matado, entonces? - preguntó Demelza, mirándolo a los ojos.
+
+No le había sido fácil introducirse en la conversación. Tina hacía huir al silencio como los escritores independientes a la fama. Cuando encontaba uno, empezaba a llenarlo con palabras hasta que, derrotado, desaparecía y no asomaba su cabeza calva por los alrededores en unos días. Pero eventualmente, Tina tuvo que ausentarse a por una copa, otra copa, o algo que, en general, tenía que ver con el trasiego de líquidos por su cuerpo. El silencio retornó entonces haciendo sentirse a todo el mundo incómodo, así que Demelza, con esa frase, lo había pateado de forma contundente para que se batiera de nuevo en retirada. 
+
+## Encontrando el camino
+
+La labor de un escritor es hacer que sus personajes encuentren su propio camino en el mundo que ha creado para ellos. Ese es el problema. Estos lituanos tenían ya el mundo creado y han sido incapaces de encontrar el camino que los lleve a una chica española, con pinta de chica española, que habla español y que va dejando todo tipo de pistas de por dónde anda por Vilna y las excursiones que hace a Riga e incluso cuando se acercó a Kiev a hacer a saber qué. 
+
+"Que no la encontramos, jefe", insisten, mientras simultáneamente piden dinero, más dinero, siempre dinero. Dinero que no tengo y que no tendré si no consigo el contrato. Porque uno escribe para que le quieran, pero yo no escribo, lo hacen por mi mis Ivanes y Alexis y Yaivan allende el Atlántico y además, lo hago por el dinero. Y la fama. Y el dinero. Para hacer una gran novela, hace falta una gran muerte.
+
+Y estos lituanos son incapaces de proporcionármela. Lo tendré que hacer yo solo.
+
+Y volando en bajo coste. 
 
 ## Agradecimientos
 
