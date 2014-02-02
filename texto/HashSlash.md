@@ -1466,6 +1466,118 @@ en Birmania.
 
 No le había sido fácil introducirse en la conversación. Tina hacía huir al silencio como los escritores independientes a la fama. Cuando encontaba uno, empezaba a llenarlo con palabras hasta que, derrotado, desaparecía y no asomaba su cabeza calva por los alrededores en unos días. Pero eventualmente, Tina tuvo que ausentarse a por una copa, otra copa, o algo que, en general, tenía que ver con el trasiego de líquidos por su cuerpo. El silencio retornó entonces haciendo sentirse a todo el mundo incómodo, así que Demelza, con esa frase, lo había pateado de forma contundente para que se batiera de nuevo en retirada. 
 
+—No habrás sido tú, Roble -, dijo Tina, que volvió precisamente en ese
+momento. Tocándose la nariz. La gente se toca la nariz por todo tipo
+de razones válidas, pensó Roble. Incluso cuando salen del cuarto de
+baño. También hay todo tipo de razones válidas para preguntarle a los
+de Narcóticos qué sabían de la tal Tina. Que probablemente no sabrían
+nada. Pero sabrían quién podría saber o no. Al final, tendría que
+gastar sus duramente ganados bitcoins, es decir, duramente ganados
+como en que se los ha ganado el mismo Roble fuera de nómina en asuntos
+que están, o a veces no, relacionados con la misma, en preguntarle a alguien en
+`tupregunta.onion`, que tenían el lema *La información quiere ser
+cara*. 
+
+Pero sólo lo haría si podía ayudar a encontrar al asesino. O le tocaba
+mucho las narices. Que, ahora mismo, no parecía ser el caso; le
+lanzaba puyas, probando, jugando un juego que, antes de que apareciera
+Demelza, parecía que tenía un fin y un final claro. Ahora, todas las
+opciones estaban abiertas. Pero la partida había empezado y las cartas
+estaban encima de la mesa. Había que jugarlas, porque el que se sale
+de la partida es un rajado y además si no lo haces la metáfora se jode
+por las costuras. 
+
+—La verdad es que... -, hizo una pausa, esperando que Tina lo
+interrumpiera. No lo hizo, a su pesar. Ella y Demelza lo miraban con
+curiosidad, Tina parpadeando frenéticamente, en lo que podía ser un
+mensaje o un simple tic nervioso. No le acabó de gustar a Roble esa
+expectación, ni ese aparentemente consciente esfuerzo de Tina en no
+hacer lo que en ella resultaba natural, llenar huecos. Habría quedado
+bastante estúpido si no hubiera terminado, así que siguió -... Tenemos
+un perfil. Pistas. No mucho. 
+
+—Durante la fiesta. Tuvo que ser durante la fiesta. ¿Es que no viste a
+nadie raro, Roble? Con tu olfato de policía, porque los policías
+tenéis olfato, no, aunque, la verdad, al rato de fiesta yo estaba
+como, ¿quién huele así? Por favor, qué diablos, quién los traería, y,
+por cierto, ¿quién te trajo a ti?
+
+—¿Yo? - preguntó Roble - Yo no...
+
+—¿No? Entonces ¿no eres amigo de esta? - dijo, señalando a Demelza. En
+ese momento, sin razón aparente, el Kevin emitió una risita -
+Entonces, esta mañana... 
+
+Paró un instante y se quedó mirando con los ojos abiertos a
+Demelza. Que le contestó con una mirada de envergadura ocular similar,
+pero de intención totalmente diferente. Se produjo entonces un
+intercambio de gestos y miradas que Roble no tuvo excesivo problema en
+entender. Y que la persona que tenía por improbable nombre Kevin nunca
+entendería. 
+
+El intercambio terminó con Demelza volviendo a la carga.
+
+—Quien fuera, ¿a quién quería matar? ¿A mi?
+
+Roble lo consideró. Era posible, claro. Chica, parecida, quizás de
+espaldas, en la habitación, una persona que no la conoce
+personalmente, que evidentemente quiere terminar el trabajo, o que no
+pide en carnet de identidad, como es natural, llega, un golpe certero
+y todo termina así, de repente, sales por donde has venido, nadie te
+ve, nadie te conoce... Pero también era posible que quisieran matar
+precisamente a esa persona. O a otra totalmente diferente. 
+
+—No es descartable.
+
+—Pues si quiere una versión dos punto cero, lo va a tener
+jodido. Porque ya no estoy aquí.
+
+—¿Y dónde estás, guapetona? Yo te veo muy, como te diría, vamos, lo
+que se dice, aquí - dijo, riéndose y dando golpes con los dedos en el
+borde de la mesa.
+
+—Kevin tiene unos amigos que te van geolocalizando contenidos donde tú
+quieras. Quieres que te lancen un tuit desde Birmania, allí te
+llevan. 
+
+Kevin la miró y posó la barbilla sobre su mano. Escuchando. Roble era
+bueno escuchando, no sólo por el hecho físico de hacerlo, que eso lo
+hace cualquiera, sino porque transmitía desde su postura, su mirada,
+sus sonidos guturales de continuación del discurso, "Te estoy
+escuchando". En el gremio de escuchadores se habría llevado el premio
+de Escuchador Más Valioso. Si no eso, el que más polvos había
+conseguido escuchando. Que tampoco era mal mérito.
+
+—Lo bueno de estos tíos - , "Son buenos", intervino Kevin, con
+brevedad y hablando muy rápido, como esas voces que de repente se
+cruzan en la radio y que dicen "estroncio, rubidio y cesio" en medio
+de una retransmisión deportiva, dejándode la impresión de que, aunque
+no parece que haya nadie más ahí, entre tú y el que habla, sí lo hay y
+puede aparecer en el momento más inesperado -, es que son capaces de
+diseñarte un itinerario completo, sin ningún hueco, nada, si cancelan
+un vuelo que tenían en el itinerario lo saben. Cobran caros. En una
+cosa que se llama bitcoins, ¿lo conocéis? - Todos pusieron cara de
+póker, y Kevin dijo de nuevo, "bitcoins" -, pero son colegas y lo
+hacen así, *pro bono*, aunque les tengo que hacer publicidad, así que
+si conoces a alguien...
+
+—¡Yo misma! -, dijo Tina. -A veces es como, caray, me quiero ir de aquí pero luego,
+joder, es como, para qué, si aquí lo tengo todo, tengo mi... bueno,
+mis cosas, ya sabes...
+
+—A alguien que quiera pagar...
+
+Tina sólo se rió, pero inmediatamente empezó a hablarle a Roble de
+algo llamado nanomateriales, lo que no tardó en provocar bostezos a
+Demelza que se propagaron inmediatamente a Kevin. Desaparecieron diez
+minutos más tarde, y cuando Demelza le dio dos vesos a Roble le dijo,
+cuando sus labios estaban todavía cerca de su oreja
+
+—Nos vemos pronto. 
+
+
+
+
 ## Encontrando el camino
 
 La labor de un escritor es hacer que sus personajes encuentren su propio camino en el mundo que ha creado para ellos. Ese es el problema. Estos lituanos tenían ya el mundo creado y han sido incapaces de encontrar el camino que los lleve a una chica española, con pinta de chica española, que habla español y que va dejando todo tipo de pistas de por dónde anda por Vilna y las excursiones que hace a Riga e incluso cuando se acercó a Kiev a hacer a saber qué. 
