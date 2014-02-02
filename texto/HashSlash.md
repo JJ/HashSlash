@@ -1374,7 +1374,7 @@ hacerlo. Se volvió a dormir.
 
 Roble creía en escuchar.
 
-Quizás, no, pensó Roble. Creía en oír.
+Quizás no, pensó Roble. Creía en oír.
 
 Quizás tampoco. Creía en la presencia física mientras otra persona
 hablaba con un cierto grado de atención prestado para insertar frases,
