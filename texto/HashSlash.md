@@ -41,14 +41,14 @@ poniendo una cara similar a esta :-) - ¿Qué cuchillo dices?
 sin lograrlo. - Espera, ¿qué coño has puesto? Afú, qué tropa. - Roble aprovechó la pausa para dejar el móvil en su
 regazo y hacer copa con las manos para calentárselas. 
 
-—Nada ,- sólo un poco de #escenadelcrimen en Instagram.  Ya tenía más
+—Nada,- sólo un poco de #escenadelcrimen en Instagram.  Ya tenía más
 de veinte *likes*. Ciriaco hizo un esfuerzo para intentar ver qué era lo que
 había en la pantalla. Se distinguían borrones rojos y figuras
 geométricas de color naranja. Poco más. Ninguna cara, nada
 distintivo que permitiera reconocer ni al sitio, ni a la
 víctima. Menos mal. 
 
-—Cuidao con la polla... - Frunció un poco el ceño haciendo minería de
+—Cuidao con la polla... - Frunció ligeramente el ceño haciendo minería de
 datos de sus memorias de la academia de policía, casi treinta años
 atrás, a ver qué decían sobre el tema de publicar fotos de escenas del
 crimen. No encontró nada. El propio Roble, que vaya tela marinera de
@@ -67,7 +67,7 @@ poco los ojos.
 
 —No, el mango es así como triangular, y no tiene las tachuelas -, dijo Ciriaco. Se
 levantó con el móvil en la mano y fue a la habitación donde se encontraba el cadáver. Se oyó el
-chasquido de la aplicación al hacer una foto. Roble frunció los labios y alzó
+chasquido de la aplicación al hacer una foto. Roble arrugó los labios y alzó
 las cejas.
 
 —Has aprendido -, dijo Roble a modo de halago. Ciriaco simplemente
@@ -117,27 +117,27 @@ dijo Roble, que seguía pegado al teléfono.- Normal.
  — Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Ciriaco. 
  
  — ¿Y por qué no las echas tú con tu polla? - le contestó Ciriaco,
- sonriendo abiertamente y extendiendo la mano para recibir el
+ socarrón,  extendiendo la mano para recibir el
  móvil. Roble también sonrió, asumiendo la respuesta como parte de esa seña de
  identidad llamada *malafollá granaína* que todavía, después de dos
  años de destino, seguía tratando de aprender. 
  
 Ciriaco volvió al cabo de un minuto. Sus pies se pegaban al suelo,
-recubierto de una paga pegajosa compuesta de capas de mugre y de
-bebidas alcohólicas o no. Le pasó el móvil a Roble. Este
-empezó a pasar las fotos y de repente fue consciente del olor a
+recubierto de una sustancia pegajosa compuesta de capas de mugre y de
+diversos hidratos de carbono. Le pasó el móvil a Roble. Este
+empezó a pasar las fotos, sin pararse demasiado en cada una, y de repente fue consciente del olor a
 carnicería que venía de la habitación donde la muerta,
 irremediablemente, se descomponía. Le vino una náusea pero la combatió
-al recordar que el cuarto de baño estaba, justamente, al lado de la
+al recordar que tendría que pasar por el cuarto de baño que estaba, justamente, al lado de la
 habitación donde se encontraba el cadáver. Ciriaco le dio una palmada
 en la espalda, lo que casi hizo que se le volviera a salir el vómito. 
 
 —La compañera de piso -, dijo Roble. Seguía durmiendo. Dos chicas en
 un piso de tres dormitorios, que podían permitirse porque estaba lejos
-de cualquier facultad y prácticamente de todo.
+de cualquier facultad y prácticamente de todo. Aún así, había vislumbrado en las fotos mobiliario que estaba muy por encima de los desechos y muebles montables que había en la zona común. 
 
-—Ahí se puede quedar. Yo paso de despertarla. ¿Para darle el mal rato? Yo paso de consolar a niñatas. Al menos, de
-consolarlas así - le dio un codazo al joven Roble, que una vez más le
+—Ahí se puede quedar. Yo paso de despertarla -, dijo Ciriaco. ¿Para darle el mal rato y que le dé un jamacuco?? Yo paso de consolar a niñatas. Al menos, de
+consolarlas así - le dio un codazo al joven Roble, que le
 volvió a traer la náusea a la garganta - Bastante hemos tenido con el
 novio. Menudo apollardao.
 
@@ -145,18 +145,18 @@ novio. Menudo apollardao.
 buscándolo en el móvil.
 
 —Tontolaba, agilipoyao de la vida, persona que lleva ya dos años
-trabajando en Granada y no sabe lo que significa la palabra “apollardao“ -, dijo Ciriaco. - Kevin, ¿qué
+trabajando en Granada y no sabe lo que significa la palabra “apollardao“ -, dijo Ciriaco. - Además, se llama Kevin, ¿qué
 nombre es ese, cojones? Nombre de apollardao. 
 
 Roble miró en la
 pantalla. [Apollardao](http://www.frikipedia.es/friki/Diccionario_granadino). Vale. No
 tiene nada que ver con el tamaño del miembro. Con el que, en todo
 caso, no tenía por qué estar familiarizado Ciriaco en el caso de este
-tal Kevin. 
+tal Kevin. Al menos a estas alturas de la investigación.
 
-—Veredicto: ¿inocente? - preguntó Roble. 
+—¿Inocente? - preguntó Roble. 
 
-—No tengo ni puta idea, Roble. Pero me extrañaría. Cuando salga del
+—Inocente lo es de por sí. Pero también puede ser, digo yo, que sea un mosquito muerto de los que las mata callando. Dicho esto como figurativamente hablando, vamos, porque el tío bien que chillaba. Vamos, que no tengo ni puta idea, Roble. Pero me extrañaría. Cuando salga del
 Clínico le preguntaremos. Pero vamos, que no. 
 
 —¿Por?
@@ -174,11 +174,11 @@ altura o un poco más bajo.
 
 —Y eso lo sabes porque...
 
-—Coño, Robles, porque me he visto el NCIS y el CSI y toda serie de
-maderos que echen por la tele o que se pueda bajar uno. ¿Tú te crees que me ha tocado ver muchos fiambres? Con los
+—Coño, Robles, porque me he visto el NCIS y el CSI y toda serie 
+maderera que echen por la tele o que se pueda bajar uno. ¿Tú te crees que me ha tocado ver muchos fiambres? ¿O que me lo enseñaron en la academia? En mi época, todavía te enseñaban a dar hostias a dos manos. Y los muertos, con los
 dedos de esta mano se pueden contar -, mostró su mano izquierda, en la
 que le faltaba un dedo. - Y todas eran mujeres y los asesinos eran
-siempre sus parejas, que, en algunos casos, estaba justo al lado, con
+siempre sus parejas, que, a veces, estaban justo al lado, con
 los sesos volados. Expediente cerrado, caso resuelto, te vas a casa y
 te echas la siesta.
 
@@ -186,7 +186,7 @@ te echas la siesta.
 
 —Qué.
 
-—Quique el periodista. - Quique había  visto que Roble había hecho check-in en
+—Quique. El periodista. - Quique había  visto que Roble había hecho check-in en
 FourSquare en el barrio y me acaba de poner un like en él. - Viene.
 
 —Cuidao con la polla y con el chismecico. Porque se ha enterado por el
@@ -212,11 +212,11 @@ Dijo esto último bajando la voz, consciente del #fail y #vayanovedad
 implícito en sus palabras. Pero los comentaristas de la imagen no sólo
 habían hecho eso. También se quejaban del tratamiento Lomo de
 la foto. Poco más. Los seguidores de Dexter parecían no estar muy
-espabilados a estas horas de la mañana.
+espabilados a estas horas de la mañana. Todo eso no había impedido que el número de *likes* siguiera creciendo.
 
 Ciriaco se volvió a sentar en el
 sillón, diciendo
-por el camino “Afú” varias veces,  y se puso a escribir en un bloc pequeñito, con una portada a
+por el camino “Afú” varias veces,  y se puso a escribir en un bloc pequeñito, con  portada a
 cuadros y un alambre uniendo las hojas por su parte superior. 
 
 Se comenzaron a oir ruidos en dirección opuesta a la que se
@@ -228,7 +228,7 @@ Huir tampoco es fácil
 ---
 
 En realidad sí lo es. Y mancha mucho menos que cualquier
-cosa que uno haya hecho que requiera tal huida.
+cosa que uno haya hecho para necesitar embarcarse en tal huida.
 
 Despertar
 ---
@@ -239,7 +239,7 @@ globos oculares fuera del cráneo. Ahora mismo parecía que le había
 tomado una manía especial al ojo derecho,  así que lo mantenía cerrado
 y, en ocasiones, tapado con la mano derecha para mayor seguridad.
 
-Habría querido seguir en la cama, pero había llegado un momento en que la resistencia a levantarse no había
+Habría querido seguir en la cama. Pero había llegado un momento en que la resistencia a levantarse no había
 podido con la necesidad de ingerir  una dosis de ibuprofeno. No la
 había encontrado en la cocina. Quizás su compañera Demelza tuviera. O
 si no, quien quiera que anduviera por la casa, que llevaba oyendo el
@@ -266,7 +266,7 @@ Su cerebro le estaba avisando a base de latidos dolorosos que no era
 ni momento de chequear gente ni de pensar, de hecho, nada. Así que se
 dirigió al otro, que no podría haber estado de ninguna de las maneras
 en la fiesta y cuya ropa valdría tanto como uno de los zapatos del
-otro *hipster* 
+ *hipster*.
 
 — ¿Tenéis un ibuprofeno? - , les preguntó. Hipster mono la miró
 durante una fracción de segundo. El otro trató de levantarse del
@@ -274,19 +274,21 @@ sillón, sin conseguirlo. Comenzó a cruzar el salón donde se encontraban- Da i
 compi. 
 
 — ¡No! - dijo el viejuno, consiguiendo finalmente levantarse y
-abriendo muchos los ojos. El otro, mientras tanto, la miraba con esas
+abriendo mucho los ojos. El otro, mientras tanto, la miraba con esas
 gafas de hipster mientras se llevaba los dedos a una de las patillas,
-la derecha, que era un poco más gorda. Sin saber por qué, que no le hizo maldita la gracia. O no le habría hecho tratándose
+la derecha, que era un poco más gorda. Para hacerle una foto, claro, a estas alturas todo el mundo sabía cómo funcionaban esas gafas de Goole. Sin saber por qué, que no le hizo maldita la gracia ser fotografiada. O no le habría hecho tratándose
 de otra persona, pero qué diablos, las fotos la amaban. Estaba mona hasta con resaca. 
 
-— Vale, vale, vale. Ya está. Cuando salga el novio me avisáis. Y otra
+— Vale, vale, vale. Ya está. Cuando salga el novio, o ella, o los dos, me avisáis. Y otra
 cosa no tendríais, aspirina, gelocatil. ¿Oxicodona? - dijo, mirando al
 hipster. 
 
 — No, Tina. Nada. Ya lo siento -, le dijo sonriendo. Seguro
 que estuvo en la fiesta, si no, ¿cómo sabía su nombre? O se lo habría
 dicho el novio de Demelza, que sería su colega. O su cuñado. Y el otro
-el suegro. Tina le sonrió. 
+el suegro. 
+
+Tina le sonrió. 
 
 — Vale, vale. No pasa nada. Me voy a hacer un café. ¿Queréis algo? -
 dijo, mirando a hipster de nuevo. Este miró al otro, como si pidiera
