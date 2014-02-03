@@ -1580,12 +1580,27 @@ cuando sus labios estaban todavía cerca de su oreja
 
 —Nos vemos pronto. 
 
+## Los trabajos y los días
 
+En realidad, no soy escritor durante todas mis horas de vigilia. Nadie
+lo es. “¿Quieres usted escribir? Viva usted primero“, le dijo un
+periclitado escritor ruso a alguien que no pasó a la historia ni como
+escritor ni como vividor. Pero yo sí he seguido ese consejo. Vivo
+antes, durante y después de escribir. Y en vez de escribir, de hecho. 
 
+Por eso, en vista de la batida en retirada de Demelza la muerta
+putativa y la necesidad de replantear esa trama, me vuelvo a Larache,
+que es donde vivo una parte de esa vida. Toda la que puedo, de hecho. 
 
 ## Encontrando el camino
 
-La labor de un escritor es hacer que sus personajes encuentren su propio camino en el mundo que ha creado para ellos. Ese es el problema. Estos lituanos tenían ya el mundo creado y han sido incapaces de encontrar el camino que los lleve a una chica española, con pinta de chica española, que habla español y que va dejando todo tipo de pistas de por dónde anda por Vilna y las excursiones que hace a Riga e incluso cuando se acercó a Kiev a hacer a saber qué. 
+La labor de un escritor es hacer que sus personajes encuentren su
+propio camino en el mundo que ha creado para ellos. Ese es el
+problema. Estos lituanos tenían ya el mundo creado y han sido
+incapaces de encontrar el camino que los lleve a una chica española,
+con pinta de chica española, que habla español y que va dejando todo
+tipo de pistas de por dónde anda por Vilna y las excursiones que hace
+a Riga e incluso cuando se acercó a Kiev a hacer a saber qué.  
 
 "Que no la encontramos, jefe", insisten, mientras simultáneamente piden dinero, más dinero, siempre dinero. Dinero que no tengo y que no tendré si no consigo el contrato. Porque uno escribe para que le quieran, pero yo no escribo, lo hacen por mi mis Ivanes y Alexis y Yaivan allende el Atlántico y además, lo hago por el dinero. Y la fama. Y el dinero. Para hacer una gran novela, hace falta una gran muerte.
 
