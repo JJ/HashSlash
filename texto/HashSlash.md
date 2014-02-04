@@ -288,7 +288,16 @@ que estuvo en la fiesta, si no, ¿cómo sabía su nombre? O se lo habría
 dicho el novio de Demelza, que sería su colega. O su cuñado. Y el otro
 el suegro. 
 
-Tina le sonrió. 
+Tina le sonrió. Y ese acto de mover los músculos alrededor de la nariz
+de alguna forma la abrió y notó el olor. Miró hacia atrás, a ver si
+ahí era más fuerte. Una vez se habían dejado la basura sin sacar
+durante un par de semanas y olía más o menos así. Peor, quizás. La
+fiesta. Eso tenía que ser. Alguien se había dejado las mediasnoches de
+mortadela debajo del sofá y ahora los ácidos grasos estaban
+hidrolizando. Cuando Demelza se levantara, habría que ponerse a
+limpiar rápidamente. Que el suelo esté pegajoso se puede aguantar y es
+algo inherente a cualquier piso de estudiantes. Pero el olor... Eso sí
+que no. 
 
 — Vale, vale. No pasa nada. Me voy a hacer un café. ¿Queréis algo? -
 dijo, mirando a hipster de nuevo. Este miró al otro, como si pidiera
@@ -662,7 +671,7 @@ estaba más calmado gracias a la química. Se lo encontró tumbado, con
 los ojos cerrados, El asistente, a su lado, leía en un tablet. Se
 levantó y le dijo
 
-—Ya es cosa tuya -, miró el reloj y se puso el chaquetó para salir. -
+—Ya es cosa tuya -, miró el reloj y se puso el chaquetón para salir. -
 La familia vendrá en un rato.
 
 —Pero ¿está...? - preguntó Roble.
@@ -670,10 +679,10 @@ La familia vendrá en un rato.
 —Atontao, sí. No sé si más de lo habitual, pero lo que le hemos metido
 es fuertecillo.
 
-—Vale. Hasta pronto. 
+—Vale.  
 
-Ahora tenía que despertarlo. Decidió no hacerlo. Además, tenía que
-solicitar al juzgado intervención de cuentas, listados de llamadas,
+Ahora tendría que despertarlo. Decidió no hacerlo. Además, tenía que
+solicitar al juzgado intervención de cuentas en bancos, listados de llamadas,
 tráfico de datos, claves de cuentas de correo... Entró en el
 formulario del juzgado al que habían asignado el caso y marcó
 todo. Estaba tecleando el informe de justificación cuando sonaron los
@@ -681,28 +690,29 @@ acordes de llegada de un mensaje por WhatsApp. Era Ciri indicándole
 que habían llegado los del juzgado y que dónde coño estaba. 
 
 El sonido hizo que Kevin abriera los ojos. Ni siquiera los tenía
-marrones como [Kevin](http://es.wikipedia.org/wiki/Fred_Savage). Miró
+marrones como el [Kevin](http://es.wikipedia.org/wiki/Fred_Savage) original. Miró
 a Roble con cara de asustado, miró en derredor, volvió a cerrarlos y a
 abrirlos, como si no se creyera donde estaba. Cogió el móvil y miró la
 hora y empezó a respirar rápidamente. Lo que fuera que le habían
-metido, se le estaba pasando. Miró a Roble.
+metido, se le estaba pasando. Miró de nuevo a Roble, entrando en modo
+pánico. 
 
 —Sí, soy Roble García, del Cuerpo de Policía Nacional. - Kevin miró
  como si no lo conociera, pero algo encajó en su cabeza. - Cuéntame.
  
- Kevin rompió a llorar de nuevo. Roble fue al cuarto de baño del box y
+ Kevin rompió a llorar de nuevo. Roble fue al cuarto de baño del *box* y
 cogió un rollo de papel higiénico. Se lo pasó.
 
-—Hay que encontrar al asesino, Kevin -, dijo Roble, en tono
+—El asesino, Kevin. Hay que encontrarlo -, dijo Roble, en tono
 tranquilizador. - Ayúdanos. ¿La fiesta?
 
 —No fui a la fiesta. Si hubiera ido... - Roble lo miró bien. Si
-hubiera ido, estaría borracho o muerto. O las dos cosas. Pero no se lo
+hubiera ido, habría estado borracho o estaría ahora muerto. O las dos cosas. Pero no se lo
 dijo. 
 
 —¿Y cómo...? - preguntó Roble.
 
-—Demelza lleva iBra - Roble sabía lo que era, ropa interior
+—Demelza lleva iBra. - Roble sabía lo que era, ropa interior
 inteligente que te detectaba desde el latido cardíaco hasta toxinas
 presentes en el sudor. Las parejas no lo eran de verdad hasta que no
 se agregaba el iBra o iBoxers de la pareja al app del móvil de uno. -
@@ -713,8 +723,9 @@ otra vez...
 
 —Pero hasta las ocho...
 
-—Si, por yo era como “Bueno, a veces se lo quita y se pone uno que no
-lleva sensor, no pasa nada“, pero de todas formas fui, y, y...
+—Si, pero yo era como “Bueno, a veces se lo quita  y para dormir se pone uno que no
+lleva sensor, no pasa nada“, así que me dormí, pero me desperté
+temprano, y bueno, de todas formas fui, y, y...
 
 Otra llantina. 
 
@@ -729,7 +740,7 @@ el suelo, el pelo...
 
 —La cara... 
 
-—Sólo un poco. Estaba como desfigurada. No parecía ella.
+—No se le veía, sólo un poco, la oreja... Estaba como desfigurada. No parecía ella.
 
 Se echó a llorar y Roble ya no pudo sacarlo de ese lugar oscuro y
 aparentemente muy líquido. Sonaron diferentes melodías procedentes de
@@ -1037,7 +1048,7 @@ mona o en plan Ricitos de Oro probando las camitas...
 
 Puri hizo una mueca y el secretario judicial soltó una carcajada.
 
-—O a robar - dijo Demelza, mirando a Roble.
+—O a robar -, dijo Demelza, mirando a Roble.
 
 —A robar... - repitió Roble. 
 
@@ -1136,7 +1147,7 @@ forma casi exclusiva, usando los personajes y situaciones de los
 libros de la misma. *Fan fiction*, pues. Así se empieza y así
 empezamos todos, pensó Roble. Él había empezado escribiendo novelas de
 Erlendur, el detective de la serie situada en Reykjavik de
-[Arnaldul Indridason](http://es.wikipedia.org/wiki/Arnaldur_Indri%C3%B0ason). Erlendur,
+[Arnaldur Indridason](http://es.wikipedia.org/wiki/Arnaldur_Indri%C3%B0ason). Erlendur,
 mucho más joven que en las novelas originales, viajaba a Benidorm a
 ayudar a la guardia civil a resolver el asesinato, en extrañas
 circunstancias, de un turista islandés y su gato. Estaba llena de
@@ -1188,7 +1199,6 @@ La chica no ha muerto. No la he matado, corrijo. Volvemos al principio.
 
 Y ahora es algo personal.
 
-<<<<<<< HEAD
 ## En otro mundo
 
 Clases. Más clases. El alumno que, al final de la clase, se queda
@@ -1209,7 +1219,7 @@ tenían razón en lo segundo que pensaban. Con los años que tenía y
 todavía no sabía cómo funcionaba el mundo.
 
 Y, a estas alturas, tampoco tenía ganas de ponerse a averiguarlo. 
-=======
+
 ## Citas
 
 Realmente, Roble se sorprendió cuando recibió un mensaje de Tina
@@ -1376,7 +1386,7 @@ hacerlo. Se volvió a dormir.
 
 Roble creía en escuchar.
 
-Quizás no, pensó Roble. Creía en oír.
+Quizás no, pensó Roble. Creía en oír. Primero, en oír. 
 
 Quizás tampoco. Creía en la presencia física mientras otra persona
 hablaba con un cierto grado de atención prestado para insertar frases,
@@ -1387,10 +1397,11 @@ Por el camino, pescaba alguna idea. Ella estudiaba algo relacionado
 con la química. O quería estudiarlo. O trabajaba en algo relacionado
 con la química, aunque cuando apuntó a esto último en una frase
 pareció arrepentirse de decirlo rápidamente. O quería escribir algo
-relacionado con ello.
+relacionado con ello. 
 
 Aparte del fin último de la conversación, también le relajaba
-escuchar, porque no tenía que concentrarse en contestar o en elaborar
+escuchar. Por eso creía en escuchar, porque no tenía que concentrarse
+en contestar algo ingenioso y, a la vez, halagador o en elaborar
 historias de seducción. Había mujeres que se dejaban seducir por la
 palabra, por los gestos. Pero en muchas, la primera y por tanto única
 impresión era la que contaba. La conversación era, por tanto, sólo un
@@ -1398,7 +1409,7 @@ juego en el que los dos sabían qué iba a ocurrir y los dos sabían que
 los dos sabían qué iba a ocurrir. Importaba poco que fuera uni o
 multilateral.
 
-—Muy chulo tu chaleco, por cierto. ¿Es de...?
+—Muy chulo tu chaleco, por cierto. ¿Es de...? - preguntó Tina.
 
 —A medida. De Liverpool. - contestó Roble.
 
@@ -1412,7 +1423,7 @@ eso que las había tomado desde el umbral de la puerta, sin asomarse
 más que para ver, en general, dónde se situaban los cadáveres. Luego
 había tenido que verlas en pantalla para seleccionar las más
 enfocadas, claro, pero no sentía las mismas náuseas si no las veía en
-directo. 
+directo. Ni olores. 
 
 Tina tampoco se vestía de baratillo. La e-pulsera que llevaba, el
 perfume, los zapatos, todo era caro. Sobre todo los zapatos. No algo
@@ -1591,6 +1602,32 @@ antes, durante y después de escribir. Y en vez de escribir, de hecho.
 Por eso, en vista de la batida en retirada de Demelza la muerta
 putativa y la necesidad de replantear esa trama, me vuelvo a Larache,
 que es donde vivo una parte de esa vida. Toda la que puedo, de hecho. 
+
+Porque los escritores, en realidad, son gente aburrida que sólo sabe
+escribir sobre la escritura. Sus personajes son escritores que tienen
+problemas de escritores y fornican con otros escritores. Y todo esto
+sucede porque no hay gente como yo que les dice sobre qué tienen que
+escribir, les dan tres o cuatro directrices, personajes, escenas, que
+ellos interpretan y muchas veces reinterpretan y vuelven a
+reinterpretar cuando no lo hacen suficientemente bien. 
+
+¿Qué pasa? ¿Está mal? ¿Es que Gaudí puso todos los ladrillos de la
+Sagrada Familia? ¿Norman Foster acristaló ese supositorio gigante de
+la City de Londres? 
+
+Ese es, precisamente, el error de los escritores, de casi todos
+ellos. Mi propio error al principio, cuando era joven, acababa de
+salir de la cárcel y pensaba que había que escribir desde las tripas y
+desde el corazón. Iluso. Hay que escribir desde el bolsillo. Y Gastón,
+Mauro, Yadiel, Yarianis, Brígida, Salvador, todos esos chicos y chicas
+que escriben lo que yo les digo y se editan y corrigen unos a otros
+hasta que yo coloco esa piedra angular, esa coma o esa frase que da el
+toque final a todo el edificio, no se engañan. Escriben porque yo les
+pago. Y yo les pago porque La Editorial me paga a mi.
+
+Pero sólo si hay contrato. Que no habrá hasta que haya esa muerte. Que
+me está resultando más difícil que las anteriores. Escribir es
+sufrir. 
 
 ## Encontrando el camino
 
