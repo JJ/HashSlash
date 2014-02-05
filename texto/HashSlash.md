@@ -1269,11 +1269,12 @@ publicación continuo los lectores te acaban abandonando. Y él no
 quería que eso sucediera. 
 
 “Y yo sola en el [Jaraiz](http://detapeoporgranada.blogspot.com.es/2010/04/jaraiz-editado.html)“ Era un bar del Realejo, no demasiado lejos de
-la comisaría. “Tú verás.“
+la comisaría; Roble lo conocía bien. “Tú verás.“
 
 Es posible que tuviera que salir ya. La víctima de la novela que
-estaba escribiendo contaba cómo veía, a través de la ventana de su
-vecino, una pared con una colección de sierras mecánicas. No todas
+estaba escribiendo contaba cómo veía, a través de la ventana abierta de la
+casa de su
+vecino, un expositor con una colección de sierras mecánicas. No todas
 ellas limpias. Limpias de polvo, se entendía. Pero quizás era muy
 obvio que ahora el vecino llegara y viera al otro vecino viéndolo...
 
@@ -1284,7 +1285,8 @@ ella algo. Le mandó un mensaje de vuelta.
 
 ## Mientras tanto, en un lugar de la periferia granadina
 
-Ciriaco hizo inventario de los miembros de su familia. En el salón, su
+Ciriaco hizo inventario de los miembros de su familia, visitándolos
+uno por uno. En el salón, su
 mujer leía un bestseller. Su hijo mayor, en su cuarto, escuchaba
 música y hablaba por el móvil. Su hijo pequeño jugaba con la consola
 portátil. Cómo ha ido el día, bien, bien. sonrisas con arrugas, besos secos. 
@@ -1305,8 +1307,9 @@ Sufrir para volver a encontrar el tema, seguirlo, perseguirlo y,
 finalmente, atenazarlo y terminarlo. Pero el sufrimiento se exacerba
 si el tema te elude. Mucho más si se ha ido a Lituania. Allí es donde
 se ha ido la chica. Eso es lo que dice en su perfil en Facebook y sus
-tweets están geolocalizados por Vilna y alrededores. En Minsk, a
-veces. 
+tweets están geolocalizados por Vilna y alrededores. Cualquier día la
+vemos aparecer por Minsk. ¿Cómo puede haber llegado allí tan
+rápidamente? 
 
 Escribe, conocerás mundo. No lo dijo nadie, pero podía haberlo dicho
 Paul Theroux.
@@ -1344,8 +1347,11 @@ investigación de asesinatos, era lo único a lo que podía recurrir. Así
 que decidió fijarse especialmente en el Erasmus esloveno. 
 
 Llegaba ya al Jaraiz, atravesando calles vacías con ventanas cerradas,
-callejones que olían a humedad y a meados. Entró en el Jaraiz, donde
-grupos animados sostenían cañas y frágiles copas de vino en las
+callejones que olían a humedad y a meados con carteles que, desde sus
+paredes, recibían pulsos de su móvil y excitaban a sus chips NFC, que
+le enviaban mensajes publicitarios que el veía aparecer, brevemente,
+en su pulsera. “Compra“. “Alquila“. “Comparte“. Entró en el Jaraiz, donde
+grupos animados de personas lenguaraces sostenían cañas y frágiles copas de vino en sus
 manos. Tina no estaba allí; giró a la izquierda desde la barra y entró
 a la habitación interior, donde había unas cuantas mesas. Casi todas
 estaban vacías y en la que estaba ocupada un grupo de personas de
@@ -1483,7 +1489,15 @@ en Birmania.
 
 —¿Quién la ha matado, entonces? - preguntó Demelza, mirándolo a los ojos.
 
-No le había sido fácil introducirse en la conversación. Tina hacía huir al silencio como los escritores independientes a la fama. Cuando encontaba uno, empezaba a llenarlo con palabras hasta que, derrotado, desaparecía y no asomaba su cabeza calva por los alrededores en unos días. Pero eventualmente, Tina tuvo que ausentarse a por una copa, otra copa, o algo que, en general, tenía que ver con el trasiego de líquidos por su cuerpo. El silencio retornó entonces haciendo sentirse a todo el mundo incómodo, así que Demelza, con esa frase, lo había pateado de forma contundente para que se batiera de nuevo en retirada. 
+No le había sido fácil introducirse en la conversación. Tina hacía
+huir al silencio como los escritores independientes a la fama. Cuando
+encontaba uno, empezaba a llenarlo con palabras hasta que, derrotado,
+desaparecía y no asomaba su cabeza calva por los alrededores en unos
+días. Pero eventualmente, Tina tuvo que ausentarse a por una copa,
+otra copa, o algo que, en general, tenía que ver con el trasiego de
+líquidos por su cuerpo. El silencio retornó entonces haciendo sentirse
+a todo el mundo incómodo, así que Demelza, con esa frase, lo había
+pateado de forma contundente para que se batiera de nuevo en retirada.  
 
 —No habrás sido tú, Roble -, dijo Tina, que volvió precisamente en ese
 momento. Tocándose la nariz. La gente se toca la nariz por todo tipo
@@ -1588,11 +1602,14 @@ mis cosas, ya sabes...
 
 Tina sólo se rió, pero inmediatamente empezó a hablarle a Roble de
 algo llamado nanomateriales, lo que no tardó en provocar bostezos a
-Demelza que se propagaron inmediatamente a Kevin. Desaparecieron diez
-minutos más tarde, y cuando Demelza le dio dos vesos a Roble le dijo,
-cuando sus labios estaban todavía cerca de su oreja
+Demelza que se propagaron inmediatamente a Kevin. Se levantaron para salir diez
+minutos más tarde. Demelza se agachó ligeramente para besar a Roble,
+un primer beso tan cerca de la comisura de sus labios que se podía
+afirmar matemáticamente que la intersección entre ambos labios no
+había sido nula, y el segundo muy cerca de la oreja, lo que le
+permitió susurrarle cuando sus labios todavía no se habían separado:
 
-—Nos vemos pronto. 
+—Nos veremos pronto. 
 
 ## Los trabajos y los días
 
@@ -1631,6 +1648,21 @@ pago. Y yo les pago porque La Editorial me paga a mi.
 Pero sólo si hay contrato. Que no habrá hasta que haya esa muerte. Que
 me está resultando más difícil que las anteriores. Escribir es
 sufrir. 
+
+## Sexo
+
+Y bastante explícito. Tina le fue dando un sneak preview, incluyendo
+un *preview* explícito en el taxi, para pasar luego a un largometraje
+en un sólo plano secuencia con escenas que habrían requerido dobles en
+algunos casos especialmente acrobáticos. Pero a veces los deseos se
+convierten en realidad, y Roble había cerrado los ojos aparentemente
+durante unos segundos cuando se despertó tras notar el frío al
+levantarse el nórdico y un cierto hundimiento de la cama en el lado
+opuesto en el que se había acurrucado Tina.
+
+Abrió los ojos y se encontró a Demelza, con la piel azulada por la luz
+que se filtraba desde el exterior, la luz de una Granada que dormía o
+hacía lo que solía hacer a esas horas de la madrugada. 
 
 ## Encontrando el camino
 
