@@ -1683,9 +1683,73 @@ de lo que Roble habría deseado. Y es que Tina era así, imperfecta
 aunque perfectamente solvente en todo lo que hacía. 
 
 Y en ese momento ya tenía a Demelza encima, por lo que su cerebro
-delegó en su cuerpo la mayor parte de sus funciones. Roble sólo dijo:
+delegó en el cuerpo la mayor parte de sus funciones. Roble sólo dijo:
 
 —Bien.
+
+## Despertar
+
+Ciríaco se despertó con unas ingentes ganas de orinar. O eso o un
+perro especialmente escandaloso habían provocado tal despertar.
+
+Mientras orinaba, pasó un rato repasando las tareas que tendría que
+hacer al día siguiente. Había quedado con dos personas a las que les
+estaba ayudando a preparar las oposiciones para inspector para
+contestarles dudas. Y tenía que repasar los apuntes para las
+oposiciones a la escala básica. Y varias cosas más que no recordaba en
+este momento en que las últimas gotas brotaban de su vejiga, pero que
+recordaría mañana cuando se pusiera a ello. O no.
+
+## El sexo y la razón
+
+Roble, en sus limitadas pero abundantes relaciones con mujeres había
+aprendido que siempre había una razón para el sexo. A veces, varias,
+pero sólo una. Era un trabajo deductivo, que no seductivo, buscar esa
+razón. 
+
+Pero generalmente hacía ese trabajo deductivo *antes* del sexo, con el objetivo
+de conseguirlo; si daba con esa razón sólo había que aprehenderla, no
+soltarla, y usarla para conseguirlo. Hacerlo después era más
+complicado. Por el camino también se ocupó de pensar en la razón por
+la que había entrado en su casa y posteriormente en su cama sin mayor
+problema. No habría sido difícil encontrar a Tina, su móvil iba
+diciendo a los cuatro vientos desde su dirección única IPv6 por dónde
+iba y en dónde se quedaba parada. Y a partir de ahí... bueno, no era
+tan fácil. No debía serlo. Si la gente podía ir por la vida colándose
+en la casa de un subinspector de policía, incluso una casa tan evidente como la suya,
+una nave espacial en medio del Barranco del Abogado, los cacos tendría
+la vida muy fácil. 
+
+Y los asesinos. Porque ese cuerpo hecho para el pecado mortal también
+podía haber cometido otro. Tenía oportunidad, se había colado en su
+habitación. O la había llevado hasta allí. Tenía los medios. Unos
+excelentes cuchillos del Ikea. Y la ayuda posible de alguno de los
+productos artesanales hechos por su amiga Tina. Y, finalmente, ¿tenía
+motivo?
+
+¿Y tenía algún motivo para acostarse con él?
+
+—¿Por qué? - preguntó Roble. Demelza dormitaba a su lado. Tras el
+ejercicio realizado, su piel había adquirido un tono sonrosado que,
+mezclado con la luz azulada que provenía del exterior, la convertía en
+algo decididamente mórbido. O una pitufa disidente. Lo que también,
+decidió Roble, era sumamente morboso. 
+
+—¿Motivos? ¿Necesitas un motivo? - Se levantó de la cama y empezó a
+vestirse. 
+
+—No lo necesito.
+
+—Entonces, no lo pidas. Lo que sí tienes que pedir es una
+actualización a las aplicaciones que controlan tu sistema
+domótico. Las claves de la puerta principal están publicadas al menos
+en tres sitios, uno de ellos gratis. 
+
+Afú, pensó Roble, en lo que era su primer uso consciente de esa
+interjección granadina. Afú y doble afú. Fue inmediatamente a su móvil
+en la mesita de noche y empezó a actualizar todo lo que pudiera.
+
+—Nos veremos pronto. - oyó que decía según salía. 
 
 ## Encontrando el camino
 
