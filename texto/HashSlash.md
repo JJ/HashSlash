@@ -1661,6 +1661,32 @@ Abrió los ojos y se encontró a Demelza, con la piel azulada por la luz
 que se filtraba desde el exterior, la luz de una Granada que dormía o
 hacía lo que solía hacer a esas horas de la madrugada. 
 
+Cuando ya su mente empezaba a explorar configuraciones que, a su edad,
+todavía no había tenido oportunidad de experimentar, Tina se levantó
+de la cama. Se llevó el índice a los labios, indicándole silencio. Su
+mirada bajó de esos labios y pasó por el cuello, por los pechos, el
+vientre, el monte de Venus, muslos, rodillas, tobillos... En llegando
+a los tobillos recordó que, en los momentos en que su boca quedaba
+libre, Tina le contó su pequeño negocio vendiendo drogas recreativas
+que cocinaba en el laboratorio en el que hacía prácticas en la
+Facultad, que serían legales dentro de poco, seguramente, sí, no cabía
+duda de ello y que, le aseguraba, no tenían nada, absolutamente nada,
+que ver, con ninguna muerta aparecida en ningún lugar en sus
+cercanías, que la gente que le compraba eran todas de muy buena
+familia y que, aunque sí, bastantes habían estado en la fiesta e
+incluso consumido in situ, el dinero y el material seguían en su
+cuarto por lo que era improbable que el asesinato tuviera nada que ver
+con ello y que, de verdad, la gente de Narcóticos no tenía que
+enterarse de nada, de veras, ¿no?, además, si iba a ser legal
+cualquier día de estos. Bien pensado, quizás había usado menos la boca
+de lo que Roble habría deseado. Y es que Tina era así, imperfecta
+aunque perfectamente solvente en todo lo que hacía. 
+
+Y en ese momento ya tenía a Demelza encima, por lo que su cerebro
+delegó en su cuerpo la mayor parte de sus funciones. Roble sólo dijo:
+
+—Bien.
+
 ## Encontrando el camino
 
 La labor de un escritor es hacer que sus personajes encuentren su
