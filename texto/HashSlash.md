@@ -1749,10 +1749,36 @@ domótico. Las claves de la puerta principal están publicadas al menos
 en tres sitios, uno de ellos gratis. 
 
 Afú, pensó Roble, en lo que era su primer uso consciente de esa
-interjección granadina. Afú y doble afú. Fue inmediatamente a su móvil
+interjección granadina. Afú y doble afú con los amigos del novio de
+Demelza y la Demelza propiamente dicha. Fue inmediatamente a su móvil
 en la mesita de noche y empezó a actualizar todo lo que pudiera.
 
 —Nos veremos pronto. - oyó que decía según salía. 
+
+## El camino hacia la policía
+
+Ciriaco se aburría con la perorata de uno de sus tutorizados. Ley
+blablabla código blablabla caso blablabla. Se puso a pensar en sus
+casos. Una agresión por dos encapuchados, uno de ellos posiblemente
+una mujer, a un conductor de la Rober. Un robo en un bufete de
+abogados. El asesinato de una chica. ¿Cómo se llamaba? Demelza. No,
+esa era la chica no-muerta. No zombie, simplemente que no era ella la
+que había muerto. ¿O Demelza era la que había muerto y la otra la que
+no? 
+
+Muerta de un tajo, por cuchillo. Una carnicería. ¿Sería carnicero el
+asesino? ¿Matarife? Matarife lo era de por sí, pero ¿matarife de
+profesión? Tendría que recordar cuando entrara otra vez en el turno
+pedir una lista de los matarifes de Granada. Y provincia. ¿Y Almería?
+No, Jaén estaba mejor comunicado. ¿Córdoba? ¿Málaga? Malagueño iba a
+ser, seguro. Sevillano. Si la chica era granadina, la enemistad
+secular con los sevillanos era motivo suficiente para el asesinato. O
+al revés. ¿Era sevillana la chica? ¿Granadina? Hoy tenía que comprar
+carne, se lo había pedido su mujer. ¿Había dicho cabezada o lomo?
+Cabezada, tenía que ser cabezada. No, lomo. ¿O lomo y cabezada?
+
+Código bla bla bla artículo bla bla bla caso bla bla bla sentencia bla
+bla bla.
 
 ## Encontrando el camino
 
@@ -1852,4 +1878,5 @@ Demelza, más cerca de su destino final.
 A [Marcos Taracido](http://twitter.com/marcostaracido) por su buen
 humor y haber descubierto un error que a mi se me había pasado (lo que
 debería ser obvio, porque si no se me hubiera pasado no habría sido un
-error). 
+error). También a [Jose María](http://blog.unlugarenelmundo.es/), por
+contestar a mis continuas dudas y preguntas. 
