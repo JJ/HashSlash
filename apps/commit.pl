@@ -20,7 +20,9 @@ if ( $branch =~ /master/ ) {
   my @changed_files = ($changed =~ /\s*\w\s+(\S+)/g);
   if ( $words ~~ @changed_files ) {
     my $file_name = ( -e $words)? $words: "palabras";
-    `aspell --lang=es --encoding=utf-8 create master texto/hashslash.dic < $words`
+    my $generate_dic = "aspell --lang=es --encoding=utf-8 create master texto/hashslash.dic < $words";
+    say $generate_dic;
+    my $result = `$generate_dic`;
   }
   $git->command( "commit", "-a", "-m", $comment );
   $git->command( "push" );
