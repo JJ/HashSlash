@@ -1,0 +1,10 @@
+branches:
+  except:
+    - gh-pages
+language: perl
+perl:
+  - "5.16"
+before_install:
+  - sudo apt-get install libhunspell-1.3-0 myspell-es libhunspell-dev
+  - cd Text-HashSlash
+script: "perl Makefile.PL && make test"

@@ -27,7 +27,7 @@ encontraba sentado.
 
 —No -, respondió Roble.
 
-—Ah. Vayamos a pollas-, volvió a sentarse Ciríaco, el mayor de los
+—Ah. Vayamos a pollas-, volvió a sentarse Ciriaco, el mayor de los
 dos. Una vez hundido en el sillón, se cerró el abrigo sobre las
 rodillas. Eran las diez de la mañana de un día de enero, estaba
 nublado y la temperatura en el interior del piso era escasamente
@@ -112,7 +112,7 @@ dijo Roble, que seguía pegado al teléfono.- Normal.
   y él seguía tecleando. - No hay app - dijo aaahhh - para eso,
   ¿verdad? 
   
-  Ciríaco se rió de su propia gracia. 
+  Ciriaco se rió de su propia gracia. 
   
  — Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Ciriaco. 
  
@@ -570,7 +570,7 @@ Segundos de intercambio de frases que había aprovechado la chica para
 llegar hasta la puerta del bloque sin dejar de llorar. El agente no la
 dejó pasar y tras amagar unos golpes decidió, simplemente sentarse en
 el suelo y seguir llorando. Quique y Ciriaco se fueron hacia ella,
-pero Ciríaco volvió el brazo con la palma hacia atrás y le impidió
+pero Ciriaco volvió el brazo con la palma hacia atrás y le impidió
 continuar.
 
 —Venga, coño, Ciri, dame vidilla, cojones. ¿Cuánto? - le preguntó
@@ -773,7 +773,7 @@ tópicos que contenían. Sin embargo, la respuesta fue
 
 —Pobre... Ahora, ¿cómo voy a poder pagar yo el piso?
 
-Con casi treinta años de policía, Ciríaco pensó que la condición
+Con casi treinta años de policía, Ciriaco pensó que la condición
 humana nunca dejaría de sorprenderle.
 
 ## Identidad
@@ -913,7 +913,7 @@ Bajaron un tramo de escaleras, Ciriaco delante, Tina unos escalones
 por detrás. Tina no dejó el móvil ni un momento, sus pies conocían el
 camino. 
 
-—¡Tinaaa! - Oyó Ciríaco cuando se pusieron a la vista de la puerta. 
+—¡Tinaaa! - Oyó Ciriaco cuando se pusieron a la vista de la puerta. 
 
 —¿Demelza? - dijo Tina, metiéndose el móvil en el bolsillo y bajando
 las escaleras de dos en dos.
@@ -940,7 +940,7 @@ DNI que cogía con los guantes.
 Roble se frotó los ojos y le dio una palmada a la pulsera, que le
 avisaba insistentemente para que se fuera a dormir. 
 
-La llamada de Ciríaco le había pillado subiendo la cuesta del Barranco
+La llamada de Ciriaco le había pillado subiendo la cuesta del Barranco
 del Abogado hacia su
 casa, desde donde una cama confortable y cálida parecía llamarle. Pero
 quien le había llamado había sido Ciriaco o, en plan más general, *el
@@ -954,7 +954,7 @@ las sobreexcitadas que, por la propia excitación, tampoco eran
 precisamente vehículos eficaces de pensamientos complejos. La
 muerta no estaba muerta. Pero había una muerta. 
 
-—Ni Tina ni Demelza, la muerta, -, dijo Ciríaco; Roble hizo una
+—Ni Tina ni Demelza, la muerta, -, dijo Ciriaco; Roble hizo una
 mueca -, vale, que no está muerta, es para entendernos, que dicen que
 no, que no la conocen.
 
@@ -1689,7 +1689,7 @@ delegó en el cuerpo la mayor parte de sus funciones. Roble sólo dijo:
 
 ## Despertar
 
-Ciríaco se despertó con unas ingentes ganas de orinar. O eso o un
+Ciriaco se despertó con unas ingentes ganas de orinar. O eso o un
 perro especialmente escandaloso habían provocado tal despertar.
 
 Mientras orinaba, pasó un rato repasando las tareas que tendría que
