@@ -62,25 +62,19 @@ __END__
 
 =head1 NAME
 
-Text::Hoborg - Spell-and-quality check for texts, including novels. 
-
+Text::HashSlash - Comprobación ortográfica
 
 =head1 VERSION
 
-This document describes Text::Hoborg version 0.0.5
-
+This document describes Text::HashSlash version 0.0.1
 
 =head1 SYNOPSIS
 
-    use Text::Hoborg;
+    use Text::HashSlash;
     
 =head1 DESCRIPTION
 
-This started as a spell and quality check for my novel, "Manuel the
-Magnificent Mechanical Man". Eventually, it can be used for checking
-any kind of markdown-formatted text, be it fiction or non-fiction. It
-includes, as documentation, the novel itself (check it out at L<Text::Hoborg::Manuel> and also in the test
-directory the markdown source. 
+Comprobación ortográfica para HashSlash, básicamente
 
 =head1 INTERFACE
 
