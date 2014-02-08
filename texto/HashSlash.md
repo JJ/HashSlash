@@ -1031,7 +1031,7 @@ Al momento salieron la jueza y el secretario.
 era Blanca, pensó Roble, una ocasión propicia para que un hipotético
 extranjero presente tradujera correctamente *is* dijera lo que dijera. Pero
 recuperó el color rápidamente, dejando al extranjero con el dilema de
-decir “estar“ donde deberería haber dicho “ser“ o al revés. 
+decir “estar“ donde debería haber dicho “ser“ o al revés. 
 
 —En cuanto que sepáis algo, me llamáis. Ciriaco, ¿no? - Ciriaco
 asintió. - Pasadme los teléfonos por si os tengo que llamar. ¿Se os
@@ -1280,7 +1280,7 @@ quería que eso sucediera. Pero Tina le volvió a mandar un mensaje.
 “Y yo sola en el [Jaraiz](http://detapeoporgranada.blogspot.com.es/2010/04/jaraiz-editado.html)“ Era un bar del Realejo, no demasiado lejos de
 la comisaría; Roble lo conocía bien. “Tú verás.“
 
-El colocar la decisión en sus manos indicaba una ventana tamporal que
+El colocar la decisión en sus manos indicaba una ventana temporal que
 tendría que aprovechar, así que decidió prepararse para salir. En ese
 momento, la víctima de la novela que
 estaba escribiendo contaba cómo veía, a través de la ventana abierta de la
@@ -1713,7 +1713,7 @@ tenía una máscara brillante, cromada, con aristas y agujeros para la
 boca y los ojos. Le pidió que se la pusiera. Cuando se la hubo puesto,
 se inclinó y sacó de su bolso, en la mesita de noche, un sobre
 cuadrado, plateado, con un preservativo. Roble lo abrió y sacó de él
-un objeto brillante, cromado, que al desenrrollarse y ponerse en el
+un objeto brillante, cromado, que al desenrollarse y ponerse en el
 miembro se convirtió en una escultura fálica metálica. Y con LEDs.
 
 — Piezoeléctricos - dijo ella.
