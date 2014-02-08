@@ -104,6 +104,11 @@ Returns the name of the text file
 Returns the dir the source file is in. Since this is managed from the
 object, it is useful for other functions.
 
+=head2 abs_dir
+
+Returns the absolute path to the directory the source file is in. Since this is managed from the
+object, it is useful for other functions, mainly for C<aspell>, who likes absolutes.
+
 =head2 appendices
 
 Returns an array with the appendices included with the novel. It's
