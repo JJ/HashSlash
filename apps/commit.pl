@@ -5,11 +5,14 @@ use warnings;
 
 use Git;
 use File::Slurp qw(read_file write_file);
+use Cwd;
 
 use v5.12;
 
 my $comment = shift || "No comment";
+my $this_dir = getcwd;
 my $words=  'texto/palabras';
+my $file_name = ( -e "$this_dir/$words")? "$this_dir/$words": "../texto/palabras";
 
 my $git = Git->repository;
 
@@ -19,8 +22,7 @@ if ( $branch =~ /master/ ) {
   my $changed = $git->command(qw/diff --name-status/);
   my @changed_files = ($changed =~ /\s*\w\s+(\S+)/g);
   if ( $words ~~ @changed_files ) {
-    my $file_name = ( -e $words)? $words: "palabras";
-    my $generate_dic = "aspell --lang=es --encoding=utf-8 create master texto/hashslash.dic < $file_name";
+    my $generate_dic = "aspell --lang=es --encoding=utf-8 create master $this_dir/texto/hashslash.dic < $file_name";
     say $generate_dic;
     my $result = `$generate_dic`;
     say "Generando diccionario $result";
