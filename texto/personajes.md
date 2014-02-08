@@ -10,4 +10,12 @@ La madera
 Nombre | Nacido - cuando | dónde |  Puesto | Otros
 --- |--- |--- |--- | ---
 Ciriaco | 1967 | | Inspector | Prepara oposiciones. Vive en la periferia granadina, Huétor. Escribe temarios
-Roble | 1996 | | Subinspector | Escribe novelas de asesinatos en primera persona de la víctima
+Roble Sáenz | 1996 | | Subinspector | Escribe novelas de asesinatos en primera persona de la víctima
+
+Otras fuerzas del orden
+---
+
+Nombre | Nacido - cuando | dónde |  Puesto | Otros
+--- |--- |--- |--- | ---
+Blanca | - | - | Jueza de instrucción | 
+
