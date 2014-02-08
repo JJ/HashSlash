@@ -11,8 +11,8 @@ use v5.12;
 
 my $comment = shift || "No comment";
 my $this_dir = getcwd;
-my $words=  'texto/palabras';
-my $file_name = ( -e "$this_dir/$words")? "$this_dir/$words": "../texto/palabras";
+my $words=  'texto/.aspell.es.pws';
+my $file_name = ( -e "$this_dir/$words")? "$this_dir/$words": "../texto/.aspell.es.pws";
 
 my $git = Git->repository;
 
@@ -22,10 +22,9 @@ if ( $branch =~ /master/ ) {
   my $changed = $git->command(qw/diff --name-status/);
   my @changed_files = ($changed =~ /\s*\w\s+(\S+)/g);
   if ( $words ~~ @changed_files ) {
-    my $generate_dic = "aspell --lang=es --encoding=utf-8 create master $this_dir/texto/hashslash.dic < $file_name";
-    say $generate_dic;
-    my $result = `$generate_dic`;
-    say "Generando diccionario $result";
+    my @palabras = read_file($file_name);
+    $palabras[0] =~ s/es (\d+) /es $#palabras /;
+    write_file( $file_name, @palabras);
   }
   $git->command( "commit", "-a", "-m", $comment );
   $git->command( "push" );

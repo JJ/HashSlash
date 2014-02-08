@@ -4,6 +4,7 @@ use warnings;
 use strict;
 use Carp;
 use File::Slurp 'read_file';
+use Cwd 'abs_path';
 
 use version; our $VERSION = qv('0.0.1'); #(Hopefully) first
                                          #non-test-failing version
@@ -20,8 +21,11 @@ sub new {
   }
   my $text_file = "$dir/HashSlash.md";
   my $text = read_file($text_file);
+  my $abs_dir = abs_path( $dir );
+  
   my $self = { 
       _dir => $dir,
+	      _abs_dir => $abs_dir,
       _text => $text,
       _text_file => $text_file,
       _appendices => {} 
@@ -38,6 +42,11 @@ sub new {
 sub dir {
     my $self = shift;
     return $self->{'_dir'};
+}
+
+sub abs_dir {
+    my $self = shift;
+    return $self->{'_abs_dir'};
 }
 
 sub text {
