@@ -399,7 +399,7 @@ Glasses? No había visto muchas.
 —Cuando Demelza... - dejó la frase sin terminar, para que Tina lo
 hiciera por él. O la dejara ahí, implicando que se había ido a la vez
 que Demelza se había ido a su habitación. O al otro barrio. Roble no
-pudo evitar sonreir.
+pudo evitar sonreír.
 
 —No, espera, Demelza... yo no la vi a partir de las dos o las tres. ¿O
 las una? Espera, cuando nos quedamos con el Riki y la Santi y nos... -
@@ -480,7 +480,7 @@ posibilidad de sacar provecho de la situación.
 Todavía no habían empezado el interrogatorio *oficial*, ni se
 consideraba testigo ni ninguna otra figura procesal. ¿Por qué no iba a
 poder quedar con ella y lo que surgiera? Se dieron la mano para que
-sus pulseras intercabiaran los datos de contacto; Roble dejó la suya
+sus pulseras intercambiaran los datos de contacto; Roble dejó la suya
 unos segundos más de lo estrictamente necesario y Tina no hizo ademán
 de soltarse. 
 
@@ -587,7 +587,7 @@ sonriendo y volviendo a dejar la cartera en el bolsillo de atrás.
 muertos y pa los de asuntos internos si es que te preguntan. Ahora,
 humo.
 
-—Joder, Ciri, que está el de márketing del periódico encima nuestro,
+—Joder, Ciri, que está el de marketing del periódico encima nuestro,
 todo lo que huela a sangre son visitas a la web, venga, va, joder...
 
 Ciriaco no dijo nada. Tina había vuelto al suelo a llorar y la jueza y el
@@ -645,7 +645,7 @@ En la parada del 33 y mientras iba en el mismo fue perfilando al
 chaval. Tenía cuenta de todo. De Jelly, de Twitter, de Facebook, de
 Instagram. Donde más se movía era en Jelly, respondiendo a todo tipo
 de preguntas estúpidas. “¿Qué color de bufanda prefieres?” “¿Caballo o
-pony?” “¿Filadelfia o Seattle?”. Si hasta retuiteaba fotos de
+poni?” “¿Filadelfia o Seattle?”. Si hasta retuiteaba fotos de
 animalitos. 
 
 En Instagram, mucho *selfie*, alguno con la novia. Este sería del tipo
@@ -668,7 +668,7 @@ veinticuatro horas. Sólo si esto le tomaba demasiado tiempo.
 Le mandó un Whatsapp al asistente social que estaba con el chico para
 ver donde se encontraban. Seguían en urgencias y parecía que el chaval
 estaba más calmado gracias a la química. Se lo encontró tumbado, con
-los ojos cerrados, El asistente, a su lado, leía en un tablet. Se
+los ojos cerrados, El asistente, a su lado, leía en un tableta. Se
 levantó y le dijo
 
 —Ya es cosa tuya -, miró el reloj y se puso el chaquetón para salir. -
@@ -797,7 +797,7 @@ ambas que podían pasar a la de asesinos fácilmente.
 Mientras pensaba esto, escuchaba la conversación en el asiento de
 atrás. 
 
-—No, los videos son muy de principio de década. Ahora lo que la peña
+—No, los vídeos son muy de principio de década. Ahora lo que la peña
 demanda es el texto, ¿sabes?. Más portable, más ubicuo, más modos de
 interacción. Más largo, más oportunidades de interacción, más
 posibilidades de viralidad, ¿no?
@@ -810,7 +810,7 @@ sabía, al menos, si se había encontrado con ellos alguna vez. Con un
 poco de suerte, podía tener alguna información adicional y asociar la
 firma a una persona. 
 
-—No requiere nada, en realidad. Un video, tres minutos, ahora qué veo,
+—No requiere nada, en realidad. Un vídeo, tres minutos, ahora qué veo,
 ¿no? Un libro son horas y horas de entretenimiento sin tener que
 molestarse en pensar qué haces luego, ¿te das cuenta?
 
@@ -918,7 +918,7 @@ camino.
 —¿Demelza? - dijo Tina, metiéndose el móvil en el bolsillo y bajando
 las escaleras de dos en dos.
 
-—¿Te han...? - comenzó a decir Demelza, pero Tina se avalanzó sobre
+—¿Te han...? - comenzó a decir Demelza, pero Tina se abalanzó sobre
 ella y le dio un abrazo, chillando a la vez.
 
 El agente de la puerta y Ciriaco se miraron, el primero con una
@@ -984,14 +984,14 @@ de verdad. La otra, sólo *la muerta*.
 Roble miró de reojo a Tina, que apoyada en una pared, charlaba
 animadamente con Demelza. Esta, sin embargo, miraba con cierto
 nerviosismo hacia la puerta del pasillo que daba a su habitación,
-de donde procedían ruidos de frotar de plasticos, de fotos disparadas
+de donde procedían ruidos de frotar de plásticos, de fotos disparadas
 y de indicaciones monosilábicas de un miembro del equipo de
 criminalística a la otra. 
 
 —Pero no la conocen.
 
 —Tina no, por nombre, la cara le suena, dice, - esta volvió la cara
-para mirarlos, al escuchar su nombre - pero Demelza no ha dicho que no, le suena una Ainoa que
+para mirarlos, al escuchar su nombre - pero Demelza no ha dicho que no, le suena una Ainhoa que
 le escribió hace tiempo, pero podría ser Aitora.
 
 —Aitora...
@@ -1127,7 +1127,7 @@ marchó de casa. Ya repasaría los temas por el camino.
 
 ## Insomnio
 
-El insomnio que te impide dormir la siesta es más inexcrutable e
+El insomnio que te impide dormir la siesta es más inescrutable e
 infinitamente más inexorable que el que hace que no duermas de
 noche. Se puede perder el sueño de noche por muchas razones. Pero
 hacen falta sustancias potentes y preocupaciones acuciantes para
@@ -1136,7 +1136,7 @@ haber pensado una palabra especial para ello. ¿Insiesto? ¿Minusiesto?
 
 Poco antes de llegar a su casa la pulsera le había avisado de que
 había encontrado la conexión entre la chica muerta y la chica que
-había parecido estar muerta. Ainhora había felicitado, repetidamente,
+había parecido estar muerta. Ainhoa había felicitado, repetidamente,
 a Demelza cuando había anunciado la publicación de una nueva novela y
 en varias ocasiones había pulsado un *me gusta* sobre alguna otra
 publicación, principalmente literaria. No parecían estar conectadas
@@ -1153,16 +1153,16 @@ ayudar a la guardia civil a resolver el asesinato, en extrañas
 circunstancias, de un turista islandés y su gato. Estaba llena de
 clichés hasta en la descripción que incluía el cliché *extrañas
 circunstancias*, como si hubiera asesinatos cotidianos y
-habituale. Sólo Erlendur había sido capaz de entender que, en
+habituales. Sólo Erlendur había sido capaz de entender que, en
 realidad, la asesina, una regentadora de un quiosco de churros, a
 quien había deseado matar era al gato, siendo el turista, a quien
 había llamado Thor por su desconocimiento de nombres y apellidos de
-esas latitudes, un simple daño colateral del envenamiento de una rosca
+esas latitudes, un simple daño colateral del envenenamiento de una rosca
 de churros con matarratas. 
 
 Roble se había quedado muy contento con el resultado, pero en el foro
 de fan-fiction permaneció durante muchos años como único ejemplo de
-fan-fiction-crimen-islandia y sólo superó la docena de lecturas al
+fan-fiction-crimen-Islandia y sólo superó la docena de lecturas al
 cabo de unos cuantos años. De ello, Roble concluyó que la fan-fiction
 tenía más escritores que lectores (si es que, de hecho, tenía una
 cantidad de lectores no nula) y que, si quería dedicarse a escribir
@@ -1182,17 +1182,17 @@ Realmente, era para matarla.
 ## La página en blanco
 
 Cualquier escritor te hablará de ese momento angustioso en el que
-tienes que enfrentarte a una página y las teclas repelen las llemas de
+tienes que enfrentarte a una página y las teclas repelen las yemas de
 tus dedos como tu cerebro repele las ideas.
 
 Comenzar. Quizás no es problema de repulsión cerebral de ideas. Antes
 al contrario, las ideas se agolpan, se aglomeran, se enredan unas con
 otras, se pelean, pero, en una victoria pírrica, todas acaban vencidas
 y ninguna te arroja el artículo que seguido de un sustantivo y más
-adelante un verbo acabarían, de por sí, constiyendo una frase.
+adelante un verbo acabarían, de por sí, constituyendo una frase.
 
 Peor es recomenzar. Cuando, una vez terminado el trabajo, el editor, los
-primeros lectors, el querido y despreciado público, lo arrojan a la
+primeros lectores, el querido y despreciado público, lo arrojan a la
 basura y hay que empezar de nuevo.
 
 La chica no ha muerto. No la he matado, corrijo. Volvemos al principio. 
@@ -1354,7 +1354,7 @@ a la habitación interior, donde había unas cuantas mesas. Casi todas
 estaban vacías y en la que estaba ocupada un grupo de personas de
 mediana edad se concentraban en sus móviles, en silencio sólo
 interrumpido por trinos de aviso que parecían o pájaros o los
-dinosaurios cantarinos de Parque Jurásico.
+dinosaurios cantarines de Parque Jurásico.
 
 Dio la vuelta para salir y se encontró con Tina, sonriendo.
 
@@ -1488,7 +1488,7 @@ en Birmania.
 
 No le había sido fácil introducirse en la conversación. Tina hacía
 huir al silencio como los escritores independientes a la fama. Cuando
-encontaba uno, empezaba a llenarlo con palabras hasta que, derrotado,
+encontraba uno, empezaba a llenarlo con palabras hasta que, derrotado,
 desaparecía y no asomaba su cabeza calva por los alrededores en unos
 días. Pero eventualmente, Tina tuvo que ausentarse a por una copa,
 otra copa, o algo que, en general, tenía que ver con el trasiego de
@@ -1552,7 +1552,7 @@ El intercambio terminó con Demelza volviendo a la carga.
 Roble lo consideró. Era posible, claro. Chica, parecida, quizás de
 espaldas, en la habitación, una persona que no la conoce
 personalmente, que evidentemente quiere terminar el trabajo, o que no
-pide en carnet de identidad, como es natural, llega, un golpe certero
+pide en carné de identidad, como es natural, llega, un golpe certero
 y todo termina así, de repente, sales por donde has venido, nadie te
 ve, nadie te conoce... Pero también era posible que quisieran matar
 precisamente a esa persona. O a otra totalmente diferente. 
@@ -1581,7 +1581,7 @@ conseguido escuchando. Que tampoco era mal mérito.
 —Lo bueno de estos tíos - , "Son buenos", intervino Kevin, con
 brevedad y hablando muy rápido, como esas voces que de repente se
 cruzan en la radio y que dicen "estroncio, rubidio y cesio" en medio
-de una retransmisión deportiva, dejándode la impresión de que, aunque
+de una retransmisión deportiva, dejándole la impresión de que, aunque
 no parece que haya nadie más ahí, entre tú y el que habla, sí lo hay y
 puede aparecer en el momento más inesperado -, es que son capaces de
 diseñarte un itinerario completo, sin ningún hueco, nada, si cancelan
@@ -1796,7 +1796,7 @@ Y volando en bajo coste.
 
 ## Volando voy, volando vengo
 
-Hay personas en el mundo cuyo único propósito en la vida parece ser banalizar todo lo que pueda tener glamour u ofrecer algo de lujo a las grises y uniformes vidas de los mortales. Crear diamantes en una fábrica, en vez de en las entrañas de la Tierra. Cruceros con buffet libre, en vez del oropel de las comidas a mesa y mantel con el capitán y los hundimientos por colisión con iceberg. 
+Hay personas en el mundo cuyo único propósito en la vida parece ser banalizar todo lo que pueda tener glamour u ofrecer algo de lujo a las grises y uniformes vidas de los mortales. Crear diamantes en una fábrica, en vez de en las entrañas de la Tierra. Cruceros con bufé libre, en vez del oropel de las comidas a mesa y mantel con el capitán y los hundimientos por colisión con iceberg. 
 
 Y volar. 
 
@@ -1832,7 +1832,7 @@ viene".
 
 Lo que me dejaba aún con menos dinero. No es que me quedara poco. Es
 que, eventualmente, el retorno de inversión y las molestias
-ocasionadasp or este trabajo literario podían ser demasiado escasas
+ocasionadas por este trabajo literario podían ser demasiado escasas
 para seguir con él. 
 
 Pero todavía no habíamos llegado a ese punto. Así que me dirigí a la
@@ -1856,7 +1856,7 @@ su tedio y le encargara un verdadero reto. "Es más barato que por
 París, además". Mencionada la palabra mágica, cerramos el trato aunque
 pareció algo renuente de que le pagara toda la cantidad en metálico. Y
 que no cerrara también el billete de vuelta. "Quién sabe lo que puedo
-tardar alli. Es un negocio complicado" Cuando existía el glamour, se
+tardar allí. Es un negocio complicado" Cuando existía el glamour, se
 podían sacar billetes con vuelta abierta. Alguien se lo había cargado
 junto con la posibilidad de elegir asiento y de recibir unos
 cacahuetes rancios, pero útiles para iniciar conversación con el
