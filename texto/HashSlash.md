@@ -382,7 +382,7 @@ sitios correspondientes. Perfectamente aceptable, por
 supuesto. Siempre que, claro. 
 
 Habían tenido que andar unos cien metros, desde muy cerca del final de la carretera de
-la Sierra hasta lo que, por la antigüedad de los edificios, parecía el antiguo final de la misma, donde sí había una
+la Sierra hasta lo que, por la antigüedad de los edificios, parecía el viejo extremo de la misma, donde sí había una
 cafetería abierta. Por el camino, un bloque de casas de dos pisos con
 carteles de “Se alquila”, “Se vende”, algunos ya caídos, persianas
 echadas, escombros de burbuja.
@@ -561,7 +561,7 @@ barrio. Y el artículo sobre incompetencia policial lo tienes
 garantizado como no  trinquéis al asesino esta misma tarde. Esta misma
 mañana. 
 
-—Pero ¿quień se ha muerto ni niño muerto? - dijo Ciriaco, encogiendo
+—Pero ¿quién se ha muerto ni niño muerto? - dijo Ciriaco, encogiendo
 los hombros y metiéndose las manos en los bolsillos - Es un registro rutinario.
 
 —Sí, y esa furgoneta es la del fresco del barrio, oye, qué bueno, lo
@@ -928,7 +928,7 @@ El agente de la puerta y Ciriaco se miraron, el primero con una
 sonrisa socarrona. Ciriaco se rascó el círculo depilado
 involuntariamente y en continuo aumento de su cabeza. Quique, que
 estaba por los alrededores, se asomó al portal y le hizo un gesto
-inquisitivo con la cabeza, levantándola, seguido por otro señando con
+inquisitivo con la cabeza, levantándola, seguido por otro señalando con
 la barbilla a la amalgama de dos chicas. Ciriaco abrió las manos
 indicándole que no tenía ni idea y le hizo dos gestos simétricos con
 la cabeza indicándole que se largara.
