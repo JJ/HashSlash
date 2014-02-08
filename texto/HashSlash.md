@@ -279,12 +279,12 @@ compi.
 — ¡No! - dijo el viejuno, consiguiendo finalmente levantarse y
 abriendo mucho los ojos. El otro, mientras tanto, la miraba con esas
 gafas de hipster mientras se llevaba los dedos a una de las patillas,
-la derecha, que era un poco más gorda. Para hacerle una foto, claro, a estas alturas todo el mundo sabía cómo funcionaban esas gafas de Goole. Sin saber por qué, que no le hizo maldita la gracia ser fotografiada. O no le habría hecho tratándose
+la derecha, que era un poco más gorda. Para hacerle una foto, claro, a estas alturas todo el mundo sabía cómo funcionaban esas gafas de Google. Sin saber por qué, no le hizo maldita la gracia ser fotografiada. O no le habría hecho tratándose
 de otra persona, pero qué diablos, las fotos la amaban. Estaba mona hasta con resaca. 
 
 — Vale, vale, vale. Ya está. Cuando salga el novio, o ella, o los dos, me avisáis. Y otra
-cosa no tendríais, aspirina, gelocatil. ¿Oxicodona? - dijo, mirando al
-hipster. 
+cosa no tendríais, aspirina, Gelocatil. ¿Oxicodona? - dijo, mirando al
+hipster con una mueca un tanto sarcástica. 
 
 — No, Tina. Nada. Ya lo siento -, le dijo sonriendo. Seguro
 que estuvo en la fiesta, si no, ¿cómo sabía su nombre? O se lo habría
@@ -478,13 +478,13 @@ momento consolación de damisela en apuros tenía su gracia, pero para
 eso estaba su compañero que tenía más experiencia en el tema y ninguna
 posibilidad de sacar provecho de la situación. 
 
-—Qué buen rato hemos echado-, dijo Roble.- ¿Me pasas tu número de teléfono?
+—Bien-, dijo Roble.- ¿Tu contacto?
 
 Todavía no habían empezado el interrogatorio *oficial*, ni se
 consideraba testigo ni ninguna otra figura procesal. ¿Por qué no iba a
 poder quedar con ella y lo que surgiera? Se dieron la mano para que
-sus pulseras intercambiaran los datos de contacto; Roble dejó la suya
-unos segundos más de lo estrictamente necesario y Tina no hizo ademán
+sus pulseras intercambiaran los datos de contacto; Roble dejó
+su mano entrelazada unos segundos más de lo estrictamente necesario. Tina no hizo ademán
 de soltarse. 
 
 Matar
@@ -805,7 +805,7 @@ demanda es el texto, ¿sabes?. Más portable, más ubicuo, más modos de
 interacción. Más largo, más oportunidades de interacción, más
 posibilidades de viralidad, ¿no?
 
-Su compañero o compañera emitió un sonido de continuidad de la
+Su compañero o compañera emitió un sonido para indicar continuidad en la
 comunicación. Quien hablaba, una persona que, por la voz, podría tener
 tanto la edad de Ciriaco como la de Roble, continuaba. Las gafas de
 Roble habían recolectado las firmas electrónicas de todo el mundo y ya
@@ -824,7 +824,7 @@ Asterisco.
 
 —Además, lo mejor de los libros es que la gente *no los lee*, ¿te das
 cuenta? Satisfacen su necesidad inmediata de adquirir algo, por poco
-dinero, o de poseer y pueden vanagloriarse de ello en las redes
+dinero, o de poseerlo para poder vanagloriarse de ello en las redes
 sociales, ¿sabes? 
 
 Roble se entretuvo mirando el perfil de la chica muerta, Demelza. Ahí
@@ -933,7 +933,7 @@ la barbilla a la amalgama de dos chicas. Ciriaco abrió las manos
 indicándole que no tenía ni idea y le hizo dos gestos simétricos con
 la cabeza indicándole que se largara.
 
-##Vuelta al ruedo
+## Vuelta al ruedo
 
 —¿Quién es la muerta? - preguntó Roble.
 
@@ -975,7 +975,7 @@ atención a la jueza, - dijo, con un gesto de perplejidad. -
 Que es donde hemos encontrado este DNI,
 o sea que era de la muerta.
 
-Roble miró.
+Roble miró el DNI y le hizo una mueca a Ciriaco. 
 
 —La de verdad. A partir de ahora, la muerta de verdad será la muerta
 de verdad. La otra, sólo *la muerta*. 
@@ -984,7 +984,7 @@ de verdad. La otra, sólo *la muerta*.
 
 —Ni peros ni manzanas. Yo me entiendo. 
 
-Roble miró de reojo a Tina, que apoyada en una pared, charlaba
+Roble miró de reojo a Tina que, apoyada en una pared, charlaba
 animadamente con Demelza. Esta, sin embargo, miraba con cierto
 nerviosismo hacia la puerta del pasillo que daba a su habitación,
 de donde procedían ruidos de frotar de plásticos, de fotos disparadas
@@ -1013,12 +1013,13 @@ relativamente novata que Roble veía por primera vez. Venían cargados
 con una bolsa reutilizable del Mercadona en la que ponía PRUEBAS
 escrito en rotulador. 
 
-—Ya avisamos nosotros a los de la furgoneta de fiambres, - dijo él. 
+—Ya avisamos nosotros a los de la furgoneta de los fiambres, - dijo el
+agente. 
 
 Salieron en un momento era espacial, con los trajes de papel, que
 Roble se moría por fotografiar pero que en esta ocasión no había
 estado suficientemente rápido como para hacerlo. Sus neuronas le
-estaban traicionando. 
+estaban fallando, malditas. 
 
 Pasaron al lado de las dos chicas diciéndole, de una forma un tanto
 automática, “Mi pésame“. Tina soltó una risita. Demelza la miró,
@@ -1026,8 +1027,11 @@ poniendo inmediatamente los ojos en blanco.
 
 Al momento salieron la jueza y el secretario. 
 
-—Esto está listo-, dijo el secretario. La jueza estaba blanca, pero
-recuperó el color rápidamente. 
+—Esto está listo-, dijo el secretario. La jueza estaba blanca y además
+era Blanca, pensó Roble, una ocasión propicia para que un hipotético
+extranjero presente tradujera correctamente *is* dijera lo que dijera. Pero
+recuperó el color rápidamente, dejando al extranjero con el dilema de
+decir “estar“ donde deberería haber dicho “ser“ o al revés. 
 
 —En cuanto que sepáis algo, me llamáis. Ciriaco, ¿no? - Ciriaco
 asintió. - Pasadme los teléfonos por si os tengo que llamar. ¿Se os
@@ -1217,7 +1221,7 @@ todavía no sabe cómo funciona el mundo".
 Ciriaco, en realidad, pensaba que tenían razón. Si lo supiera, no se
 lo iba a contar. Pero él entró en la policía de esa forma, muchos años
 de academia y de gimnasio, muchas horas de juventud perdidas. Si había
-otra forma, él no lo sabía. Pero no creía que la hubiera.  Por eso
+otra forma, él no la conocía. Pero no creía que la hubiera.  Por eso
 tenían razón en lo segundo que pensaban. Con los años que tenía y
 todavía no sabía cómo funcionaba el mundo.
 
@@ -1236,42 +1240,49 @@ producido entre las dos y las tres de la mañana.
 
 Así que se había dedicado a procesar y etiquetar todas las fotos de la
 fiesta publicadas en las diferentes redes sociales. No él,
-claro. Tenía una serie de servicios en la nube, algunos no exactamente
+claro. Usaba una serie de servicios en la nube, algunos no exactamente
 legales, que hacían eso por ti. Recortar caras, buscar referencias,
 nombre de la cara y una línea temporal de lo publicado y de lo que se
 podía averiguar sin haber publicado. 
 
-Había habido veinticinco personas antes de las tres, veintitrés
+Habían pasado treinta personas por la fiesta antes de las tres, veintitrés
 después. Varios sin identificar, porque aparecían en todas las fotos
-de espaldas o, simplemente, porque no tenían ninguna foto publicada
+de espaldas o, simplemente, porque no tenían ninguna foto publicada y
+asociada a un perfil
 que permitiera hacerlo.
 
 Como en el chiste en que la persona busca las llaves debajo de la
 farola porque hay más luz, estaba tratando de concentrarse en las
-personas que sí conocían. Un chico y una chica. El chico era joven, un
+personas que sí lo estaban y que además conocían a la chica muerta. A
+la de verdad, se recordó a sí mismo. Un chico y una chica. El chico era joven, un
 estudiante Erasmus de Eslovenia, Jože Türk. Una incógnita. Tendría que
 ir a visitarlo. La chica, Lola Gil Mas, no era estudiante ni se
-dedicaba, aparentemente, a nada, aparecía con la camiseta de una
-discoteca, de azafata de congresos. Iría a visitarla. 
+dedicaba, aparentemente, a nada, aparecía con la camiseta con el
+logotipo de una
+discoteca en un selfie, de azafata de congresos. También tendría que verla. 
 
 Les había mandado sendos mensajes, preguntándoles cuando podía
 verlos. Todavía no había recibido respuesta. Pero había continuado
 trazando la red social de la chica que, eventualmente, había resultado
-muerta, a quién conocía, qué tipo de relación tenía. Y mirando fotos
-de la escena del crimen. De las que tomó el equipo de criminalística
+muerta, a quién conocía, qué tipo de relación tenía con ellos. Y mirando fotos
+de la escena del crimen. De las que tomó el equipo de criminalística y
+que aparecían en el informe
 también pasó unas cuantas a sus contactos, lo que le reportó unos
 bitcoins más para su cuenta particular. 
 
-Todo eso tampoco le había reportado demasiado tiempo. Lo que estaba
+Todo eso tampoco le había demorado demasiado tiempo. El “lío“ en el
+que estaba y que le había transmitido a Tina, lo que estaba
 haciendo, realmente, era escribir. Quería acabar otra novela para
 publicarla antes de final de mes. Si no mantenías un ritmo de
-publicación continuo los lectores te acaban abandonando. Y él no
-quería que eso sucediera. 
+publicación continuo los lectores te acababan abandonando. Y él no
+quería que eso sucediera. Pero Tina le volvió a mandar un mensaje.
 
 “Y yo sola en el [Jaraiz](http://detapeoporgranada.blogspot.com.es/2010/04/jaraiz-editado.html)“ Era un bar del Realejo, no demasiado lejos de
 la comisaría; Roble lo conocía bien. “Tú verás.“
 
-Es posible que tuviera que salir ya. La víctima de la novela que
+El colocar la decisión en sus manos indicaba una ventana tamporal que
+tendría que aprovechar, así que decidió prepararse para salir. En ese
+momento, la víctima de la novela que
 estaba escribiendo contaba cómo veía, a través de la ventana abierta de la
 casa de su
 vecino, un expositor con una colección de sierras mecánicas. No todas
@@ -1279,20 +1290,23 @@ ellas limpias. Limpias de polvo, se entendía. Pero quizás era muy
 obvio que ahora el vecino llegara y viera al otro vecino viéndolo...
 
 Necesitaba otro enfoque. Y si Tina no se lo daba, él sí iba a darle a
-ella algo. Le mandó un mensaje de vuelta.
+ella algo si se lo permitía. Le mandó un mensaje de vuelta.
 
 “Estoy ahí en quince minutos.“
 
 ## Mientras tanto, en un lugar de la periferia granadina
 
-Ciriaco hizo inventario de los miembros de su familia, visitándolos
+Ciriaco llegó a su casa e hizo inventario de los miembros de su
+familia, visitándolos
 uno por uno. En el salón, su
 mujer leía un bestseller. Su hijo mayor, en su cuarto, escuchaba
 música y hablaba por el móvil. Su hijo pequeño jugaba con la consola
-portátil. Cómo ha ido el día, bien, bien. sonrisas con arrugas, besos secos. 
+portátil. Cómo ha ido el día, bien, bien. sonrisas con arrugas, besos
+secos, cariños unilaterales. 
 
-Se hizo un bocadillo de jamón y se lo tomó con una cerveza. Tiró la cerveza que le sobraba, puso el cubierto en el lavavajillas y se fue a
-su cuarto y se puso la serie policíaca que estuvieran echando en ese
+Se fue a la cocina, se hizo un bocadillo de jamón y se lo tomó con una
+Alhambra. Cuando terminó, tiró la cerveza que le sobraba por el fregadero, puso el cubierto en el lavavajillas y se fue a
+su cuarto. Se puso la serie policíaca que estuvieran echando en ese
 momento, una serie coreana titulada “Mala gente“. Se durmió antes del
 informe del forense.
 
@@ -1316,14 +1330,14 @@ Paul Theroux.
 
 ## Nuboso, con posibilidad de polvo
 
-Roble se puso los auriculares para que el móvil le leyera el completo
+Roble se puso los auriculares para que el móvil le leyera al completo
 el informa del forense según bajaba la cuesta para encontrarse con
 Tina. Nada de tóxicos más allá de lo esperable tras una fiesta, nada
 de signos de violación, ni rastros de maltrato habitual excepto una
 fractura soldada tiempo atrás. No había restos de piel bajo las uñas,
 saliva en ningún sitio. El asesino, o quizás la asesina, había
-llegado, la había apuñalado por la espalda y se había largado. O se
-había quedado a verla desangrarse, lentamente, viendo cómo el charco
+llegado, la había apuñalado por la espalda sin que ella reaccionara y se había largado. O se
+había quedado a verla desangrarse, lentamente, contemplando  cómo el charco
 de sangre se expandía hasta que el corazón dejaba de latir y ya dejaba
 de expandirse con cada latido, simplemente fluía mansamente fuera del
 cuerpo. 
@@ -1340,11 +1354,15 @@ publicidad. ¿Qué nos decía todo esto del asesino?
 Roble tenía un app que perfilaba a los posibles sospechosos a partir
 de los datos conocidos del crimen. También había hecho
 [algún curso online sobre análisis de escena del crimen](http://www.strath.ac.uk/press/newsreleases/headline_746589_en.html). Pero
-aquí se podía aplicar el sentido común. Un ejercicio vano, porque el
+aquí se podía aplicar el sentido común. Que podía ser un ejercicio vano, porque el
 libro sobre el sentido común de los asesinos todavía no estaba
 escrito. Pero, ante la falta de experiencia de Roble en la
 investigación de asesinatos, era lo único a lo que podía recurrir. Así
-que decidió fijarse especialmente en el Erasmus esloveno. 
+que decidió fijarse especialmente en el Erasmus esloveno, el colectivo
+de las animadoras de discoteca y azafatas de congresos no se suele
+caracterizar por sus instintos asesinos. Y los eslovenos... bueno, son
+eslovenos. Tendría que entrevistarlo. Mañana,
+claro. 
 
 Llegaba ya al Jaraiz, atravesando calles vacías con ventanas cerradas,
 callejones que olían a humedad y a meados con carteles que, desde sus
@@ -1690,6 +1708,16 @@ delegó en el cuerpo la mayor parte de sus funciones. Roble sólo dijo:
 
 —Bien.
 
+Demelza a horcajadas sobre su pecho, alzó los brazos. En una mano
+tenía una máscara brillante, cromada, con aristas y agujeros para la
+boca y los ojos. Le pidió que se la pusiera. Cuando se la hubo puesto,
+se inclinó y sacó de su bolso, en la mesita de noche, un sobre
+cuadrado, plateado, con un preservativo. Roble lo abrió y sacó de él
+un objeto brillante, cromado, que al desenrrollarse y ponerse en el
+miembro se convirtió en una escultura fálica metálica. Y con LEDs.
+
+— Piezoeléctricos - dijo ella.
+
 ## Despertar
 
 Ciriaco se despertó con unas ingentes ganas de orinar. O eso o un
@@ -1705,9 +1733,9 @@ recordaría mañana cuando se pusiera a ello. O no.
 
 ## El sexo y la razón
 
-Roble, en sus limitadas pero abundantes relaciones con mujeres había
+Roble, en sus limitadas temporalmente pero abundantes relaciones con mujeres había
 aprendido que siempre había una razón para el sexo. A veces, varias,
-pero sólo una. Era un trabajo deductivo, que no seductivo, buscar esa
+pero, generalmente,  sólo una. Averiguarlo era un trabajo deductivo, que no seductivo: buscar esa
 razón. 
 
 Pero generalmente hacía ese trabajo deductivo *antes* del sexo, con el objetivo
