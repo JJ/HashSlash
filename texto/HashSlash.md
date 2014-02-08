@@ -794,11 +794,13 @@ persona sin grandes enemistades ni, aparentemente, amistades,
 categorías 
 ambas que podían pasar a la de asesinos fácilmente. 
 
-Mientras pensaba esto, escuchaba la conversación en el asiento de
-atrás. 
+Mientras pensaba esto, escuchaba la conversación que se desarrollaba en el asiento de
+atrás. Que es algo, pensó Roble, que las redes sociales nunca podrían
+emular. Legalmente, al menos.
 
 —No, los vídeos son muy de principio de década. Ahora lo que la peña
-demanda es el texto, ¿sabes?. Más portable, más ubicuo, más modos de
+demanda es el texto, ¿sabes?. Más portable, más ubicuo, más profundo,
+más modos de
 interacción. Más largo, más oportunidades de interacción, más
 posibilidades de viralidad, ¿no?
 
