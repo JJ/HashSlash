@@ -12,7 +12,8 @@ WriteMakefile(
         'Test::More' => 0,
         'version'    => 0,
 	'File::Slurp' => 0,
-	'Text::Hunspell' => 2.08
+	'Cwd' => 0,
+	'Text::Aspell' => 0
     },
     dist                => { COMPRESS => 'gzip -9f', SUFFIX => 'gz', },
     clean               => { FILES => 'Text-HashSlash-*' },
