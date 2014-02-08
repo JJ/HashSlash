@@ -839,7 +839,9 @@ sentimientos* parecía también bastante popular, y *Fundiéndote la
 EPROM* también. Había más de una docena, todos con un éxito
 considerable. Consultó los resúmenes, todos muy parecidos, mujer
 arrastrada por una pasión por lo cibernético y atrapada por el amor
-mecánico que, finalmente, acaba reprogramándolo. *Mecaporno*, en
+mecánico que, finalmente, acaba reprogramando. O, quizás,
+reprogramándola a ella. O reprogramándosse mutuamente. Había
+programación, en todo caso. Y amantes *verdaderamente* incansables. *Mecaporno*, en
 resumen. Y, aparentemente, del bueno, por los puestos de ventas en los
 que se situaba. 
 
