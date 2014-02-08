@@ -1030,7 +1030,7 @@ Al momento salieron de la habitación del crimen la jueza y el secretario.
 —Esto está listo-, dijo el secretario. La tez de la jueza estaba blanca y además
 era Blanco, pensó Roble, una ocasión propicia para que un hipotético
 extranjero presente tradujera incorrectamente *is* cualquier cosa que
-pretendiera decir, “está usted Blanco“ o “es usted Blanca“. Pero
+pretendiera decir, “está usted Blanco“ o “es usted blanca“. Pero
 recuperó el color rápidamente, dejando al hipotético extranjero con el dilema de
 decir “estar“ donde debería haber dicho “ser“ o al revés. 
 
@@ -1808,6 +1808,96 @@ Cabezada, tenía que ser cabezada. No, lomo. ¿O lomo y cabezada?
 
 Código bla bla bla artículo bla bla bla caso bla bla bla sentencia bla
 bla bla.
+
+## El vecino
+
+Roble estaba fuera de turno, pero se pasó por la comisaría para ver si
+había llegado algún informe nuevo. Había cierta gente que se negaba a
+dejar nada en un servidor web o enviarla por correo electrónico, así
+que algunas veces no quedaba más remedio. Y luego, estaba la ley de
+protección de datos, que, en general, hacía más difícil acceder a
+información en la comisaría que comprarla o buscarla en la web
+profunda. Pero a veces no había más remedio que usar la de la
+comisaría, porque era la única que tenía valor probatorio. Y, al
+final, saber quién era el malo estaba bien, pero lo que realmente le
+ponía cachondo a Roble era que el mismo perpetrador, y todo el mundo,
+supieran que había sido el propio Roble el que había conseguido las
+pruebas, tirado del hilo, andado el camino que lleva a la condena.
+
+Porque solía ser Roble. Ciriaco... Ciriaco estaba ahí, cumplía su
+trabajo, también andaba el camino, pero nunca había ideas,
+asociaciones, saltos lógicos. De hecho, a veces ni siquiera estaba
+ahí. Cuando no era su turno, o cuando era su turno y tenía su mente en
+alguna clase o en algún otro manual para preparar oposiciones. Que
+era probablemente lo que estaba haciendo ahora.
+
+Había una cosa que le preocupaba. En la web profunda, las apuestas en `whodunnit.onion` pagaban 3 a 1 el que eventualmente fuera Demelza la
+asesina. Tina iba 25 a 1, y otros asistentes a la baja. Jože el
+esloveno estaba escalando desde el 30 a uno, y ya se pagaba 29 a
+2. Lola no aparecía. Tampoco aparecían ni él ni Ciriaco, lo que era
+todo un alivio.
+
+Que la gente apostara por que Demelza era la asesina tampoco tenía que
+significar nada. Pero esas apuestas eran como un *crowdsourcing* de la
+investigación criminal. La gente se jugaba su propio dinero, y por no
+perder ese dinero estaba dispuesta a dedicar bastante esfuerzo con el
+objetivo de no perderlo. Y ese dinero, ahora mismo, apostaba por la
+escritora de mecaporno. 
+
+Que, por cierto, había recibido una buena cantidad de mensajes y de
+llamadas de la chica muerta. ¿Cómo se llamaba? Chica Muerta. Misterio
+que Resolver. Qué más daba. Importaba el hecho. Envió un *doodle* a
+Demelza pidiéndole horas posibles para encontrarse *de forma
+oficial*. Tina... Tina no merecía la pena. Había merecido, pero no
+volvía a merecerla. Bloqueó sus contactos por si en algún momento se
+volvía a acordar de él.
+
+La azafata de congresos le había contestado preguntándole quién era,
+pidiéndole una foto y diciéndole que se podían ver cualquier noche. El
+chico esloveno no había contestado ni había tenido ninguna actividad
+online desde el propio día de la fiesta. 
+
+Recibió una llamada. Era un número interno, de alguien de la casa. 
+
+—Roble Sáenz. - dijo.
+
+—Oye, agente Guerrero aquí. He pasado a echar un vistazo a los
+precintos de Carretera de la Sierra, lo llevas tú, ¿no?
+
+—Sí.
+
+—No, los precintos están bien, no te preocupes, nada por ahí, pero
+dice la jueza que se levanten mañana, ¿no? ¿Es mañana, Torres? - dijo,
+sonando como si hubiera alejado un poco la boca del micrófono, “Sí,
+eso“ - o sea, mañana. Bueno, que me he encontrado a un menda aquí,
+saliendo del bloque. ¿No estaba desocupado?
+
+—Según nos dijeron... -, contestó Roble.
+
+—Bueno, pues parece que está okupado, oye, qué bueno, Torres - “Sí, me
+parto el pecho, ja, ja“, se oyó tenuemente - el menda este, oye, tú,
+¿cómo te llamas? - hubo una pausa y unos susurros. - No lo
+entiendo. Pero vamos, que el tío estaba viviendo enfrente. ¿Has mirado
+los antecedentes, Torres? - “Míralos tú“ - Que no puedo, que lo tengo
+a este pillado, coño, Torres, joder, que es un momento...
+
+—¿Lo podéis traer? - dijo Roble.
+
+—¿Detenido?
+
+
+—No,  a declarar sólo.
+
+—¿Y si no quiere? - preguntó el agente
+
+—No pasa nada, voy yo. 
+
+—Pues no quiere.
+
+—Ya voy -, dijo Roble. 
+
+—Joder, y yo de niñera mientras, me cago en diez. ¡Torres! ¿Me miras
+los antecedentes, joder?
 
 ## Encontrando el camino
 
