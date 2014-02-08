@@ -1018,16 +1018,17 @@ Roble se moría por fotografiar pero que en esta ocasión no había
 estado suficientemente rápido como para hacerlo. Sus neuronas le
 estaban fallando, malditas. 
 
-Pasaron al lado de las dos chicas diciéndole, de una forma un tanto
+Pasaron al lado de las dos chicas diciéndoles, de una forma un tanto
 automática, “Mi pésame“. Tina soltó una risita. Demelza la miró,
 poniendo inmediatamente los ojos en blanco.
 
-Al momento salieron la jueza y el secretario. 
+Al momento salieron de la habitación del crimen la jueza y el secretario. 
 
-—Esto está listo-, dijo el secretario. La jueza estaba blanca y además
-era Blanca, pensó Roble, una ocasión propicia para que un hipotético
-extranjero presente tradujera correctamente *is* dijera lo que dijera. Pero
-recuperó el color rápidamente, dejando al extranjero con el dilema de
+—Esto está listo-, dijo el secretario. La tez de la jueza estaba blanca y además
+era Blanco, pensó Roble, una ocasión propicia para que un hipotético
+extranjero presente tradujera incorrectamente *is* cualquier cosa que
+pretendiera decir, “está usted Blanco“ o “es usted Blanca“. Pero
+recuperó el color rápidamente, dejando al hipotético extranjero con el dilema de
 decir “estar“ donde debería haber dicho “ser“ o al revés. 
 
 —En cuanto que sepáis algo, me llamáis. Ciriaco, ¿no? - Ciriaco
