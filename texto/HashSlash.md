@@ -1824,7 +1824,8 @@ mañana.
 
 Tenía una palabra en la mente cuando se despertó: Shiseido. Una marca
 de cosméticos que usaba con cierta frecuencia, pero que había dejado
-de usar últimamente, Tactics, se llamaba. ¿Por qué la dejó de usar? No
+de usar últimamente. Tactics, se llamaba el producto, o Strategics,
+algo así. ¿Por qué la dejó de usar? No
 lo recordaba. ¿A qué olía? Tampoco lo recordaba. A colonia. A
 japonés. A. 
 
@@ -1878,7 +1879,7 @@ supieran que había sido el propio Roble el que había conseguido las
 pruebas, tirado del hilo, andado el camino que lleva a la condena.
 
 Porque solía ser Roble. Ciriaco... Ciriaco estaba ahí, cumplía su
-trabajo, también andaba el camino, pero nunca había ideas,
+trabajo, también andaba el camino, o al menos movía las piernas, pero nunca había ideas,
 asociaciones, saltos lógicos. De hecho, a veces ni siquiera estaba
 ahí. Cuando no era su turno, o cuando era su turno y tenía su mente en
 alguna clase o en algún otro manual para preparar oposiciones. Que
