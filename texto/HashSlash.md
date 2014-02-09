@@ -1812,7 +1812,56 @@ bla bla.
 
 ## El vecino
 
-Roble estaba fuera de turno, pero se pasó por la comisaría para ver si
+Las ventanas del cuarto de Roble estaban orientadas al este y desde
+ellas veía el sol salir sobre Sierra nevada y otras cosas que merecían, casi siempre, unas
+docenas de “Me gusta“ en su Instagram personal, el de los selfies e
+imágenes *urban*. En esta ocasión, el sol se introdujo en un
+interludio entre las nubes y lo despertó antes de las diez de la
+mañana. 
+
+Tenía una palabra en la mente cuando se despertó: Shiseido. Una marca
+de cosméticos que usaba con cierta frecuencia, pero que había dejado
+de usar últimamente, Tactics, se llamaba. ¿Por qué la dejó de usar? No
+lo recordaba. ¿A qué olía? Tampoco lo recordaba. A colonia. A
+japonés. A. 
+
+Se puso a buscar su línea temporal a ver qué le decía. *Ego-mining*,
+la solución cuando la memoria falla y la memoria tiene que fallar
+tarde o temprano. Hacía unos años,
+sí. [Zen for men](http://www.shiseido.es/#/men/zen-for-men). Pero ¿por
+qué había saltado esa alerta, temprana por la hora, en este momento?
+
+Se tomó un zumo de granadas mientras se hacía un café en su Krupp, añadiéndole un cristal de azúcar morena y
+un poco de leche de almendras. Le gustaba cómo las notas amargas de
+uno jugaban con las de otro. Y además, era original. Dejó que las
+noticias y alertas diversas atacaran su pulsera, dedicándoles sólo un
+poco de atención mientras miraba por el ventanal de su casa, viendo la
+saturación de la ciudad, a sus pies, aumentar poco a poco, hasta que
+no parecía una foto Lomo sino algo real y, por tanto, empezaba a
+necesitar algún filtro. La realidad, de por sí, era poco fotogénica. No juntaría
+más de un par de *me gustas* en cualquier sitio. 
+
+Se puso las gafas de Google para ir a correr. A veces aparecía algo
+interesante y sólo tenía que guiñar el ojo para capturarlo. Y un año
+atrás la gente de su barrio lo había mirado con extrañeza. Parecía una
+prótesis retrofuturista. Pero poco a poco dejaron de prestarle
+atención. Tomó, como era habitual, la cuesta del Barranco del Abogado
+hacia arriba, pasó el cementerio, siguió hasta el Llano de la Perdiz y
+allí se paró, mirando hacia el Albayzín, buscando el rayo de luz, la
+nube, el momento que pudiera capturar y subir a Instagram. En este
+Instagram, en el personal, sólo capturaba *me gustas*. Era con el otro
+con el que conseguía dinero. Las dos cosas le resultaban
+satisfactorias. Al menos, los *me gustas* no se devaluaban como los
+bitcoins que recolectaba con el otro.
+
+Bajó andando hacia su casa, más relajado, parando un par de veces para
+revisar lo capturado y subir alguna foto. Seleccionó un par, una de
+ellas con gatos y las subió. Cuando llegó a su casa ya tenía treinta
+*me gusta*. En la de los gatos, claro.
+
+Roble estaba fuera de turno, pero tras desayunar tostadas con flor de
+sal del Himalaya y aceite de oliva virgen extra extraído en frío
+armenio se pasó por la comisaría para ver si
 había llegado algún informe nuevo. Había cierta gente que se negaba a
 dejar nada en un servidor web o enviarla por correo electrónico, así
 que algunas veces no quedaba más remedio. Y luego, estaba la ley de
@@ -1860,7 +1909,7 @@ online desde el propio día de la fiesta.
 
 Recibió una llamada. Era un número interno, de alguien de la casa. 
 
-—Roble Sáenz. - dijo.
+—Roble Sáenz -, dijo.
 
 —Oye, agente Guerrero aquí. He pasado a echar un vistazo a los
 precintos de Carretera de la Sierra, lo llevas tú, ¿no?

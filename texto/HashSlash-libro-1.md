@@ -817,11 +817,13 @@ persona sin grandes enemistades ni, aparentemente, amistades,
 categorías 
 ambas que podían pasar a la de asesinos fácilmente. 
 
-Mientras pensaba esto, escuchaba la conversación en el asiento de
-atrás. 
+Mientras pensaba esto, escuchaba la conversación que se desarrollaba en el asiento de
+atrás. Que es algo, pensó Roble, que las redes sociales nunca podrían
+emular. Legalmente, al menos.
 
 —No, los vídeos son muy de principio de década. Ahora lo que la peña
-demanda es el texto, ¿sabes?. Más portable, más ubicuo, más modos de
+demanda es el texto, ¿sabes?. Más portable, más ubicuo, más profundo,
+más modos de
 interacción. Más largo, más oportunidades de interacción, más
 posibilidades de viralidad, ¿no?
 
@@ -859,7 +861,9 @@ sentimientos* parecía también bastante popular, y *Fundiéndote la
 EPROM* también. Había más de una docena, todos con un éxito
 considerable. Consultó los resúmenes, todos muy parecidos, mujer
 arrastrada por una pasión por lo cibernético y atrapada por el amor
-mecánico que, finalmente, acaba reprogramándolo. *Mecaporno*, en
+mecánico que, finalmente, acaba reprogramando. O, quizás,
+reprogramándola a ella. O reprogramándosse mutuamente. Había
+programación, en todo caso. Y amantes *verdaderamente* incansables. *Mecaporno*, en
 resumen. Y, aparentemente, del bueno, por los puestos de ventas en los
 que se situaba. 
 
@@ -1041,16 +1045,17 @@ Roble se moría por fotografiar pero que en esta ocasión no había
 estado suficientemente rápido como para hacerlo. Sus neuronas le
 estaban fallando, malditas. 
 
-Pasaron al lado de las dos chicas diciéndole, de una forma un tanto
+Pasaron al lado de las dos chicas diciéndoles, de una forma un tanto
 automática, “Mi pésame“. Tina soltó una risita. Demelza la miró,
 poniendo inmediatamente los ojos en blanco.
 
-Al momento salieron la jueza y el secretario. 
+Al momento salieron de la habitación del crimen la jueza y el secretario. 
 
-—Esto está listo-, dijo el secretario. La jueza estaba blanca y además
-era Blanca, pensó Roble, una ocasión propicia para que un hipotético
-extranjero presente tradujera correctamente *is* dijera lo que dijera. Pero
-recuperó el color rápidamente, dejando al extranjero con el dilema de
+—Esto está listo-, dijo el secretario. La tez de la jueza estaba blanca y además
+era Blanco, pensó Roble, una ocasión propicia para que un hipotético
+extranjero presente tradujera incorrectamente *is* cualquier cosa que
+pretendiera decir, “está usted Blanco“ o “es usted blanca“. Pero
+recuperó el color rápidamente, dejando al hipotético extranjero con el dilema de
 decir “estar“ donde debería haber dicho “ser“ o al revés. 
 
 —En cuanto que sepáis algo, me llamáis. Ciriaco, ¿no? - Ciriaco
