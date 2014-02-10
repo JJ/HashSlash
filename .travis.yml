@@ -1,0 +1,10 @@
+branches:
+  except:
+    - gh-pages
+language: perl
+perl:
+  - "5.16"
+before_install:
+  - sudo apt-get install aspell-es libaspell-dev
+  - cd Text-HashSlash
+script: "perl Makefile.PL && make test"

@@ -3,6 +3,29 @@
 <h1>#slash</h1>
 
 
+## Prólogo
+
+Este es el primer libro de [HashSlash](http://jj.github.io/HashSlash),
+una novela por entregas, a modo *pulp*, que se desarrolla en Granada y
+entre policías y escritores. O quizás sólo escritores. 
+
+La novela es
+[libre con una licencia  cc-by-sa 3.0](http://creativecommons.org/licenses/by-sa/3.0/)
+y además [de fuentes abiertas](http://github.com/JJ/HashSlash). Se
+está escribiendo día a día y puedes ver cómo va avanzando en
+[la web](http://jj.github.io/HashSlash/texto/HashSlash). Al ser libre,
+puedes copiarla, reproducirla y modificarla a tu gusto. Si encuentras
+algún error puedes indicármelo o corregirlo si te abres una cuenta en
+[GitHub](http://github.com). También puedes
+[usar GitHub](https://github.com/JJ/HashSlash/issues) para hacer
+preguntas, solicitar cambios o indicar errores.
+
+Como un *trabajo en curso*,  la novela no termina aquí. Continuará con
+un segundo y quizás un tercer libro, que aparecerán cada dos o tres
+meses. Mi intención es terminarla antes de final de año y publicarla
+completa en un solo fichero. Pero mientras tanto, si quieres continuar
+leyendo tendrás que acudir a la web o esperar a la salida del segundo libro.
+
 
 1: #JustABelieber - 2: #pelisconnata - 3: #nomepises - 4: #masterchef - 5: #slash
 ---
@@ -1618,13 +1641,16 @@ si conoces a alguien...
 joder, es como, para qué, si aquí lo tengo todo, tengo mi... bueno,
 mis cosas, ya sabes...
 
-—A alguien que quiera pagar... - aclaró Demelza. 
+—A alguien que quiera pagar...
 
 Tina sólo se rió, pero inmediatamente empezó a hablarle a Roble de
 algo llamado nanomateriales, lo que no tardó en provocar bostezos a
-Demelza que se propagaron inmediatamente a Kevin. Se levantaron para irse unos minutos 
- más tarde, y en el momento que Demelza le dio dos vesos a Roble le dijo,
-cuando sus labios estaban todavía cerca de su oreja
+Demelza que se propagaron inmediatamente a Kevin. Se levantaron para salir diez
+minutos más tarde. Demelza se agachó ligeramente para besar a Roble,
+un primer beso tan cerca de la comisura de sus labios que se podía
+afirmar matemáticamente que la intersección entre ambos labios no
+había sido nula, y el segundo muy cerca de la oreja, lo que le
+permitió susurrarle cuando sus labios todavía no se habían separado:
 
 —Nos veremos pronto. 
 
@@ -1782,263 +1808,6 @@ en la mesita de noche y empezó a actualizar todo lo que pudiera.
 
 —Nos veremos pronto. - oyó que decía según salía. 
 
-## El camino hacia la policía
-
-Ciriaco se aburría con la perorata de uno de sus tutorizados. Ley
-blablabla código blablabla caso blablabla. Se puso a pensar en sus
-casos. Una agresión por dos encapuchados, uno de ellos posiblemente
-una mujer, a un conductor de la Rober. Un robo en un bufete de
-abogados. El asesinato de una chica. ¿Cómo se llamaba? Demelza. No,
-esa era la chica no-muerta. No zombie, simplemente que no era ella la
-que había muerto. ¿O Demelza era la que había muerto y la otra la que
-no? 
-
-Muerta de un tajo, por cuchillo. Una carnicería. ¿Sería carnicero el
-asesino? ¿Matarife? Matarife lo era de por sí, pero ¿matarife de
-profesión? Tendría que recordar cuando entrara otra vez en el turno
-pedir una lista de los matarifes de Granada. Y provincia. ¿Y Almería?
-No, Jaén estaba mejor comunicado. ¿Córdoba? ¿Málaga? Malagueño iba a
-ser, seguro. Sevillano. Si la chica era granadina, la enemistad
-secular con los sevillanos era motivo suficiente para el asesinato. O
-al revés. ¿Era sevillana la chica? ¿Granadina? Hoy tenía que comprar
-carne, se lo había pedido su mujer. ¿Había dicho cabezada o lomo?
-Cabezada, tenía que ser cabezada. No, lomo. ¿O lomo y cabezada?
-
-Código bla bla bla artículo bla bla bla caso bla bla bla sentencia bla
-bla bla.
-
-## El vecino
-
-Las ventanas del cuarto de Roble estaban orientadas al este y desde
-ellas veía el sol salir sobre Sierra nevada y otras cosas que merecían, casi siempre, unas
-docenas de “Me gusta“ en su Instagram personal, el de los selfies e
-imágenes *urban*. En esta ocasión, el sol se introdujo en un
-interludio entre las nubes y lo despertó antes de las diez de la
-mañana. 
-
-Tenía una palabra en la mente cuando se despertó: Shiseido. Una marca
-de cosméticos que usaba con cierta frecuencia, pero que había dejado
-de usar últimamente. Tactics, se llamaba el producto, o Strategics,
-algo así. ¿Por qué la dejó de usar? No
-lo recordaba. ¿A qué olía? Tampoco lo recordaba. A colonia. A
-japonés. A. 
-
-Se puso a buscar su línea temporal a ver qué le decía. *Ego-mining*,
-la solución cuando la memoria falla y la memoria tiene que fallar
-tarde o temprano. Hacía unos años,
-sí. [Zen for men](http://www.shiseido.es/#/men/zen-for-men). Pero ¿por
-qué había saltado esa alerta, temprana por la hora, en este momento?
-
-Se tomó un zumo de granadas mientras se hacía un café en su Krupp, añadiéndole un cristal de azúcar morena y
-un poco de leche de almendras. Le gustaba cómo las notas amargas de
-uno jugaban con las de otro. Y además, era original. Dejó que las
-noticias y alertas diversas atacaran su pulsera, dedicándoles sólo un
-poco de atención mientras miraba por el ventanal de su casa, viendo la
-saturación de la ciudad, a sus pies, aumentar poco a poco, hasta que
-no parecía una foto Lomo sino algo real y, por tanto, empezaba a
-necesitar algún filtro. La realidad, de por sí, era poco fotogénica. No juntaría
-más de un par de *me gustas* en cualquier sitio. 
-
-Se puso las gafas de Google para ir a correr. A veces aparecía algo
-interesante y sólo tenía que guiñar el ojo para capturarlo. Y un año
-atrás la gente de su barrio lo había mirado con extrañeza. Parecía una
-prótesis retrofuturista. Pero poco a poco dejaron de prestarle
-atención. Tomó, como era habitual, la cuesta del Barranco del Abogado
-hacia arriba, pasó el cementerio, siguió hasta el Llano de la Perdiz y
-allí se paró, mirando hacia el Albayzín, buscando el rayo de luz, la
-nube, el momento que pudiera capturar y subir a Instagram. En este
-Instagram, en el personal, sólo capturaba *me gustas*. Era con el otro
-con el que conseguía dinero. Las dos cosas le resultaban
-satisfactorias. Al menos, los *me gustas* no se devaluaban como los
-bitcoins que recolectaba con el otro.
-
-Bajó andando hacia su casa, más relajado, parando un par de veces para
-revisar lo capturado y subir alguna foto. Seleccionó un par, una de
-ellas con gatos y las subió. Cuando llegó a su casa ya tenía treinta
-*me gusta*. En la de los gatos, claro.
-
-Roble estaba fuera de turno, pero tras desayunar tostadas con flor de
-sal del Himalaya y aceite de oliva virgen extra extraído en frío
-armenio se pasó por la comisaría para ver si
-había llegado algún informe nuevo. Había cierta gente que se negaba a
-dejar nada en un servidor web o enviarla por correo electrónico, así
-que algunas veces no quedaba más remedio. Y luego, estaba la ley de
-protección de datos, que, en general, hacía más difícil acceder a
-información en la comisaría que comprarla o buscarla en la web
-profunda. Pero a veces no había más remedio que usar la de la
-comisaría, porque era la única que tenía valor probatorio. Y, al
-final, saber quién era el malo estaba bien, pero lo que realmente le
-ponía cachondo a Roble era que el mismo perpetrador, y todo el mundo,
-supieran que había sido el propio Roble el que había conseguido las
-pruebas, tirado del hilo, andado el camino que lleva a la condena.
-
-Porque solía ser Roble. Ciriaco... Ciriaco estaba ahí, cumplía su
-trabajo, también andaba el camino, o al menos movía las piernas, pero nunca había ideas,
-asociaciones, saltos lógicos. De hecho, a veces ni siquiera estaba
-ahí. Cuando no era su turno, o cuando era su turno y tenía su mente en
-alguna clase o en algún otro manual para preparar oposiciones. Que
-era probablemente lo que estaba haciendo ahora.
-
-Había una cosa que le preocupaba. En la web profunda, las apuestas en `whodunnit.onion` pagaban 3 a 1 el que eventualmente fuera Demelza la
-asesina. Tina iba 25 a 1, y otros asistentes a la baja. Jože el
-esloveno estaba escalando desde el 30 a uno, y ya se pagaba 29 a
-2. Lola no aparecía. Tampoco aparecían ni él ni Ciriaco, lo que era
-todo un alivio.
-
-Que la gente apostara por que Demelza era la asesina tampoco tenía que
-significar nada. Pero esas apuestas eran como un *crowdsourcing* de la
-investigación criminal. La gente se jugaba su propio dinero, y por no
-perder ese dinero estaba dispuesta a dedicar bastante esfuerzo con el
-objetivo de no perderlo. Y ese dinero, ahora mismo, apostaba por la
-escritora de mecaporno. 
-
-Que, por cierto, había recibido una buena cantidad de mensajes y de
-llamadas de la chica muerta. ¿Cómo se llamaba? Chica Muerta. Misterio
-que Resolver. Qué más daba. Importaba el hecho. Envió un *doodle* a
-Demelza pidiéndole horas posibles para encontrarse *de forma
-oficial*. Tina... Tina no merecía la pena. Había merecido, pero no
-volvía a merecerla. Bloqueó sus contactos por si en algún momento se
-volvía a acordar de él.
-
-La azafata de congresos le había contestado preguntándole quién era,
-pidiéndole una foto y diciéndole que se podían ver cualquier noche. El
-chico esloveno no había contestado ni había tenido ninguna actividad
-online desde el propio día de la fiesta. 
-
-Recibió una llamada. Era un número interno, de alguien de la casa. 
-
-—Roble Sáenz -, dijo.
-
-—Oye, agente Guerrero aquí. He pasado a echar un vistazo a los
-precintos de Carretera de la Sierra, lo llevas tú, ¿no?
-
-—Sí.
-
-—No, los precintos están bien, no te preocupes, nada por ahí, pero
-dice la jueza que se levanten mañana, ¿no? ¿Es mañana, Torres? - dijo,
-sonando como si hubiera alejado un poco la boca del micrófono, “Sí,
-eso“ - o sea, mañana. Bueno, que me he encontrado a un menda aquí,
-saliendo del bloque. ¿No estaba desocupado?
-
-—Según nos dijeron... -, contestó Roble.
-
-—Bueno, pues parece que está okupado, oye, qué bueno, Torres - “Sí, me
-parto el pecho, ja, ja“, se oyó tenuemente - el menda este, oye, tú,
-¿cómo te llamas? - hubo una pausa y unos susurros. - No lo
-entiendo. Pero vamos, que el tío estaba viviendo enfrente. ¿Has mirado
-los antecedentes, Torres? - “Míralos tú“ - Que no puedo, que lo tengo
-a este pillado, coño, Torres, joder, que es un momento...
-
-—¿Lo podéis traer? - dijo Roble.
-
-—¿Detenido?
-
-—No,  a declarar sólo.
-
-—¿Y si no quiere? - preguntó el agente
-
-—No pasa nada, voy yo. 
-
-—Pues no quiere.
-
-—Ya voy -, dijo Roble. 
-
-—Joder, y yo de niñera mientras, me cago en diez. ¡Torres! ¿Me miras
-los antecedentes, joder?
-
-## Encontrando el camino
-
-La labor de un escritor es hacer que sus personajes encuentren su
-propio camino en el mundo que ha creado para ellos. Ese es el
-problema. Estos lituanos tenían ya el mundo creado y han sido
-incapaces de encontrar el camino que los lleve a una chica española,
-con pinta de chica española, que habla español y que va dejando todo
-tipo de pistas de por dónde anda por Vilna y las excursiones que hace
-a Riga e incluso cuando se acercó a Kiev a hacer a saber qué.  
-
-"Que no la encontramos, jefe", insisten, mientras simultáneamente piden dinero, más dinero, siempre dinero. Dinero que no tengo y que no tendré si no consigo el contrato. Porque uno escribe para que le quieran, pero yo no escribo, lo hacen por mi mis Ivanes y Alexis y Yaivan allende el Atlántico y además, lo hago por el dinero. Y la fama. Y el dinero. Para hacer una gran novela, hace falta una gran muerte.
-
-Y estos lituanos son incapaces de proporcionármela. Lo tendré que hacer yo solo.
-
-Y volando en bajo coste. 
-
-
-## Volando voy, volando vengo
-
-Hay personas en el mundo cuyo único propósito en la vida parece ser banalizar todo lo que pueda tener glamour u ofrecer algo de lujo a las grises y uniformes vidas de los mortales. Crear diamantes en una fábrica, en vez de en las entrañas de la Tierra. Cruceros con bufé libre, en vez del oropel de las comidas a mesa y mantel con el capitán y los hundimientos por colisión con iceberg. 
-
-Y volar. 
-
-Volar puede ser lujoso, cómodo, una experiencia guardada en los
-anaqueles de ese sitio feliz al que uno va cuando su entorno o
-circunstancias se lo aconsejan. Pues el señor Ryan, el señor Easy y
-algunos otros señores se han dedicado a extraer de ellos cualquier
-brizna de comodidad, de tranquilidad. 
-
-De pudor.
-
-El viaje a Lituania pasaba por muchos países que no conocía y que
-nunca, si las circunstancias hubieran sido otras, habría querido
-visitar. Me ofrecía cierto consuelo el hecho que, de ese país, iba a
-conocer sólo el hecho de que los guardias de fronteras, si es que
-todavía tenían, usaran gorras perfectamente circulares u
-ovoides. Algunos países lo más que pueden ofrecerte es una estancia
-breve y aislada en un aeropuerto breve y aislado de los que suele
-frecuentar Ryanair.
-
-Cuando los frecuenta, claro, y no cancela sin ningún pudor el vuelo
-alegando escasez de pasaje. Cosa, por otro lado, totalmente
-natural. ¿Quién va a querer volar al lago Balatón en pleno mes de
-enero? Uno se lo imagina azotado por las ventiscas, con el esqueleto grisáceo
-de un navío gangrenado deshaciéndose en sus orillas, y sombras
-oscilantes que, en la distancia, pueden ser icebergs o algún
-francotirador soviético buscando capitalistas que matar por desconocer
-que la guerra fría terminó, empezó y al parecer terminó de nuevo.
-
-Impúdico es volar allí, impúdico es impedir hacerlo. "Le devolvemos el
-dinero". Me dijeron. "Lo verá en su tarjeta de crédito el mes que
-viene". 
-
-Lo que me dejaba aún con menos dinero. No es que me quedara poco. Es
-que, eventualmente, el retorno de inversión y las molestias
-ocasionadas por este trabajo literario podían ser demasiado escasas
-para seguir con él. 
-
-Pero todavía no habíamos llegado a ese punto. Así que me dirigí a la
-agencia de viajes que siempre suele haber, o solía haber, en los
-aeropuertos para evitar a gente que valora su tiempo y su salud, como yo,
-deterioro de la vista por el uso de aparatos electrónicos y paseos
-diversos por mostradores que sólo son capaces de ofrecer, como en los
-grandes almacenes, lo que está a la vista.
-
-"Puede ir en tren a París. Desde allí toma un vuelo hacia su
-destino". Le pregunté cuanto se tardaba, y me dijo que unas 12 horas,
-incluyendo el transbordo en Barcelona.Eso me situaba, como muy pronto,
-al día siguiente por la mañana en Lituania. Ya había pasado una
-quincena y un día más... un día más era un día más. Tenía que llegar
-hoy, esta tarde.
-
-"Puede intentarlo por Mallorca. De ahí, a Alemania hay decenas de
-vuelos y a partir de ahí llega fácilmente a Lituania" Me dijo,
-contenta de poder ser útil y de que hubiera alguien que la sacara de
-su tedio y le encargara un verdadero reto. "Es más barato que por
-París, además". Mencionada la palabra mágica, cerramos el trato aunque
-pareció algo renuente de que le pagara toda la cantidad en metálico. Y
-que no cerrara también el billete de vuelta. "Quién sabe lo que puedo
-tardar allí. Es un negocio complicado" Cuando existía el glamour, se
-podían sacar billetes con vuelta abierta. Alguien se lo había cargado
-junto con la posibilidad de elegir asiento y de recibir unos
-cacahuetes rancios, pero útiles para iniciar conversación con el
-compañero de asiento. Ya nadie habla. Porque no dan cacahuetes. Todo
-el mundo vuela como si fuera un trámite que hay que pasar, como el
-acné de la adolescencia que es el tránsito hacia la flor de la
-juventud. Y todo es culpa del señor Ryan y el señor Easy. Pronto
-descubriría que el señor Berlín también tenía culpa. Y mucha. 
-
-Salí de la agencia con tarjetas de embarque que me colocaban, o
-colocarían, o podían colocarme, más cerca de Demelza. Y a la tal
-Demelza, más cerca de su destino final. 
-
 ## Agradecimientos
 
 A [Marcos Taracido](http://twitter.com/marcostaracido) por su buen
@@ -2046,3 +1815,8 @@ humor y haber descubierto un error que a mi se me había pasado (lo que
 debería ser obvio, porque si no se me hubiera pasado no habría sido un
 error). También a [Jose María](http://blog.unlugarenelmundo.es/), por
 contestar a mis continuas dudas y preguntas. 
+
+## Índice
+
+* Esto se convertirá en el índice de contenidos. 
+{: toc}
