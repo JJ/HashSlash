@@ -1028,9 +1028,9 @@ poniendo inmediatamente los ojos en blanco.
 
 Ciriaco las miraba a las dos, sin saber muy bien con qué quedarse. Eran jóvenes, desahogadas, agradables, bien alimentadas y vestidas. No les importaba un carajo la muerte. Ahí había alguien, de cuerpo presente, que podían conocer o no, y ahí estaban las dos que sólo les faltaba limarse las uñas. En una serie americana o coreana de las que veía habrían sido dos sicópatas, que habrían una atraído a la chica a su habitación y otra asido velozmente el cuchillo del Ikea de la cocina y asestado certera puñalada en el tercer, o cuarto, o quinto, espacio intercostal.
 
-En una realidad española habrían sido simplemente dos niñatas a las que les importaba poco, o nada, lo que no fuera un problema propio o algo que les pudiera proporcionar entretenimiento o diversión inmediata. En lo que no se diferenciaban tanto del propio Ciriaco, que en ese momento pensaba en el problema inmediato: lo que tendría que escribir en el informe a la jueza sobre la actitud de las dos inquilinas, no, tacha eso, sospechosas, no, tacha eso, ¿testigas? ¿Extraña? ¿Serena? ¿Sospechosa? Pero ¿sospechosa de qué? ¿De mostrarse indiferentes ante la muerte de una desconocida, o quizás no tanto, con un cierto matiz de molestia por haber sucedido todo eso en su propia habitación? El horror de la página en blanco era una nadería al lado del horror de un informe en blanco. Pero, finalmente, decidió simplemente poner "No hay ningún indicio ni actitud que ligue a *nombre completo de las chicas* a los hechos". Si la jueza decidía otra cosa, que se buscar la vida, que para eso se había sacado las oposiciones y ganaba un sueldo bastante superior al que ganaba él. 
+En una realidad española habrían sido simplemente dos niñatas a las que les importaba poco, o nada, lo que no fuera un problema propio o algo que les pudiera proporcionar entretenimiento o diversión inmediata. En lo que no se diferenciaban tanto del propio Ciriaco, que en ese momento pensaba en el problema inmediato: lo que tendría que escribir en el informe a la jueza sobre la actitud de las dos inquilinas, no, tacha eso, sospechosas, no, tacha eso, ¿testigos? ¿Extraña? ¿Serena? ¿Sospechosa? Pero ¿sospechosa de qué? ¿De mostrarse indiferentes ante la muerte de una desconocida, o quizás no tanto, con un cierto matiz de molestia por haber sucedido todo eso en su propia habitación? El horror de la página en blanco era una nadería al lado del horror de un informe en blanco. Pero, finalmente, decidió simplemente poner "No hay ningún indicio ni actitud que ligue a *nombre completo de las chicas* a los hechos". Si la jueza decidía otra cosa, que se buscar la vida, que para eso se había sacado las oposiciones y ganaba un sueldo bastante superior al que ganaba él. 
 
-Al momento salieron de la habitación del crimen la jueza y el secretario. 
+Al momento salieron de la habitación del crimen la jueza Blanco y el secretario. 
 
 —Esto está listo-, dijo el secretario. La tez de la jueza estaba blanca y además
 era Blanco, pensó Roble, una ocasión propicia para que un hipotético
@@ -1046,8 +1046,7 @@ ocurre qué puede haber sido?
 —Asesinato, - dijo Ciriaco sin pensárselo.
 
 —No podemos aventurar nada, señoría, - “Puri“, le interrumpió . -
-Puri, - dijo Roble. Ciriaco le guiñó un ojo. - No parece robo y no
-sabemos nada de la víctima para ir por otro camino. 
+Puri, - dijo Roble. Ciriaco le guiñó un ojo. - No parece robo. Ellas - dijo, señalando a las chicas - no la conocen. Poco más.  
 
 —Pero ¿qué hacía aquí? - preguntó Puri.
 
@@ -1056,24 +1055,24 @@ Roble miró a Demelza, que le devolvió la mirada.
 —No...
 
 —Que no lo sabemos, Puri, - le interrumpió Roble. - Ayer hubo una
-fiesta pollúa por aquí. Se metería para echar un quiqui o dormir la
+fiesta pollúa por aquí. Se metería en la habitación para echar un quiqui o dormir la
 mona o en plan Ricitos de Oro probando las camitas...
 
 Puri hizo una mueca y el secretario judicial soltó una carcajada.
 
 —O a robar -, dijo Demelza, mirando a Roble.
 
-—A robar... - repitió Roble. 
+—A robar... - repitió Roble. En cuyo caso, la sospechosa era la propia Demelza. O su novio. Aunque su novio no parecía sospechoso de absolutamente nada. 
 
 En ese momento, Tina pareció recordar algo y se fue corriendo a su
-cuarto, cerrando la puerta. Salió al cabo de un minuto, sonriendo. 
+cuarto. Entró en él y cerró la puerta. Salió al cabo de un minuto, sonriendo. 
 
 El campo de batalla del cerebro de Roble, mientras tanto, aparecía
 plagado de neuronas en estado catatónico. Bajó la cabeza y emprendió
-el viaje hacia su casa.
+el viaje hacia su casa, acompañando en su salida a Puri y al secretario. 
 
 Iba por la mitad de la cuesta cuando su pulsera vibró y en ella
-apareció un mensaje informándole de que había encontrado una conexión
+apareció un mensaje informándole de que se había encontrado una conexión
 entre las dos muertas. La real y la putativa. 
 
 <h2>#FAIL</h2>
