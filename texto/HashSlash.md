@@ -1622,9 +1622,9 @@ mis cosas, ya sabes...
 
 Tina sólo se rió, pero inmediatamente empezó a hablarle a Roble de
 algo llamado nanomateriales, lo que no tardó en provocar bostezos a
-Demelza que se propagaron inmediatamente a Kevin. Se levantaron para irse unos minutos 
- más tarde, y en el momento que Demelza le dio dos vesos a Roble le dijo,
-cuando sus labios estaban todavía cerca de su oreja
+Demelza que se propagaron inmediatamente a Kevin, en una frecuencia creciente, como el parto inminente de una partida. Se levantaron para irse unos minutos  
+ más tarde, y en el momento que Demelza le dio dos besos a Roble le dijo,
+cuando sus labios estaban todavía cerca de su oreja:
 
 —Nos veremos pronto. 
 
