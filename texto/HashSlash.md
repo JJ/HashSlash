@@ -9,11 +9,11 @@ dolor de cabeza. Segundo: las náuseas. Tercero: un tío en pelotas al
 que no conozco de nada, a mi lado.
 
 Mejor borra tercero. Qué pedazo de tío. Joder, lo que se ve debajo de
-las sábanas. 
+las sábanas. Y todavía lleva la máscara puesta. 
 
 Mejor bórralo todo. El día podía haber empezado mejor. Pero una vez
 que desperté al tío empezando, como es natural, por aquello, tampoco
-empezó demasiado mal. 
+empezó demasiado mal.  
 
 1: #JustABelieber - 2: #pelisconnata - 3: #nomepises - 4: #masterchef - 5: #slash
 ---
@@ -235,6 +235,14 @@ encontraba el cadáver. Los dos giraron la cabeza en esa
 dirección. Luego se miraron el uno al otro y finalmente siguieron uno
 escribiendo en el móvil y otro en el bloc.
 
+Kevin
+---
+
+Podría vivir así. Escribir y tirarme a tíos buenos. Y, bueno, estar con Kevin. 
+
+En realidad, yo lo quiero. Pero, primero, no le van los fetiches metálicos. Segundo, no es de los que les va la penetración. Tercero, no hace preguntas.
+
+Bueno, borra tercero. Sí hace preguntas. No con la boca. Hace poco con la boca, la verdad. No como éste. Pero sí con los ojos. Mira, suplica. También hace el amor. Se lo hace a sí mismo, claro, mientras yo me divierto. A veces, si no me apetece después de una noche especialmente movida y sin él, una noche en el que el iBra que me regaló con el vano objetivo de controlarme no acaricia mis pezones, me mira.
 
 Despertar
 ---
