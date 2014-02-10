@@ -1188,7 +1188,7 @@ La chica no ha muerto. No la he matado, corrijo. Volvemos al principio.
 
 Y ahora es algo personal.
 
-<<<<<<< HEAD
+
 ## En otro mundo
 
 Clases. Más clases. El alumno que, al final de la clase, se queda
@@ -1209,7 +1209,7 @@ tenían razón en lo segundo que pensaban. Con los años que tenía y
 todavía no sabía cómo funcionaba el mundo.
 
 Y, a estas alturas, tampoco tenía ganas de ponerse a averiguarlo. 
-=======
+
 ## Citas
 
 Realmente, Roble se sorprendió cuando recibió un mensaje de Tina
