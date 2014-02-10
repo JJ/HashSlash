@@ -1570,12 +1570,12 @@ si conoces a alguien...
 joder, es como, para qué, si aquí lo tengo todo, tengo mi... bueno,
 mis cosas, ya sabes...
 
-—A alguien que quiera pagar...
+—A alguien que quiera pagar... - aclaró Demelza. 
 
 Tina sólo se rió, pero inmediatamente empezó a hablarle a Roble de
 algo llamado nanomateriales, lo que no tardó en provocar bostezos a
-Demelza que se propagaron inmediatamente a Kevin. Desaparecieron diez
-minutos más tarde, y cuando Demelza le dio dos vesos a Roble le dijo,
+Demelza que se propagaron inmediatamente a Kevin. Se levantaron para irse unos minutos 
+ más tarde, y cuando Demelza le dio dos vesos a Roble le dijo,
 cuando sus labios estaban todavía cerca de su oreja
 
 —Nos vemos pronto. 
