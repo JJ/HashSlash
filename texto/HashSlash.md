@@ -1847,8 +1847,8 @@ no parecía una foto Lomo sino algo real y, por tanto, empezaba a
 necesitar algún filtro. La realidad, de por sí, era poco fotogénica. No juntaría
 más de un par de *me gustas* en cualquier sitio. 
 
-Se puso las gafas de Google para ir a correr. A veces aparecía algo
-interesante y sólo tenía que guiñar el ojo para capturarlo. Y un año
+Se puso las gafas de Google para ir a correr. A veces aparecía alguna imagen
+interesante y sólo tenía que guiñar el ojo para capturarla. Y un año
 atrás la gente de su barrio lo había mirado con extrañeza. Parecía una
 prótesis retrofuturista. Pero poco a poco dejaron de prestarle
 atención. Tomó, como era habitual, la cuesta del Barranco del Abogado
@@ -1949,10 +1949,25 @@ a este pillado, coño, Torres, joder, que es un momento...
 
 —Pues no quiere.
 
-—Ya voy -, dijo Roble. 
+—Ya voy-, dijo Roble. 
 
 —Joder, y yo de niñera mientras, me cago en diez. ¡Torres! ¿Me miras
 los antecedentes, joder?
+
+Roble salió de la comisaría y se fue andando hacia el final de la Carretera de la Sierra, o el principio, según se mirara. Se arrebujó en su Barbour y se adentró en el día claro, luminoso y por tanto, espantosamente frío que hacía en Granada. Tan pronto el sol calentaba animosamente los centímetros cuadrados de su cara expuestos a la intemperie, como una ráfaga de aire frío le hacía arrepentirse incluso de esos pocos centímetros. 
+
+El tiempo parecía darles pistas de cómo se estaba acercando a la solución del caso: frío, frío. Era posible que este nuevo elemento diera alguna pista. Pero también era posible y más que probable que no tuviera ni idea, que fuera simplemente el vecino que se les metía en la casa a tomarse la cerveza y a lo que cayera.
+
+Encontró a los dos agentes en el rellano de la escalera y a un muchacho vestido con un chándal ajado sentado, con la cabeza apoyada en la pared. Se le acercaron los dos, hadiendo un amago de saludo. A Roble no dejaba de sorprenderle ese gesto, siempre se sentía tentado de mirar hacia atrás a ver si se había colado algún general detrás suyo. Hacía tiempo que él había entrado en la policía, pero la policía no acababa de entrar en él, al menos esos aspectos ritualísticos y folklóricos. 
+
+—Torres y este es Quesada-, dijo uno de los agentes, el más corpulento. Con las gafas Google identificó al muchacho. Ignacio Salido, aunque en sus perfiles en redes sociales había poco movimiento desde años atrás. Le hizo varias fotos y comenzó a cotejarlas con las que había de la fiesta. 
+
+Torres le dijo en un aparte
+—Se dedica al menudeo, lo han detenido varias veces por posesión y está a espera de juicio. Aunque por las pintas y la que lleva encima no sé yo si le quedará producto para menudear después de lo que se mete. 
+—¿Heroína? - preguntó Roble.
+—Yo diría que no. Metanfetamina, más probable. Nos ha dicho que no vende, que se la pasa la amiga de su novia. Pero no nos ha querido decir ni quién es su novia ni nada más. Ahí está, que se despierta a ratos...
+
+
 
 ## Encontrando el camino
 
