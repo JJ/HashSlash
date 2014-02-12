@@ -1962,9 +1962,41 @@ Encontró a los dos agentes en el rellano de la escalera y a un muchacho vestido
 —Torres -, dijo uno de los agentes, el más corpulento, levantando un dedo,- y este es Quesada. - Con las gafas Google identificó al muchacho. Ignacio Salido, aunque en sus perfiles en redes sociales había poco movimiento desde años atrás. Le hizo varias fotos y comenzó a cotejarlas con las que había de la fiesta. 
 
 Torres le dijo en un aparte
+
 —Se dedica al menudeo, lo han detenido varias veces por posesión y está a espera de juicio. Aunque por las pintas y la que lleva encima no sé yo si le quedará producto para menudear después de lo que se mete. 
+
 —¿Heroína? - preguntó Roble.
-—Yo diría que no. Ka, lo más probable. Nos ha dicho que no vende, que se la pasa la amiga de su novia. Pero no nos ha querido decir ni quién es su novia ni nada más. Ahí está, que se despierta a ratos...
+
+—Yo diría que no. Ka, lo más probable. Nos ha dicho que no vende, que se la pasa la amiga de su novia. Pero no nos ha querido decir ni quién es su novia ni nada más. Ahí está, más pallá que pacá...
+
+—Ignacio -, le dijo roble, sacudiéndolo suavemente. Ignacio murmuró, pero siguió con los ojos cerrados y la cabeza apoyada en la pared. Roble lo sacudió con algo de más determinación, y le dijo - Ignacio. Nacho. ¡Ignacio!
+
+—¿Le meto una merla? - dijo Torres, haciendo ademán de sacudirle una guantada. Roble lo miró y alzó las manos como disculpándose. - Para despertarle, jefe, sólo para despertarle. La amenaza, en todo caso, surtió efecto, porque Ignacio abrió los ojos y los miró uno por uno, posando sus ojos en Roble.
+
+—Un madero moderno. Nos han jodido -, dijo. Volvió a cerrar los ojos.
+
+—Ignacio, por favor -, insistió Roble. Por el rabillo del ojo veía a Torres haciendo ademanes a su compañero, indicándole que a estos (señalando con el dedo) con un par de hostias (haciendo el ademán de dar una del derecho y otra, naturalmente, del revés) se queda nuevo (levantando el pulgar). La visión periférica de Roble no llega a ver qué había contestado el otro. 
+
+—Y educao. Nos han jodido -, dijo, de nuevo, Ignacio, sin abrir los ojos. 
+
+—Ignacio, ¿sabes qué... ? - le preguntó Roble, haciendo una pequeña pausa después del que para elegir la frase correcta. ¿Qué sucedió? ¿Quién ha muerto?
+
+—No sé nada y si lo supiera no te lo iba a decir -, mascullo Ignacio -, cerdo educado de los cojones. Roble sintió el aliento de Torres más cerca de su nuca. De hecho, hasta vio una nubecilla de vaho rebasarle. El rellano tenía una temperatura igual o inferior la exterior, pensó Roble, ajustándose sus guantes italianos hechos a medida y pagados en bitcoins. Dio también un paso a su izquierda para interponerse entre Torres e Ignacio.
+
+—En la fiesta... - empezó Torres.
+
+—Sí, estuve en la fiesta - dijo Ignacio a la vez que abría los ojos. - La organicé con mi novia. Vivimos juntos y es la tía más buena y más cojonuda del mundo. Y no hicimos ruido ni nad. Y si lo hicimos no le importa una mierda a ningún imbécil ni a ningún madero. 
+
+—Si tú no vives ahí, cretino. Vives enfrente porque has descerrajao la puerta -, saltó Torres, que decidió canalizar verbalmente las ganas de agredirle. Roble lo miró  y Torres se retiró unos pasos atrás, indicándole a su compañero que se viniera con él. Roble continuó.
+
+—Pero la gente...
+
+—La gente habla y no sabe una puta mierda de nada. Ahí no hubo droga ni ná de ná
+
+
+
+
+
 
 
 
