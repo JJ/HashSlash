@@ -1991,7 +1991,8 @@ Torres le dijo en un aparte
 
 —Pero la gente...
 
-—La gente habla y no sabe una puta mierda de nada. Ahí no hubo droga ni ná de ná
+—La gente habla y no sabe una puta mierda de nada. Ahí no hubo droga ni ná de ná y si hubo yo no sé ná de ná, que la gente se mete de todo y yo no tengo que saber ni qué se meten ni habérselo vendío ni ná de ná. Además, había una peña mu chunga...
+
 
 
 
