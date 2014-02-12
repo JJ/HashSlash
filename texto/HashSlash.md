@@ -1985,7 +1985,7 @@ Torres le dijo en un aparte
 
 —En la fiesta... - empezó Torres.
 
-—Sí, estuve en la fiesta - dijo Ignacio a la vez que abría los ojos. - La organicé con mi novia. Vivimos juntos y es la tía más buena y más cojonuda del mundo. Y no hicimos ruido ni nad. Y si lo hicimos no le importa una mierda a ningún imbécil ni a ningún madero. 
+—Sí, estuve en la fiesta - dijo Ignacio a la vez que abría los ojos. - La organicé con mi novia. Vivimos juntos y es la tía más buena y más cojonuda del mundo. Y no hicimos ruido ni ná. Y si lo hicimos no le importa una mierda a ningún imbécil ni a ningún madero. - Estas últimas palabras las escupió. Literalmente. Si hubiera estado a la altura de Roble, le habría llovido. Como seguía sentado en el escalón, sólo creó manchitas brillantes sobre la solería. 
 
 —Si tú no vives ahí, cretino. Vives enfrente porque has descerrajao la puerta -, saltó Torres, que decidió canalizar verbalmente las ganas de agredirle. Roble lo miró  y Torres se retiró unos pasos atrás, indicándole a su compañero que se viniera con él. Roble continuó.
 
