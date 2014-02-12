@@ -168,7 +168,7 @@ Clínico le preguntaremos. Pero vamos, que no.
 
 —La posición del cuchillo, el ángulo, - hizo movimientos de Bates
 apuñalando la cortina de
-la ducha en Psicosis - quien fuera tendría que ser bastante más alto
+la ducha en Psicosis, - quien fuera tendría que ser bastante más alto
 que ella. Y este menda, así a ojo de buen cubero, era de la misma
 altura o un poco más bajo.
 
@@ -216,7 +216,7 @@ espabilados a estas horas de la mañana. Todo eso no había impedido que el núm
 
 Ciriaco se volvió a sentar en el
 sillón, diciendo
-por el camino “Afú” varias veces,  y se puso a escribir en un bloc pequeñito, con  portada a
+por el camino “Afú” varias veces, y se puso a escribir en un bloc pequeñito, con  portada a
 cuadros y un alambre uniendo las hojas por su parte superior. 
 
 Se comenzaron a oir ruidos en dirección opuesta a la que se
@@ -349,13 +349,12 @@ Café para dos
 -----
 
 Por un momento, Roble había creído que la chica iba a descubrir la
-situación antes de lo conveniente.  El que no lo hiciera hacerlo no sólo le evitaba
-hacer de consejero, que tendría que ser él porque Ciri era un inútil
-para prácticamente todo, sino que, además, podía aprovecharse de la
-situación sacándole algo de información a esta chica. Había un tercer
+situación antes de lo conveniente, es decir, antes de que pudieran sacarle cierta información sobre qué había pasado la noche anterior. Y antes de que, sabiendo lo ocurrido, tuvieran
+hacer de consejeros, que tendría que ser él porque Ciri era un inútil
+para prácticamente todo. Además, si ella había tenido algo que ver con ello, trataría de sacarle información sobre qué sabían, de donde se filtraría lo que ella sabía. Había un tercer
 además, que era la posibilidad de, eventualmente y con un poco de
 suerte, tirársela, lo que habría sido bastante improbable en caso de
-que su presencia estuviera asociada, desde el principio, con una
+que la presencia de Roble estuviera asociada, desde el principio, con una
 compañera asesinada. No es una buena forma de presentarte. “Hola, soy
 poli, tu compi ha muerto y, por casualidad, ¿no la habrás matado tu?“.
 
@@ -366,12 +365,12 @@ el zumo de naranja de un trago y haber empezado con el café con leche
 semidesnatada, la mitad fría. - creo que vino todo el mundo, pero todo
 el mundo. Hubo un momento que no se podía ni salir ni entrar, gente
 por todos lados, en los pasillos, ni se oía la música, fíjate. No
-había música, ahora que lo pienso. Es lo guay de estar en un sitio tan
-solitario, que no molestas a nadie. 
+había música, ahora que lo pienso. Es lo guay de vivir en un sitio tan
+solitario, que no molestas a nadie. Vamos, que me da igual molestarles o no, pero si los molestas llaman a los maderos y te cortan el rollo. 
 
-Roble pensó que era una chica totalmente aceptable, si no el tipo de
+Roble pensó que era una chica totalmente aceptable, aunque no el tipo de
 chica por el que se haría algo épico, como, por ejemplo, dejar a otra
-chica. En ese momento del día, el pelo no era su fuerte. El que
+chica. O incluso cancelar una cita. En ese momento del día, el pelo no era su fuerte. El que
 hubiera salido a la calle sin dedicarle cierto tiempo más allá de un
 cepillado sin vigor tampoco le había favorecido. Pero era cóncava
 donde la evolución había hecho a las mujeres cóncavas y convexa en los
@@ -384,21 +383,21 @@ cafetería abierta. Por el camino, un bloque de casas de dos pisos con
 carteles de “Se alquila”, “Se vende”, algunos ya caídos, persianas
 echadas, escombros de burbuja.
 
-En el bar, bufandas del Granada, que andaba peleándose con denuedo
+En el bar, colgadas en las paredes, bufandas del Granada, que andaba peleándose con denuedo
 para alcanzar  los puestos
-de descenso de segunda de nuevo, parejas de jubilados, jubilados sin pareja y algún grupo de
+de descenso de segunda de nuevo; parejas de jubilados, jubilados sin pareja y algún grupo de
 amas y amos de casa de casa que compartían el café post-dejada de los niños en el
-cole y hablaban, precisamente, de eso.
+cole y hablaban, precisamente, de eso, aparte de organizar partidas de pádel por parejas. 
 
 —Por eso acabamos, ¿a qué hora acabamos? -, le preguntó a Roble, que
 hizo un ruido ambiguo y puso cara de pensativo. - No te acuerdas tú
 tampoco, ¿verdad? - Roble se encogió de hombros. Tina notó el
 bloquecito cuadrado de cristal que tenía delante de las gafas. ¿Google
-Glasses? No había visto muchas. 
+Glasses? No había visto muchas. El tío tenía que ser un poco friqui. Pero friqui bueno. Friqui *hipster*. 
 
 —Cuando Demelza... - dejó la frase sin terminar, para que Tina lo
-hiciera por él. O la dejara ahí, implicando que se había ido a la vez
-que Demelza se había ido a su habitación. O al otro barrio. Roble no
+hiciera por él. O la dejara ahí, implicando que se había ido cuando
+Demelza se había ido a su habitación. O al otro barrio. Roble no
 pudo evitar sonreír.
 
 —No, espera, Demelza... yo no la vi a partir de las dos o las tres. ¿O
@@ -423,7 +422,7 @@ móvil.
 
 Sonó el de Roble con el tono de Ciriaco. Eso no podía significar más
 que la llegada del juez para levantar el cadáver y el forense. Ya
-había, de hecho, visto pasar la furgoneta del anatómico-forense en
+había, de hecho, visto pasar la furgoneta del Anatómico-Forense en
 dirección hacia el piso. 
 
 No creía que le durara mucho más el café, así que antes de que
@@ -457,7 +456,7 @@ como para clavar un cuchillo en el esternón. Roble sonrió levemente
 ante este pareado y lo anotó para un tuit posterior. También anotó la
 sonrisa para un selfie futuro. 
 
-—¿Volvemos? - dijo Tina, levantándose. - A ver cómo andan esos - le
+—¿Volvemos? - dijo Tina, levantándose. - A ver cómo andan esos, - le
 dijo haciendo amago de pegarle un codazo a Roble. Roble pagó, Tina no
 hizo amago siquiera. 
 
@@ -1431,10 +1430,10 @@ gestos y palabras clave que encaminaran a la persona escuchada a donde
 él quería que fuera. Su cama. O la de ella. 
 
 Por el camino, pescaba alguna idea. Ella estudiaba algo relacionado
-con la química. O quería estudiarlo. O trabajaba en algo relacionado
+con la química. Y con los cerdos. Dijo en algún momento algo de dormir a los cerdos, pero Roble no estaba seguro de que no lo hubiera hecho en sentido figurado. O quería estudiarlo. O trabajaba en algo relacionado
 con la química, aunque cuando apuntó a esto último en una frase
 pareció arrepentirse de decirlo rápidamente. O quería escribir algo
-relacionado con ello. 
+relacionado con ello. Echó de menos no tener en ese momento las gafas de Google; tendría que mirar más adelante sus perfiles en LinkedIn a ver qué hacía exactamente. 
 
 Aparte del fin último de la conversación, también le relajaba
 escuchar. Por eso creía en escuchar, porque no tenía que concentrarse
@@ -1958,14 +1957,14 @@ Roble salió de la comisaría y se fue andando hacia el final de la Carretera de
 
 El tiempo parecía darles pistas de cómo se estaba acercando a la solución del caso: frío, frío. Era posible que este nuevo elemento diera alguna pista. Pero también era posible y más que probable que no tuviera ni idea, que fuera simplemente el vecino que se les metía en la casa a tomarse la cerveza y a lo que cayera.
 
-Encontró a los dos agentes en el rellano de la escalera y a un muchacho vestido con un chándal ajado sentado, con la cabeza apoyada en la pared. Se le acercaron los dos, hadiendo un amago de saludo. A Roble no dejaba de sorprenderle ese gesto, siempre se sentía tentado de mirar hacia atrás a ver si se había colado algún general detrás suyo. Hacía tiempo que él había entrado en la policía, pero la policía no acababa de entrar en él, al menos esos aspectos ritualísticos y folklóricos. 
+Encontró a los dos agentes en el rellano de la escalera y a un muchacho vestido con un chándal ajado sentado, con la cabeza apoyada en la pared. Se le acercaron los dos, haciendo un amago de saludo. A Roble no dejaba de sorprenderle ese gesto, siempre se sentía tentado de mirar hacia atrás a ver si se había colado algún general detrás suyo. Hacía tiempo que él había entrado en la policía, pero la policía no acababa de entrar en él, al menos esos aspectos ritualísticos y folclóricos. 
 
 —Torres y este es Quesada-, dijo uno de los agentes, el más corpulento. Con las gafas Google identificó al muchacho. Ignacio Salido, aunque en sus perfiles en redes sociales había poco movimiento desde años atrás. Le hizo varias fotos y comenzó a cotejarlas con las que había de la fiesta. 
 
 Torres le dijo en un aparte
 —Se dedica al menudeo, lo han detenido varias veces por posesión y está a espera de juicio. Aunque por las pintas y la que lleva encima no sé yo si le quedará producto para menudear después de lo que se mete. 
 —¿Heroína? - preguntó Roble.
-—Yo diría que no. Metanfetamina, más probable. Nos ha dicho que no vende, que se la pasa la amiga de su novia. Pero no nos ha querido decir ni quién es su novia ni nada más. Ahí está, que se despierta a ratos...
+—Yo diría que no. Ka, lo más probable. Nos ha dicho que no vende, que se la pasa la amiga de su novia. Pero no nos ha querido decir ni quién es su novia ni nada más. Ahí está, que se despierta a ratos...
 
 
 
