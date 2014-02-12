@@ -1959,7 +1959,7 @@ El tiempo parecía darles pistas de cómo se estaba acercando a la solución del
 
 Encontró a los dos agentes en el rellano de la escalera y a un muchacho vestido con un chándal ajado sentado, con la cabeza apoyada en la pared. Se le acercaron los dos, haciendo un amago de saludo. A Roble no dejaba de sorprenderle ese gesto, siempre se sentía tentado de mirar hacia atrás a ver si se había colado algún general detrás suyo. Hacía tiempo que él había entrado en la policía, pero la policía no acababa de entrar en él, al menos esos aspectos ritualísticos y folclóricos. 
 
-—Torres y este es Quesada-, dijo uno de los agentes, el más corpulento. Con las gafas Google identificó al muchacho. Ignacio Salido, aunque en sus perfiles en redes sociales había poco movimiento desde años atrás. Le hizo varias fotos y comenzó a cotejarlas con las que había de la fiesta. 
+—Torres -, dijo uno de los agentes, el más corpulento, levantando un dedo,- y este es Quesada. - Con las gafas Google identificó al muchacho. Ignacio Salido, aunque en sus perfiles en redes sociales había poco movimiento desde años atrás. Le hizo varias fotos y comenzó a cotejarlas con las que había de la fiesta. 
 
 Torres le dijo en un aparte
 —Se dedica al menudeo, lo han detenido varias veces por posesión y está a espera de juicio. Aunque por las pintas y la que lleva encima no sé yo si le quedará producto para menudear después de lo que se mete. 
