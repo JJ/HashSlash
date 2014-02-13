@@ -1991,7 +1991,76 @@ Torres le dijo en un aparte
 
 —Pero la gente...
 
-—La gente habla y no sabe una puta mierda de nada. Ahí no hubo droga ni ná de ná y si hubo yo no sé ná de ná, que la gente se mete de todo y yo no tengo que saber ni qué se meten ni habérselo vendío ni ná de ná. Además, había una peña mu chunga...
+——La gente habla y no sabe una puta mierda de nada. Ahí no hubo droga
+ni ná de ná y si hubo yo no sé ná de ná, que la gente se mete de todo
+y yo no tengo que saber ni qué se meten ni habérselo vendío ni ná de
+ná. Además, había una peña mu chunga... 
+
+—Chunga... - dijo Roble.
+
+—Chunga que te cagas. Un guiri que se bebía hasta el agua de
+colonia. Y daba saltos y pegaba voces y cuando se acercaba mi Demelza
+se tapaba la nariz y se largaba. 
+
+—Tu Demelza... - dijo Roble.
+
+—Sí, es mi novia, vivimos juntos, cretino modernillo. Y hacemos cosas
+qu ea ella le gustan, con una máscara y... con cosas que no te voy a
+contar, sobrao, que eres un sobrao. Y por eso estaba en la fiesta para
+que la gente chunga no diera por saco, y por eso al guiri cuando se
+puso muy pesao lo largué de una patá en el culo, porque era gilipoyas niñato
+guiri de mierda, y luego la tía esa...
+
+—La de... - dijo Roble.
+
+—La que no tiene ni puta idea y no hace más que darle la lata a mi
+Demelza, preguntándole, qué haces, qué vas a hacer, cuando vas a sacar
+otro libro, como me ponen, yo también escribo, mira y me dces, somos
+escritoras, nos tenemos que ayudar... tía coñazo, y además no hacía
+más que meterse en el cuarto de Demelza, nuestro cuarto, bueno, no es
+nuestro cuarto, porque ella... 
+
+—El cuarto de... - dijo Roble.
+
+—Sí, el que está al lado del retrete, el de Demelza, coño, tó el rato
+la tía yendo pa mear, que no se podía mear tanto, bueno, yo sí, porque
+la vejiga ya... - cerró los ojos y volvió a apoyar la cabeza en la
+pared.
+
+La pulsera de Roble vibró, indicándole que le había llegado un
+mensaje; el color rojo al que viró le indicaba que era importante. Los
+mensajes importantes había que leerlos. Y el tío se había aletargado,
+de su nariz salía un débil hálito de vapor. Ni siquiera parecía darse
+cuenta del frio, sólo con una camiseta interior de manga larga y
+pantalones. 
+
+Sacó el móvil y vio el mensaje. De la científica. Habían identificado
+huellas de varias personas en la habitación. Una de ellas estaba
+fichada, un tal Ignacio Salido, detenido por alteración del orden
+público y por venta de estupefacientes. 
+
+No todo eran alucinaciones, pues. El informe también hablaba de los
+restos que se habían encontrado y los que se habían podido
+identificar, ninguno de persona con antecedentes. Toda la sangre
+coincidía con la de la muerta, y finalmente hablaba de las huellas
+encontradas en la ropa de la muerta.
+
+No era habitual encontrar huellas en la ropa; aunque la grasa de la
+piel se pega a los tejidos como a cualquier otra cosa, la textura
+impide que sea fácil encontrar huellas. Sólo en telas muy lisas como
+la seda o el satén se puede encontrar algo.
+
+La chica había llevado un pañuelo de seda, al parecer. No lo había
+visto, porque no había mirado las fotografías hechas con el móvil con
+el detalle adecuado. Y posiblemente no sería lo único. Tendría que
+verlas en la pantalla de su casa. Pero, mientras tanto, las huellas
+que se habían encontrado en la ropa eran, principalmente, de la
+muerta. Pero también del mismo Ignacio Salido.
+
+Bajó las escaleras procurando no hacer ruido para buscar a Torres. Por
+lo pronto, se lo llevaban al calabozo. 
+
+
 
 
 
