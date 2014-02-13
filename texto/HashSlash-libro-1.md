@@ -2,18 +2,30 @@
 
 <h1>#slash</h1>
 
-## Ese día
 
-El día siguiente a mi asesinato no comenzó demasiado bien. Primero: el
-dolor de cabeza. Segundo: las náuseas. Tercero: un tío en pelotas al
-que no conozco de nada, a mi lado.
+## Prólogo
 
-Mejor borra tercero. Qué pedazo de tío. Joder, lo que se ve debajo de
-las sábanas. Y todavía lleva la máscara puesta. 
+Este es el primer libro de [HashSlash](http://jj.github.io/HashSlash),
+una novela por entregas, a modo *pulp*, que se desarrolla en Granada y
+entre policías y escritores. O quizás sólo escritores. 
 
-Mejor bórralo todo. El día podía haber empezado mejor. Pero una vez
-que desperté al tío empezando, como es natural, por aquello, tampoco
-empezó demasiado mal.  
+La novela es
+[libre con una licencia  cc-by-sa 3.0](http://creativecommons.org/licenses/by-sa/3.0/)
+y además [de fuentes abiertas](http://github.com/JJ/HashSlash). Se
+está escribiendo día a día y puedes ver cómo va avanzando en
+[la web](http://jj.github.io/HashSlash/texto/HashSlash). Al ser libre,
+puedes copiarla, reproducirla y modificarla a tu gusto. Si encuentras
+algún error puedes indicármelo o corregirlo si te abres una cuenta en
+[GitHub](http://github.com). También puedes
+[usar GitHub](https://github.com/JJ/HashSlash/issues) para hacer
+preguntas, solicitar cambios o indicar errores.
+
+Como un *trabajo en curso*,  la novela no termina aquí. Continuará con
+un segundo y quizás un tercer libro, que aparecerán cada dos o tres
+meses. Mi intención es terminarla antes de final de año y publicarla
+completa en un solo fichero. Pero mientras tanto, si quieres continuar
+leyendo tendrás que acudir a la web o esperar a la salida del segundo libro.
+
 
 1: #JustABelieber - 2: #pelisconnata - 3: #nomepises - 4: #masterchef - 5: #slash
 ---
@@ -179,7 +191,7 @@ Clínico le preguntaremos. Pero vamos, que no.
 
 —La posición del cuchillo, el ángulo, - hizo movimientos de Bates
 apuñalando la cortina de
-la ducha en Psicosis, - quien fuera tendría que ser bastante más alto
+la ducha en Psicosis - quien fuera tendría que ser bastante más alto
 que ella. Y este menda, así a ojo de buen cubero, era de la misma
 altura o un poco más bajo.
 
@@ -227,7 +239,7 @@ espabilados a estas horas de la mañana. Todo eso no había impedido que el núm
 
 Ciriaco se volvió a sentar en el
 sillón, diciendo
-por el camino “Afú” varias veces, y se puso a escribir en un bloc pequeñito, con  portada a
+por el camino “Afú” varias veces,  y se puso a escribir en un bloc pequeñito, con  portada a
 cuadros y un alambre uniendo las hojas por su parte superior. 
 
 Se comenzaron a oir ruidos en dirección opuesta a la que se
@@ -235,14 +247,11 @@ encontraba el cadáver. Los dos giraron la cabeza en esa
 dirección. Luego se miraron el uno al otro y finalmente siguieron uno
 escribiendo en el móvil y otro en el bloc.
 
-Kevin
+Huir tampoco es fácil
 ---
 
-Podría vivir así. Escribir y tirarme a tíos buenos. Y, bueno, estar con Kevin. 
-
-En realidad, yo lo quiero. Pero, primero, no le van los fetiches metálicos. Segundo, no es de los que les va la penetración. Tercero, no hace preguntas.
-
-Bueno, borra tercero. Sí hace preguntas. No con la boca. Hace poco con la boca, la verdad. No como éste. Pero sí con los ojos. Mira, suplica. También hace el amor. Se lo hace a sí mismo, claro, mientras yo me divierto. A veces, si no me apetece después de una noche especialmente movida y sin él, una noche en el que el iBra que me regaló con el vano objetivo de controlarme no acaricia mis pezones, me mira.
+En realidad sí lo es. Y mancha mucho menos que cualquier
+cosa que uno haya hecho para necesitar embarcarse en tal huida.
 
 Despertar
 ---
@@ -330,23 +339,46 @@ que parecía no haber sido consciente hasta ese momento de que llevaba
 sólo una camiseta, miró hacia el sur y se ruborizó. Viejo verde. Joven
 inconsciente. Qué frío hacía, caray. 
 
-## Tina
 
-Qué sería de mi sin Tina. Estaría más tranquila. No tendría que estar pensando en qué va a pasar cuando la pillen. No la policía. Alguien. La K es demasiado popular para que no levante envidias, y ella tiene el mercado de Granada copado. O eso dice. Y debe de ser verdad. Primero, porque no habrá mucha gente que tenga un proyecto de investigación donde consiga clohidrato de Ketamina a granel. Ni, por el mismo precio, un laboratorio para purificarlo y extraer el K. Segundo, porque tiene una cantidad de dinero considerable  debajo del colchón, esperando blanqueo. 
+Consejos para una huida
+-----
 
-Y tercero, porque el pobre Nachito dice que se la quitan de las manos. Lo dice con los ojos muy abiertos y con un poco de saliva en la boca, bueno, dice todo con un poco de saliva en las comisuras de los labios. El pobre Nachito. Que vive en la casita del perro, la llamamos así porque un buen día se plantó en la casa de enfrente con un cerrajero amigo suyo y se metió a vivir allí. Bueno, no la llamamos casita del perro por eso, por la forma de entrar Es porque antes aparecía, a veces, como un perrillo faldero para seguirme, para medir mi humor a distancia, para ver si era propicio hacerse el encontradizo y decirme algo, cualquier cosa y que yo le contestara algo, cualquier cosa. Siempre con "lo que quieras, Deme, de verdad, dímelo, que eres una tía guay". Eso incluso antes de que, un día, un buen día, después de que Kevin, se cabreara conmigo porque no lo había dejado terminar un juego y lo viera allí, limpio por una vez, afeitado, y me dijera a mi mísma, qué diablos... Después de eso todo fue igual, pero ya nada fue lo mismo. Cuando se le veía feliz, estaba más feliz. Pero cuando era desgraciado, se le veía todavía más desgraciado. 
+La gente piensa que lo más importante a la hora de huir es moverse muy
+rápidamente. No tienen ni idea. Lo más parecido a una huida que conocen es
+cuando han escapado de un ex cambiándose de acera.
 
+Lo más importante es no mearse. 
+
+Tener ganas de mear significa no poder estar centrado en el asunto entre manos
+para concentrarse en el asunto entre piernas. Significa que tienes que
+pararte. O significa que tienes que llevar un pañal.
+
+¿Qué pasa? La gente lleva pañal. Es un inconveniente, pero no tanto
+como mearse encima. Es la diferencia entre ser un hediondo y no
+serlo. 
+
+Pero lo mejor es no tener que hacérselo ni encima ni en el pañal.
+
+Ergo: nada de café. Nada de agua. Nada de colas ni bebidas energéticas
+ni diuréticos endulzados.
+
+—¿Desea tomar algo más?
+
+—Sí, un vasito de agua para después del café, si es tan amable.
+
+Porque ¿quién está  huyendo?. Yo no. Sólo soy un escritor.
 
 Café para dos
 -----
 
 Por un momento, Roble había creído que la chica iba a descubrir la
-situación antes de lo conveniente, es decir, antes de que pudieran sacarle cierta información sobre qué había pasado la noche anterior. Y antes de que, sabiendo lo ocurrido, tuvieran
-hacer de consejeros, que tendría que ser él porque Ciri era un inútil
-para prácticamente todo. Además, si ella había tenido algo que ver con ello, trataría de sacarle información sobre qué sabían, de donde se filtraría lo que ella sabía. Había un tercer
+situación antes de lo conveniente.  El que no lo hiciera hacerlo no sólo le evitaba
+hacer de consejero, que tendría que ser él porque Ciri era un inútil
+para prácticamente todo, sino que, además, podía aprovecharse de la
+situación sacándole algo de información a esta chica. Había un tercer
 además, que era la posibilidad de, eventualmente y con un poco de
 suerte, tirársela, lo que habría sido bastante improbable en caso de
-que la presencia de Roble estuviera asociada, desde el principio, con una
+que su presencia estuviera asociada, desde el principio, con una
 compañera asesinada. No es una buena forma de presentarte. “Hola, soy
 poli, tu compi ha muerto y, por casualidad, ¿no la habrás matado tu?“.
 
@@ -357,12 +389,12 @@ el zumo de naranja de un trago y haber empezado con el café con leche
 semidesnatada, la mitad fría. - creo que vino todo el mundo, pero todo
 el mundo. Hubo un momento que no se podía ni salir ni entrar, gente
 por todos lados, en los pasillos, ni se oía la música, fíjate. No
-había música, ahora que lo pienso. Es lo guay de vivir en un sitio tan
-solitario, que no molestas a nadie. Vamos, que me da igual molestarles o no, pero si los molestas llaman a los maderos y te cortan el rollo. 
+había música, ahora que lo pienso. Es lo guay de estar en un sitio tan
+solitario, que no molestas a nadie. 
 
-Roble pensó que era una chica totalmente aceptable, aunque no el tipo de
+Roble pensó que era una chica totalmente aceptable, si no el tipo de
 chica por el que se haría algo épico, como, por ejemplo, dejar a otra
-chica. O incluso cancelar una cita. En ese momento del día, el pelo no era su fuerte. El que
+chica. En ese momento del día, el pelo no era su fuerte. El que
 hubiera salido a la calle sin dedicarle cierto tiempo más allá de un
 cepillado sin vigor tampoco le había favorecido. Pero era cóncava
 donde la evolución había hecho a las mujeres cóncavas y convexa en los
@@ -375,21 +407,21 @@ cafetería abierta. Por el camino, un bloque de casas de dos pisos con
 carteles de “Se alquila”, “Se vende”, algunos ya caídos, persianas
 echadas, escombros de burbuja.
 
-En el bar, colgadas en las paredes, bufandas del Granada, que andaba peleándose con denuedo
+En el bar, bufandas del Granada, que andaba peleándose con denuedo
 para alcanzar  los puestos
-de descenso de segunda de nuevo; parejas de jubilados, jubilados sin pareja y algún grupo de
+de descenso de segunda de nuevo, parejas de jubilados, jubilados sin pareja y algún grupo de
 amas y amos de casa de casa que compartían el café post-dejada de los niños en el
-cole y hablaban, precisamente, de eso, aparte de organizar partidas de pádel por parejas. 
+cole y hablaban, precisamente, de eso.
 
 —Por eso acabamos, ¿a qué hora acabamos? -, le preguntó a Roble, que
 hizo un ruido ambiguo y puso cara de pensativo. - No te acuerdas tú
 tampoco, ¿verdad? - Roble se encogió de hombros. Tina notó el
 bloquecito cuadrado de cristal que tenía delante de las gafas. ¿Google
-Glasses? No había visto muchas. El tío tenía que ser un poco friqui. Pero friqui bueno. Friqui *hipster*. 
+Glasses? No había visto muchas. 
 
 —Cuando Demelza... - dejó la frase sin terminar, para que Tina lo
-hiciera por él. O la dejara ahí, implicando que se había ido cuando
-Demelza se había ido a su habitación. O al otro barrio. Roble no
+hiciera por él. O la dejara ahí, implicando que se había ido a la vez
+que Demelza se había ido a su habitación. O al otro barrio. Roble no
 pudo evitar sonreír.
 
 —No, espera, Demelza... yo no la vi a partir de las dos o las tres. ¿O
@@ -414,7 +446,7 @@ móvil.
 
 Sonó el de Roble con el tono de Ciriaco. Eso no podía significar más
 que la llegada del juez para levantar el cadáver y el forense. Ya
-había, de hecho, visto pasar la furgoneta del Anatómico-Forense en
+había, de hecho, visto pasar la furgoneta del anatómico-forense en
 dirección hacia el piso. 
 
 No creía que le durara mucho más el café, así que antes de que
@@ -448,7 +480,7 @@ como para clavar un cuchillo en el esternón. Roble sonrió levemente
 ante este pareado y lo anotó para un tuit posterior. También anotó la
 sonrisa para un selfie futuro. 
 
-—¿Volvemos? - dijo Tina, levantándose. - A ver cómo andan esos, - le
+—¿Volvemos? - dijo Tina, levantándose. - A ver cómo andan esos - le
 dijo haciendo amago de pegarle un codazo a Roble. Roble pagó, Tina no
 hizo amago siquiera. 
 
@@ -474,6 +506,36 @@ poder quedar con ella y lo que surgiera? Se dieron la mano para que
 sus pulseras intercambiaran los datos de contacto; Roble dejó
 su mano entrelazada unos segundos más de lo estrictamente necesario. Tina no hizo ademán
 de soltarse. 
+
+Matar
+---
+
+—¿Haciendo sudokus? 
+
+No me gusta hablar con la gente. Corrijo. No me gusta hacer nada con
+la gente. Lo mío es hacerle *a* la gente. Pero a veces es inevitable
+que *la gente* te hable o te haga cosas.
+
+—No, escribiendo. 
+
+A veces contesto, si pienso que puedo darle una lección a alguien. Era
+un camarero joven, de mirada ilusa, que servilmente se esforzaba por
+satisfacer a la gente que pasaba por el café de carretera para nunca
+más volver. Del este, quizás. 
+
+—¿Escribe? ¿Novelas? - la *s*, un poco sibilante. - ¿Hay... ha publicado
+algo? 
+
+—Sí -, un sí para tres preguntas. Estaba empezando a cargarme. Me
+levanté para irme, dirigiéndome hacia la barra y dejándolo atrás.
+
+—Yo  escribo también. Y mataría por publicar. - dijo, suspirando y
+dejando de barrer por un momento.
+
+—A veces uno tiene que hacer lo que tiene que hacer -, le contesté.
+Sin mirarle. Dejé el dinero del café sobre la barra y me
+largué. Todavía me quedaba más de una hora para llegar al puerto y
+tomar el ferry.
 
 Fiambres y bocadillos
 ---
@@ -565,6 +627,34 @@ Quique había aprovechado para tirar unas cuantas fotos con el móvil.
 —Cuando me acuerde te la digo. Venga, puedes subir y echar unas
 fotos y cuando se le pase el berrinche te dejo cinco minutos con
 ella. Pero déjame a mi primero, hombre.
+
+Volver
+---
+
+Casa es donde dejas el sombrero, ¿no? 
+
+Pero nadie usa sombrero hoy en día,
+así que tampoco existen los hogares de verdad. Pero sí hay un sitio a
+donde retornar, donde tienes unas pantuflas y dónde hay un sillón que,
+a base de ser utilizado para sentarte, se ha adaptado perfectamente a
+los contornos de tus nalgas. Y viceversa.
+
+A veces, el sillón es una persona.
+
+Cuando llego al puerto de Algeciras, a veces se ve el país que llamo,
+por lo pronto, mi casa. A veces no. Hoy es de esos días. Hay
+nubarrones negros sobre el estrecho. De esos que los escritores suelen
+usar para reflejar un temperamento sombrío o un estado de ánimo
+tormentoso en los personajes. Pero sólo son nubes. Y yo me siento
+estupendamente. 
+
+De repente, un rayo de sol abre las nubes y crea una isla de luz muy
+cerca de mi coche, donde espero para subir al ferry.
+
+Es mentira. Sigue nublado. ¿Por qué diablos iba a salir un rayo de luz
+para nadie? Pero os he hecho creer que sí, ¿verdad? 
+
+Así somos los escritores.
 
 Asuntos propios
 ----
@@ -959,16 +1049,7 @@ Pasaron al lado de las dos chicas diciéndoles, de una forma un tanto
 automática, “Mi pésame“. Tina soltó una risita. Demelza la miró,
 poniendo inmediatamente los ojos en blanco.
 
-Ciriaco las miraba a las dos, sin saber muy bien con qué
-quedarse. Eran jóvenes, desahogadas, agradables, bien alimentadas y
-vestidas. No les importaba un carajo la muerte. Ahí había alguien, de
-cuerpo presente, que podían conocer o no, y ahí estaban las dos que
-sólo les faltaba limarse las uñas para ofrecer la imagen más completa
-de la despreocupación. En una serie americana o coreana de las que veía habrían sido dos sicópatas, que habrían una atraído a la chica a su habitación y otra asido velozmente el cuchillo del Ikea de la cocina y asestado certera puñalada en el tercer, o cuarto, o quinto, espacio intercostal.
-
-En una realidad española habrían sido simplemente dos niñatas a las que les importaba poco, o nada, lo que no fuera un problema propio o algo que les pudiera proporcionar entretenimiento o diversión inmediata. En lo que no se diferenciaban tanto del propio Ciriaco, que en ese momento pensaba en el problema inmediato: lo que tendría que escribir en el informe a la jueza sobre la actitud de las dos inquilinas, no, tacha eso, sospechosas, no, tacha eso, ¿testigos? ¿Extraña? ¿Serena? ¿Sospechosa? Pero ¿sospechosa de qué? ¿De mostrarse indiferentes ante la muerte de una desconocida, o quizás no tanto, con un cierto matiz de molestia por haber sucedido todo eso en su propia habitación? El horror de la página en blanco era una nadería al lado del horror de un informe en blanco. Pero, finalmente, decidió simplemente poner "No hay ningún indicio ni actitud que ligue a *nombre completo de las chicas* a los hechos". Si la jueza decidía otra cosa, que se buscar la vida, que para eso se había sacado las oposiciones y ganaba un sueldo bastante superior al que ganaba él. 
-
-Al momento salieron de la habitación del crimen la jueza Blanco y el secretario. 
+Al momento salieron de la habitación del crimen la jueza y el secretario. 
 
 —Esto está listo-, dijo el secretario. La tez de la jueza estaba blanca y además
 era Blanco, pensó Roble, una ocasión propicia para que un hipotético
@@ -984,7 +1065,8 @@ ocurre qué puede haber sido?
 —Asesinato, - dijo Ciriaco sin pensárselo.
 
 —No podemos aventurar nada, señoría, - “Puri“, le interrumpió . -
-Puri, - dijo Roble. Ciriaco le guiñó un ojo. - No parece robo. Ellas - dijo, señalando a las chicas - no la conocen. Poco más.  
+Puri, - dijo Roble. Ciriaco le guiñó un ojo. - No parece robo y no
+sabemos nada de la víctima para ir por otro camino. 
 
 —Pero ¿qué hacía aquí? - preguntó Puri.
 
@@ -993,25 +1075,52 @@ Roble miró a Demelza, que le devolvió la mirada.
 —No...
 
 —Que no lo sabemos, Puri, - le interrumpió Roble. - Ayer hubo una
-fiesta pollúa por aquí. Se metería en la habitación para echar un quiqui o dormir la
+fiesta pollúa por aquí. Se metería para echar un quiqui o dormir la
 mona o en plan Ricitos de Oro probando las camitas...
 
 Puri hizo una mueca y el secretario judicial soltó una carcajada.
 
 —O a robar -, dijo Demelza, mirando a Roble.
 
-—A robar... - repitió Roble. En cuyo caso, la sospechosa era la propia Demelza. O su novio. Aunque su novio no parecía sospechoso de absolutamente nada. 
+—A robar... - repitió Roble. 
 
 En ese momento, Tina pareció recordar algo y se fue corriendo a su
-cuarto. Entró en él y cerró la puerta. Salió al cabo de un minuto, sonriendo. 
+cuarto, cerrando la puerta. Salió al cabo de un minuto, sonriendo. 
 
 El campo de batalla del cerebro de Roble, mientras tanto, aparecía
 plagado de neuronas en estado catatónico. Bajó la cabeza y emprendió
-el viaje hacia su casa, acompañando en su salida a Puri y al secretario. 
+el viaje hacia su casa.
 
 Iba por la mitad de la cuesta cuando su pulsera vibró y en ella
-apareció un mensaje informándole de que se había encontrado una conexión
+apareció un mensaje informándole de que había encontrado una conexión
 entre las dos muertas. La real y la putativa. 
+
+<h2>#FAIL</h2>
+
+Los escritores debemos tener nuestras herramientas dispuestas. Como
+los cazadores, vigilamos un tema, colocamos trampas, circulamos
+alrededor del mismo, inquirimos, cavamos.
+
+Todo eso son metáforas. Pero a los escritores nos gustan las metáforas. 
+
+En realidad, usamos alertas de Google, avisos de Twitter, seguimos por
+Facebook. A mi me gusta llevar también libreta: cuando algo sucede,
+móvil en mano, boli en la otra, apunto, resumo, esquematizo. 
+
+Todo eso no son metáforas. 
+
+En medio del mar, que todavía no era bravío y no parecía tener la
+intención de serlo, a pesar de los nubarrones, vibró brevemente el
+reloj. Alguna trampa había saltado, algo le había sucedido en torno a
+mi tema. Tema que se había quedado cerrado en Granada. Que debía
+haberse quedado cerrado en Granada.
+
+Estalla un trueno en la lontananza, cae un rayo, el mar se encrespa.
+
+Un par de palabras en un tweet de `@demechza`: “Sigo viva”. 
+
+El MF Zabaleta continúa su travesía hacia Tánger. Mi mente vuelve y mi
+cuerpo también lo hará en cuanto que pueda.
 
 ## Interludios y preludios
 
@@ -1096,7 +1205,7 @@ Pero era joven y todo parecía bonito y nuevo y brillante y eso debía
 de haber empujado a Ainhoa a comenzar con la fan-fiction de un tema
 que, bien pensado, se prestaba a ello. 
 
-Su aplicación YouWriteNow! le advirtió que ya iba siendo hora de que revisara lo escrito, así que se puso a leer algunos fragmentos. Empezaba a hablar de 
+Se puso a leer algo de lo que había escrito. Empezaba a hablar de
 mecapenes ya en el segundo párrafo. Y, al parecer, no dejaba de
 hacerlo. Ni de cometer errores gramaticales. Y faltas de ortografía.
 
@@ -1337,10 +1446,10 @@ gestos y palabras clave que encaminaran a la persona escuchada a donde
 él quería que fuera. Su cama. O la de ella. 
 
 Por el camino, pescaba alguna idea. Ella estudiaba algo relacionado
-con la química. Y con los cerdos. Dijo en algún momento algo de dormir a los cerdos, pero Roble no estaba seguro de que no lo hubiera hecho en sentido figurado. O quería estudiarlo. O trabajaba en algo relacionado
+con la química. O quería estudiarlo. O trabajaba en algo relacionado
 con la química, aunque cuando apuntó a esto último en una frase
 pareció arrepentirse de decirlo rápidamente. O quería escribir algo
-relacionado con ello. Echó de menos no tener en ese momento las gafas de Google; tendría que mirar más adelante sus perfiles en LinkedIn a ver qué hacía exactamente. 
+relacionado con ello. 
 
 Aparte del fin último de la conversación, también le relajaba
 escuchar. Por eso creía en escuchar, porque no tenía que concentrarse
@@ -1532,13 +1641,16 @@ si conoces a alguien...
 joder, es como, para qué, si aquí lo tengo todo, tengo mi... bueno,
 mis cosas, ya sabes...
 
-—A alguien que quiera pagar... - aclaró Demelza. 
+—A alguien que quiera pagar...
 
 Tina sólo se rió, pero inmediatamente empezó a hablarle a Roble de
 algo llamado nanomateriales, lo que no tardó en provocar bostezos a
-Demelza que se propagaron inmediatamente a Kevin, en una frecuencia creciente, como el parto inminente de una partida. Se levantaron para irse unos minutos  
- más tarde, y en el momento que Demelza le dio dos besos a Roble le dijo,
-cuando sus labios estaban todavía cerca de su oreja:
+Demelza que se propagaron inmediatamente a Kevin. Se levantaron para salir diez
+minutos más tarde. Demelza se agachó ligeramente para besar a Roble,
+un primer beso tan cerca de la comisura de sus labios que se podía
+afirmar matemáticamente que la intersección entre ambos labios no
+había sido nula, y el segundo muy cerca de la oreja, lo que le
+permitió susurrarle cuando sus labios todavía no se habían separado:
 
 —Nos veremos pronto. 
 
@@ -1696,277 +1808,6 @@ en la mesita de noche y empezó a actualizar todo lo que pudiera.
 
 —Nos veremos pronto. - oyó que decía según salía. 
 
-## El camino hacia la policía
-
-Ciriaco se aburría con la perorata de uno de sus tutorizados. Ley
-blablabla código blablabla caso blablabla. Se puso a pensar en sus
-casos. Una agresión por dos encapuchados, uno de ellos posiblemente
-una mujer, a un conductor de la Rober. Un robo en un bufete de
-abogados. El asesinato de una chica. ¿Cómo se llamaba? Demelza. No,
-esa era la chica no-muerta. No zombie, simplemente que no era ella la
-que había muerto. ¿O Demelza era la que había muerto y la otra la que
-no? 
-
-Muerta de un tajo, por cuchillo. Una carnicería. ¿Sería carnicero el
-asesino? ¿Matarife? Matarife lo era de por sí, pero ¿matarife de
-profesión? Tendría que recordar cuando entrara otra vez en el turno
-pedir una lista de los matarifes de Granada. Y provincia. ¿Y Almería?
-No, Jaén estaba mejor comunicado. ¿Córdoba? ¿Málaga? Malagueño iba a
-ser, seguro. Sevillano. Si la chica era granadina, la enemistad
-secular con los sevillanos era motivo suficiente para el asesinato. O
-al revés. ¿Era sevillana la chica? ¿Granadina? Hoy tenía que comprar
-carne, se lo había pedido su mujer. ¿Había dicho cabezada o lomo?
-Cabezada, tenía que ser cabezada. No, lomo. ¿O lomo y cabezada?
-
-Código bla bla bla artículo bla bla bla caso bla bla bla sentencia bla
-bla bla.
-
-## El vecino
-
-Las ventanas del cuarto de Roble estaban orientadas al este y desde
-ellas veía el sol salir sobre Sierra nevada y otras cosas que merecían, casi siempre, unas
-docenas de “Me gusta“ en su Instagram personal, el de los selfies e
-imágenes *urban*. En esta ocasión, el sol se introdujo en un
-interludio entre las nubes y lo despertó antes de las diez de la
-mañana. 
-
-Tenía una palabra en la mente cuando se despertó: Shiseido. Una marca
-de cosméticos que usaba con cierta frecuencia, pero que había dejado
-de usar últimamente. Tactics, se llamaba el producto, o Strategics,
-algo así. ¿Por qué la dejó de usar? No
-lo recordaba. ¿A qué olía? Tampoco lo recordaba. A colonia. A
-japonés. A. 
-
-Se puso a buscar su línea temporal a ver qué le decía. *Ego-mining*,
-la solución cuando la memoria falla y la memoria tiene que fallar
-tarde o temprano. Hacía unos años,
-sí. [Zen for men](http://www.shiseido.es/#/men/zen-for-men). Pero ¿por
-qué había saltado esa alerta, temprana por la hora, en este momento?
-
-Se tomó un zumo de granadas mientras se hacía un café en su Krupp, añadiéndole un cristal de azúcar morena y
-un poco de leche de almendras. Le gustaba cómo las notas amargas de
-uno jugaban con las de otro. Y además, era original. Dejó que las
-noticias y alertas diversas atacaran su pulsera, dedicándoles sólo un
-poco de atención mientras miraba por el ventanal de su casa, viendo la
-saturación de la ciudad, a sus pies, aumentar poco a poco, hasta que
-no parecía una foto Lomo sino algo real y, por tanto, empezaba a
-necesitar algún filtro. La realidad, de por sí, era poco fotogénica. No juntaría
-más de un par de *me gustas* en cualquier sitio. 
-
-Se puso las gafas de Google para ir a correr. A veces aparecía alguna imagen
-interesante y sólo tenía que guiñar el ojo para capturarla. Y un año
-atrás la gente de su barrio lo había mirado con extrañeza. Parecía una
-prótesis retrofuturista. Pero poco a poco dejaron de prestarle
-atención. Tomó, como era habitual, la cuesta del Barranco del Abogado
-hacia arriba, pasó el cementerio, siguió hasta el Llano de la Perdiz y
-allí se paró, mirando hacia el Albayzín, buscando el rayo de luz, la
-nube, el momento que pudiera capturar y subir a Instagram. En este
-Instagram, en el personal, sólo capturaba *me gustas*. Era con el otro
-con el que conseguía dinero. Las dos cosas le resultaban
-satisfactorias. Al menos, los *me gustas* no se devaluaban como los
-bitcoins que recolectaba con el otro.
-
-Bajó andando hacia su casa, más relajado, parando un par de veces para
-revisar lo capturado y subir alguna foto. Seleccionó un par, una de
-ellas con gatos y las subió. Cuando llegó a su casa ya tenía treinta
-*me gusta*. En la de los gatos, claro.
-
-Roble estaba fuera de turno, pero tras desayunar tostadas con flor de
-sal del Himalaya y aceite de oliva virgen extra extraído en frío
-armenio se pasó por la comisaría para ver si
-había llegado algún informe nuevo. Había cierta gente que se negaba a
-dejar nada en un servidor web o enviarla por correo electrónico, así
-que algunas veces no quedaba más remedio. Y luego, estaba la ley de
-protección de datos, que, en general, hacía más difícil acceder a
-información en la comisaría que comprarla o buscarla en la web
-profunda. Pero a veces no había más remedio que usar la de la
-comisaría, porque era la única que tenía valor probatorio. Y, al
-final, saber quién era el malo estaba bien, pero lo que realmente le
-ponía cachondo a Roble era que el mismo perpetrador, y todo el mundo,
-supieran que había sido el propio Roble el que había conseguido las
-pruebas, tirado del hilo, andado el camino que lleva a la condena.
-
-Porque solía ser Roble. Ciriaco... Ciriaco estaba ahí, cumplía su
-trabajo, también andaba el camino, o al menos movía las piernas, pero nunca había ideas,
-asociaciones, saltos lógicos. De hecho, a veces ni siquiera estaba
-ahí. Cuando no era su turno, o cuando era su turno y tenía su mente en
-alguna clase o en algún otro manual para preparar oposiciones. Que
-era probablemente lo que estaba haciendo ahora.
-
-Había una cosa que le preocupaba. En la web profunda, las apuestas en `whodunnit.onion` pagaban 3 a 1 el que eventualmente fuera Demelza la
-asesina. Tina iba 25 a 1, y otros asistentes a la baja. Jože el
-esloveno estaba escalando desde el 30 a uno, y ya se pagaba 29 a
-2. Lola no aparecía. Tampoco aparecían ni él ni Ciriaco, lo que era
-todo un alivio.
-
-Que la gente apostara por que Demelza era la asesina tampoco tenía que
-significar nada. Pero esas apuestas eran como un *crowdsourcing* de la
-investigación criminal. La gente se jugaba su propio dinero, y por no
-perder ese dinero estaba dispuesta a dedicar bastante esfuerzo con el
-objetivo de no perderlo. Y ese dinero, ahora mismo, apostaba por la
-escritora de mecaporno. 
-
-Que, por cierto, había recibido una buena cantidad de mensajes y de
-llamadas de la chica muerta. ¿Cómo se llamaba? Chica Muerta. Misterio
-que Resolver. Qué más daba. Importaba el hecho. Envió un *doodle* a
-Demelza pidiéndole horas posibles para encontrarse *de forma
-oficial*. Tina... Tina no merecía la pena. Había merecido, pero no
-volvía a merecerla. Bloqueó sus contactos por si en algún momento se
-volvía a acordar de él.
-
-La azafata de congresos le había contestado preguntándole quién era,
-pidiéndole una foto y diciéndole que se podían ver cualquier noche. El
-chico esloveno no había contestado ni había tenido ninguna actividad
-online desde el propio día de la fiesta. 
-
-Recibió una llamada. Era un número interno, de alguien de la casa. 
-
-—Roble Sáenz -, dijo.
-
-—Oye, agente Guerrero aquí. He pasado a echar un vistazo a los
-precintos de Carretera de la Sierra, lo llevas tú, ¿no?
-
-—Sí.
-
-—No, los precintos están bien, no te preocupes, nada por ahí, pero
-dice la jueza que se levanten mañana, ¿no? ¿Es mañana, Torres? - dijo,
-sonando como si hubiera alejado un poco la boca del micrófono, “Sí,
-eso“ - o sea, mañana. Bueno, que me he encontrado a un menda aquí,
-saliendo del bloque. ¿No estaba desocupado?
-
-—Según nos dijeron... -, contestó Roble.
-
-—Bueno, pues parece que está okupado, oye, qué bueno, Torres - “Sí, me
-parto el pecho, ja, ja“, se oyó tenuemente - el menda este, oye, tú,
-¿cómo te llamas? - hubo una pausa y unos susurros. - No lo
-entiendo. Pero vamos, que el tío estaba viviendo enfrente. ¿Has mirado
-los antecedentes, Torres? - “Míralos tú“ - Que no puedo, que lo tengo
-a este pillado, coño, Torres, joder, que es un momento...
-
-—¿Lo podéis traer? - dijo Roble.
-
-—¿Detenido?
-
-—No,  a declarar sólo.
-
-—¿Y si no quiere? - preguntó el agente
-
-—No pasa nada, voy yo. 
-
-—Pues no quiere.
-
-—Ya voy-, dijo Roble. 
-
-—Joder, y yo de niñera mientras, me cago en diez. ¡Torres! ¿Me miras
-los antecedentes, joder?
-
-Roble salió de la comisaría y se fue andando hacia el final de la Carretera de la Sierra, o el principio, según se mirara. Se arrebujó en su Barbour y se adentró en el día claro, luminoso y por tanto, espantosamente frío que hacía en Granada. Tan pronto el sol calentaba animosamente los centímetros cuadrados de su cara expuestos a la intemperie, como una ráfaga de aire frío le hacía arrepentirse incluso de esos pocos centímetros. 
-
-El tiempo parecía darles pistas de cómo se estaba acercando a la solución del caso: frío, frío. Era posible que este nuevo elemento diera alguna pista. Pero también era posible y más que probable que no tuviera ni idea, que fuera simplemente el vecino que se les metía en la casa a tomarse la cerveza y a lo que cayera.
-
-Encontró a los dos agentes en el rellano de la escalera y a un muchacho vestido con un chándal ajado sentado, con la cabeza apoyada en la pared. Se le acercaron los dos, haciendo un amago de saludo. A Roble no dejaba de sorprenderle ese gesto, siempre se sentía tentado de mirar hacia atrás a ver si se había colado algún general detrás suyo. Hacía tiempo que él había entrado en la policía, pero la policía no acababa de entrar en él, al menos esos aspectos ritualísticos y folclóricos. 
-
-—Torres -, dijo uno de los agentes, el más corpulento, levantando un dedo,- y este es Quesada. - Con las gafas Google identificó al muchacho. Ignacio Salido, aunque en sus perfiles en redes sociales había poco movimiento desde años atrás. Le hizo varias fotos y comenzó a cotejarlas con las que había de la fiesta. 
-
-Torres le dijo en un aparte
-
-—Se dedica al menudeo, lo han detenido varias veces por posesión y está a espera de juicio. Aunque por las pintas y la que lleva encima no sé yo si le quedará producto para menudear después de lo que se mete. 
-
-—¿Heroína? - preguntó Roble.
-
-—Yo diría que no. Ka, lo más probable. Nos ha dicho que no vende, que se la pasa la amiga de su novia. Pero no nos ha querido decir ni quién es su novia ni nada más. Ahí está, más pallá que pacá...
-
-—Ignacio -, le dijo roble, sacudiéndolo suavemente. Ignacio murmuró, pero siguió con los ojos cerrados y la cabeza apoyada en la pared. Roble lo sacudió con algo de más determinación, y le dijo - Ignacio. Nacho. ¡Ignacio!
-
-—¿Le meto una merla? - dijo Torres, haciendo ademán de sacudirle una guantada. Roble lo miró y alzó las manos como disculpándose. - Para despertarle, jefe, sólo para despertarle. La amenaza, en todo caso, surtió efecto, porque Ignacio abrió los ojos y los miró uno por uno, posando sus ojos en Roble.
-
-—Un madero moderno. Nos han jodido -, dijo. Volvió a cerrar los ojos.
-
-—Ignacio, por favor -, insistió Roble. Por el rabillo del ojo veía a Torres haciendo ademanes a su compañero, indicándole que a estos (señalando con el dedo) con un par de hostias (haciendo el ademán de dar una del derecho y otra, naturalmente, del revés) se queda nuevo (levantando el pulgar). La visión periférica de Roble no llega a ver qué había contestado el otro. 
-
-—Y educao. Nos han jodido -, dijo, de nuevo, Ignacio, sin abrir los ojos. 
-
-—Ignacio, ¿sabes qué... ? - le preguntó Roble, haciendo una pequeña pausa después del que para elegir la frase correcta. ¿Qué sucedió? ¿Quién ha muerto?
-
-—No sé nada y si lo supiera no te lo iba a decir -, mascullo Ignacio -, cerdo educado de los cojones. Roble sintió el aliento de Torres más cerca de su nuca. De hecho, hasta vio una nubecilla de vaho rebasarle. El rellano tenía una temperatura igual o inferior la exterior, pensó Roble, ajustándose sus guantes italianos hechos a medida y pagados en bitcoins. Dio también un paso a su izquierda para interponerse entre Torres e Ignacio.
-
-—En la fiesta... - empezó Torres.
-
-—Sí, estuve en la fiesta - dijo Ignacio a la vez que abría los ojos. - La organicé con mi novia. Vivimos juntos y es la tía más buena y más cojonuda del mundo. Y no hicimos ruido ni ná. Y si lo hicimos no le importa una mierda a ningún imbécil ni a ningún madero. - Estas últimas palabras las escupió. Literalmente. Si hubiera estado a la altura de Roble, le habría llovido. Como seguía sentado en el escalón, sólo creó manchitas brillantes sobre la solería. 
-
-—Si tú no vives ahí, cretino. Vives enfrente porque has descerrajao la puerta -, saltó Torres, que decidió canalizar verbalmente las ganas de agredirle. Roble lo miró  y Torres se retiró unos pasos atrás, indicándole a su compañero que se viniera con él. Roble continuó.
-
-—Pero la gente...
-
-——La gente habla y no sabe una puta mierda de nada. Ahí no hubo droga
-ni ná de ná y si hubo yo no sé ná de ná, que la gente se mete de todo
-y yo no tengo que saber ni qué se meten ni habérselo vendío ni ná de
-ná. Además, había una peña mu chunga... 
-
-—Chunga... - dijo Roble.
-
-—Chunga que te cagas. Un guiri que se bebía hasta el agua de
-colonia. Y daba saltos y pegaba voces y cuando se acercaba mi Demelza
-se tapaba la nariz y se largaba. 
-
-—Tu Demelza... - dijo Roble.
-
-—Sí, es mi novia, vivimos juntos, cretino modernillo. Y hacemos cosas
-qu ea ella le gustan, con una máscara y... con cosas que no te voy a
-contar, sobrao, que eres un sobrao. Y por eso estaba en la fiesta para
-que la gente chunga no diera por saco, y por eso al guiri cuando se
-puso muy pesao lo largué de una patá en el culo, porque era gilipoyas niñato
-guiri de mierda, y luego la tía esa...
-
-—La de... - dijo Roble.
-
-—La que no tiene ni puta idea y no hace más que darle la lata a mi
-Demelza, preguntándole, qué haces, qué vas a hacer, cuando vas a sacar
-otro libro, como me ponen, yo también escribo, mira y me dces, somos
-escritoras, nos tenemos que ayudar... tía coñazo, y además no hacía
-más que meterse en el cuarto de Demelza, nuestro cuarto, bueno, no es
-nuestro cuarto, porque ella... 
-
-—El cuarto de... - dijo Roble.
-
-—Sí, el que está al lado del retrete, el de Demelza, coño, tó el rato
-la tía yendo pa mear, que no se podía mear tanto, bueno, yo sí, porque
-la vejiga ya... - cerró los ojos y volvió a apoyar la cabeza en la
-pared.
-
-La pulsera de Roble vibró, indicándole que le había llegado un
-mensaje; el color rojo al que viró le indicaba que era importante. Los
-mensajes importantes había que leerlos. Y el tío se había aletargado,
-de su nariz salía un débil hálito de vapor. Ni siquiera parecía darse
-cuenta del frio, sólo con una camiseta interior de manga larga y
-pantalones. 
-
-Sacó el móvil y vio el mensaje. De la científica. Habían identificado
-huellas de varias personas en la habitación. Una de ellas estaba
-fichada, un tal Ignacio Salido, detenido por alteración del orden
-público y por venta de estupefacientes. 
-
-No todo eran alucinaciones, pues. El informe también hablaba de los
-restos que se habían encontrado y los que se habían podido
-identificar, ninguno de persona con antecedentes. Toda la sangre
-coincidía con la de la muerta, y finalmente hablaba de las huellas
-encontradas en la ropa de la muerta.
-
-No era habitual encontrar huellas en la ropa; aunque la grasa de la
-piel se pega a los tejidos como a cualquier otra cosa, la textura
-impide que sea fácil encontrar huellas. Sólo en telas muy lisas como
-la seda o el satén se puede encontrar algo.
-
-La chica había llevado un pañuelo de seda, al parecer. No lo había
-visto, porque no había mirado las fotografías hechas con el móvil con
-el detalle adecuado. Y posiblemente no sería lo único. Tendría que
-verlas en la pantalla de su casa. Pero, mientras tanto, las huellas
-que se habían encontrado en la ropa eran, principalmente, de la
-muerta. Pero también del mismo Ignacio Salido.
-
-Bajó las escaleras procurando no hacer ruido para buscar a Torres. Por
-lo pronto, se lo llevaban al calabozo. 
-
 ## Agradecimientos
 
 A [Marcos Taracido](http://twitter.com/marcostaracido) por su buen
@@ -1975,3 +1816,7 @@ debería ser obvio, porque si no se me hubiera pasado no habría sido un
 error). También a [Jose María](http://blog.unlugarenelmundo.es/), por
 contestar a mis continuas dudas y preguntas. 
 
+## Índice
+
+* Esto se convertirá en el índice de contenidos. 
+{: toc}
