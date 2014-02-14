@@ -2005,17 +2005,17 @@ se tapaba la nariz y se largaba.
 —Tu Demelza... - dijo Roble.
 
 —Sí, es mi novia, vivimos juntos, cretino modernillo. Y hacemos cosas
-qu ea ella le gustan, con una máscara y... con cosas que no te voy a
+que a ella le gustan, con una máscara y... con cosas que no te voy a
 contar, sobrao, que eres un sobrao. Y por eso estaba en la fiesta para
 que la gente chunga no diera por saco, y por eso al guiri cuando se
-puso muy pesao lo largué de una patá en el culo, porque era gilipoyas niñato
+puso muy pesao lo largué de una patá en el culo, porque era gilipollas niñato
 guiri de mierda, y luego la tía esa...
 
 —La de... - dijo Roble.
 
 —La que no tiene ni puta idea y no hace más que darle la lata a mi
 Demelza, preguntándole, qué haces, qué vas a hacer, cuando vas a sacar
-otro libro, como me ponen, yo también escribo, mira y me dces, somos
+otro libro, como me ponen, yo también escribo, míratelo y me dices, somos
 escritoras, nos tenemos que ayudar... tía coñazo, y además no hacía
 más que meterse en el cuarto de Demelza, nuestro cuarto, bueno, no es
 nuestro cuarto, porque ella... 
@@ -2031,7 +2031,7 @@ La pulsera de Roble vibró, indicándole que le había llegado un
 mensaje; el color rojo al que viró le indicaba que era importante. Los
 mensajes importantes había que leerlos. Y el tío se había aletargado,
 de su nariz salía un débil hálito de vapor. Ni siquiera parecía darse
-cuenta del frio, sólo con una camiseta interior de manga larga y
+cuenta del frío, sólo con una camiseta interior de manga larga y
 pantalones. 
 
 Sacó el móvil y vio el mensaje. De la científica. Habían identificado
