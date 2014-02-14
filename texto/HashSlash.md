@@ -2019,7 +2019,8 @@ guiri de mierda, y luego la tía esa...
 —La que no tiene ni puta idea y no hace más que darle la lata a mi
 Demelza, preguntándole, qué haces, qué vas a hacer, cuando vas a sacar
 otro libro, como me ponen, yo también escribo, míratelo y me dices, somos
-escritoras, nos tenemos que ayudar... tía coñazo, y además no hacía
+escritoras, nos tenemos que ayudar... -, dijo, caricaturizando la voz
+de alguien. - Tía coñazo, y además no hacía
 más que meterse en el cuarto de Demelza, nuestro cuarto, bueno, no es
 nuestro cuarto, porque ella... 
 
