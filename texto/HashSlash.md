@@ -2048,7 +2048,10 @@ encontradas en la ropa de la muerta.
 No era habitual encontrar huellas en la ropa; aunque la grasa de la
 piel se pega a los tejidos como a cualquier otra cosa, la textura
 impide que sea fácil encontrar huellas. Sólo en telas muy lisas como
-la seda o el satén se puede encontrar algo.
+la seda o el satén se puede encontrar algo. Además, la técnica sólo se
+había empezado a usar hacía un par de años y todavía no la tenían
+demasiado controlada. Algo de deposición de metal, se llamaba. Tendría
+que buscarlo.
 
 La chica había llevado un pañuelo de seda, al parecer. No lo había
 visto, porque no había mirado las fotografías hechas con el móvil con
