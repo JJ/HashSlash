@@ -1846,6 +1846,18 @@ no parecía una foto Lomo sino algo real y, por tanto, empezaba a
 necesitar algún filtro. La realidad, de por sí, era poco fotogénica. No juntaría
 más de un par de *me gustas* en cualquier sitio. 
 
+Su pulsera le avisó de que llevaba acumuladas más calorías que la
+media de su grupo de NoFlab. Empezó a vibrar insistentemente
+indicándole los kilómetros que tendría que correr hoy si no quería
+caer todavía más abajo. No paró de hacerlo hasta que no detectó que se
+había puesto las zapatillas de correr. Pero sólo por un momento. Si no
+comenzaba, efectivamente, a moverse, vibraría y vibraría y como medida
+extraordinaria pondría en su muro un mensaje en el que se llamaría
+perezoso a sí mismo y pondría, con precisión de un gramo, cuánto por
+encima de la media estaba. Pero eso nunca pasaría. Pasó una vez y
+estuvo a punto de convertirse en *trending topic* entre sus
+conexiones. Así qeu no volvería a pasar.
+
 Se puso las gafas de Google para ir a correr. A veces aparecía alguna imagen
 interesante y sólo tenía que guiñar el ojo para capturarla. Y un año
 atrás la gente de su barrio lo había mirado con extrañeza. Parecía una
