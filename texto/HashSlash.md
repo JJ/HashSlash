@@ -1859,7 +1859,7 @@ extraordinaria pondría en su muro un mensaje en el que se llamaría
 perezoso a sí mismo y pondría, con precisión de un gramo, cuánto por
 encima de la media estaba. Pero eso nunca pasaría. Pasó una vez y
 estuvo a punto de convertirse en *trending topic* entre sus
-conexiones. Así qeu no volvería a pasar.
+conexiones. Así que no volvería a pasar.
 
 Se puso las gafas de Google para ir a correr. A veces aparecía alguna imagen
 interesante y sólo tenía que guiñar el ojo para capturarla. Y un año
