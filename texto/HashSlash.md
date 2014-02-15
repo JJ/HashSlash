@@ -191,7 +191,7 @@ Clínico le preguntaremos. Pero vamos, que no.
 
 —La posición del cuchillo, el ángulo, - hizo movimientos de Bates
 apuñalando la cortina de
-la ducha en Psicosis - quien fuera tendría que ser bastante más alto
+la ducha en Psicosis, - quien fuera tendría que ser bastante más alto
 que ella. Y este menda, así a ojo de buen cubero, era de la misma
 altura o un poco más bajo.
 
@@ -239,7 +239,7 @@ espabilados a estas horas de la mañana. Todo eso no había impedido que el núm
 
 Ciriaco se volvió a sentar en el
 sillón, diciendo
-por el camino “Afú” varias veces,  y se puso a escribir en un bloc pequeñito, con  portada a
+por el camino “Afú” varias veces, y se puso a escribir en un bloc pequeñito, con  portada a
 cuadros y un alambre uniendo las hojas por su parte superior. 
 
 Se comenzaron a oir ruidos en dirección opuesta a la que se
@@ -372,13 +372,12 @@ Café para dos
 -----
 
 Por un momento, Roble había creído que la chica iba a descubrir la
-situación antes de lo conveniente.  El que no lo hiciera hacerlo no sólo le evitaba
-hacer de consejero, que tendría que ser él porque Ciri era un inútil
-para prácticamente todo, sino que, además, podía aprovecharse de la
-situación sacándole algo de información a esta chica. Había un tercer
+situación antes de lo conveniente, es decir, antes de que pudieran sacarle cierta información sobre qué había pasado la noche anterior. Y antes de que, sabiendo lo ocurrido, tuvieran
+hacer de consejeros, que tendría que ser él porque Ciri era un inútil
+para prácticamente todo. Además, si ella había tenido algo que ver con ello, trataría de sacarle información sobre qué sabían, de donde se filtraría lo que ella sabía. Había un tercer
 además, que era la posibilidad de, eventualmente y con un poco de
 suerte, tirársela, lo que habría sido bastante improbable en caso de
-que su presencia estuviera asociada, desde el principio, con una
+que la presencia de Roble estuviera asociada, desde el principio, con una
 compañera asesinada. No es una buena forma de presentarte. “Hola, soy
 poli, tu compi ha muerto y, por casualidad, ¿no la habrás matado tu?“.
 
@@ -389,12 +388,12 @@ el zumo de naranja de un trago y haber empezado con el café con leche
 semidesnatada, la mitad fría. - creo que vino todo el mundo, pero todo
 el mundo. Hubo un momento que no se podía ni salir ni entrar, gente
 por todos lados, en los pasillos, ni se oía la música, fíjate. No
-había música, ahora que lo pienso. Es lo guay de estar en un sitio tan
-solitario, que no molestas a nadie. 
+había música, ahora que lo pienso. Es lo guay de vivir en un sitio tan
+solitario, que no molestas a nadie. Vamos, que me da igual molestarles o no, pero si los molestas llaman a los maderos y te cortan el rollo. 
 
-Roble pensó que era una chica totalmente aceptable, si no el tipo de
+Roble pensó que era una chica totalmente aceptable, aunque no el tipo de
 chica por el que se haría algo épico, como, por ejemplo, dejar a otra
-chica. En ese momento del día, el pelo no era su fuerte. El que
+chica. O incluso cancelar una cita. En ese momento del día, el pelo no era su fuerte. El que
 hubiera salido a la calle sin dedicarle cierto tiempo más allá de un
 cepillado sin vigor tampoco le había favorecido. Pero era cóncava
 donde la evolución había hecho a las mujeres cóncavas y convexa en los
@@ -407,21 +406,21 @@ cafetería abierta. Por el camino, un bloque de casas de dos pisos con
 carteles de “Se alquila”, “Se vende”, algunos ya caídos, persianas
 echadas, escombros de burbuja.
 
-En el bar, bufandas del Granada, que andaba peleándose con denuedo
+En el bar, colgadas en las paredes, bufandas del Granada, que andaba peleándose con denuedo
 para alcanzar  los puestos
-de descenso de segunda de nuevo, parejas de jubilados, jubilados sin pareja y algún grupo de
+de descenso de segunda de nuevo; parejas de jubilados, jubilados sin pareja y algún grupo de
 amas y amos de casa de casa que compartían el café post-dejada de los niños en el
-cole y hablaban, precisamente, de eso.
+cole y hablaban, precisamente, de eso, aparte de organizar partidas de pádel por parejas. 
 
 —Por eso acabamos, ¿a qué hora acabamos? -, le preguntó a Roble, que
 hizo un ruido ambiguo y puso cara de pensativo. - No te acuerdas tú
 tampoco, ¿verdad? - Roble se encogió de hombros. Tina notó el
 bloquecito cuadrado de cristal que tenía delante de las gafas. ¿Google
-Glasses? No había visto muchas. 
+Glasses? No había visto muchas. El tío tenía que ser un poco friqui. Pero friqui bueno. Friqui *hipster*. 
 
 —Cuando Demelza... - dejó la frase sin terminar, para que Tina lo
-hiciera por él. O la dejara ahí, implicando que se había ido a la vez
-que Demelza se había ido a su habitación. O al otro barrio. Roble no
+hiciera por él. O la dejara ahí, implicando que se había ido cuando
+Demelza se había ido a su habitación. O al otro barrio. Roble no
 pudo evitar sonreír.
 
 —No, espera, Demelza... yo no la vi a partir de las dos o las tres. ¿O
@@ -446,7 +445,7 @@ móvil.
 
 Sonó el de Roble con el tono de Ciriaco. Eso no podía significar más
 que la llegada del juez para levantar el cadáver y el forense. Ya
-había, de hecho, visto pasar la furgoneta del anatómico-forense en
+había, de hecho, visto pasar la furgoneta del Anatómico-Forense en
 dirección hacia el piso. 
 
 No creía que le durara mucho más el café, así que antes de que
@@ -480,7 +479,7 @@ como para clavar un cuchillo en el esternón. Roble sonrió levemente
 ante este pareado y lo anotó para un tuit posterior. También anotó la
 sonrisa para un selfie futuro. 
 
-—¿Volvemos? - dijo Tina, levantándose. - A ver cómo andan esos - le
+—¿Volvemos? - dijo Tina, levantándose. - A ver cómo andan esos, - le
 dijo haciendo amago de pegarle un codazo a Roble. Roble pagó, Tina no
 hizo amago siquiera. 
 
@@ -1049,7 +1048,16 @@ Pasaron al lado de las dos chicas diciéndoles, de una forma un tanto
 automática, “Mi pésame“. Tina soltó una risita. Demelza la miró,
 poniendo inmediatamente los ojos en blanco.
 
-Al momento salieron de la habitación del crimen la jueza y el secretario. 
+Ciriaco las miraba a las dos, sin saber muy bien con qué
+quedarse. Eran jóvenes, desahogadas, agradables, bien alimentadas y
+vestidas. No les importaba un carajo la muerte. Ahí había alguien, de
+cuerpo presente, que podían conocer o no, y ahí estaban las dos que
+sólo les faltaba limarse las uñas para ofrecer la imagen más completa
+de la despreocupación. En una serie americana o coreana de las que veía habrían sido dos sicópatas, que habrían una atraído a la chica a su habitación y otra asido velozmente el cuchillo del Ikea de la cocina y asestado certera puñalada en el tercer, o cuarto, o quinto, espacio intercostal.
+
+En una realidad española habrían sido simplemente dos niñatas a las que les importaba poco, o nada, lo que no fuera un problema propio o algo que les pudiera proporcionar entretenimiento o diversión inmediata. En lo que no se diferenciaban tanto del propio Ciriaco, que en ese momento pensaba en el problema inmediato: lo que tendría que escribir en el informe a la jueza sobre la actitud de las dos inquilinas, no, tacha eso, sospechosas, no, tacha eso, ¿testigos? ¿Extraña? ¿Serena? ¿Sospechosa? Pero ¿sospechosa de qué? ¿De mostrarse indiferentes ante la muerte de una desconocida, o quizás no tanto, con un cierto matiz de molestia por haber sucedido todo eso en su propia habitación? El horror de la página en blanco era una nadería al lado del horror de un informe en blanco. Pero, finalmente, decidió simplemente poner "No hay ningún indicio ni actitud que ligue a *nombre completo de las chicas* a los hechos". Si la jueza decidía otra cosa, que se buscar la vida, que para eso se había sacado las oposiciones y ganaba un sueldo bastante superior al que ganaba él. 
+
+Al momento salieron de la habitación del crimen la jueza Blanco y el secretario. 
 
 —Esto está listo-, dijo el secretario. La tez de la jueza estaba blanca y además
 era Blanco, pensó Roble, una ocasión propicia para que un hipotético
@@ -1065,8 +1073,7 @@ ocurre qué puede haber sido?
 —Asesinato, - dijo Ciriaco sin pensárselo.
 
 —No podemos aventurar nada, señoría, - “Puri“, le interrumpió . -
-Puri, - dijo Roble. Ciriaco le guiñó un ojo. - No parece robo y no
-sabemos nada de la víctima para ir por otro camino. 
+Puri, - dijo Roble. Ciriaco le guiñó un ojo. - No parece robo. Ellas - dijo, señalando a las chicas - no la conocen. Poco más.  
 
 —Pero ¿qué hacía aquí? - preguntó Puri.
 
@@ -1075,24 +1082,24 @@ Roble miró a Demelza, que le devolvió la mirada.
 —No...
 
 —Que no lo sabemos, Puri, - le interrumpió Roble. - Ayer hubo una
-fiesta pollúa por aquí. Se metería para echar un quiqui o dormir la
+fiesta pollúa por aquí. Se metería en la habitación para echar un quiqui o dormir la
 mona o en plan Ricitos de Oro probando las camitas...
 
 Puri hizo una mueca y el secretario judicial soltó una carcajada.
 
 —O a robar -, dijo Demelza, mirando a Roble.
 
-—A robar... - repitió Roble. 
+—A robar... - repitió Roble. En cuyo caso, la sospechosa era la propia Demelza. O su novio. Aunque su novio no parecía sospechoso de absolutamente nada. 
 
 En ese momento, Tina pareció recordar algo y se fue corriendo a su
-cuarto, cerrando la puerta. Salió al cabo de un minuto, sonriendo. 
+cuarto. Entró en él y cerró la puerta. Salió al cabo de un minuto, sonriendo. 
 
 El campo de batalla del cerebro de Roble, mientras tanto, aparecía
 plagado de neuronas en estado catatónico. Bajó la cabeza y emprendió
-el viaje hacia su casa.
+el viaje hacia su casa, acompañando en su salida a Puri y al secretario. 
 
 Iba por la mitad de la cuesta cuando su pulsera vibró y en ella
-apareció un mensaje informándole de que había encontrado una conexión
+apareció un mensaje informándole de que se había encontrado una conexión
 entre las dos muertas. La real y la putativa. 
 
 <h2>#FAIL</h2>
@@ -1205,7 +1212,7 @@ Pero era joven y todo parecía bonito y nuevo y brillante y eso debía
 de haber empujado a Ainhoa a comenzar con la fan-fiction de un tema
 que, bien pensado, se prestaba a ello. 
 
-Se puso a leer algo de lo que había escrito. Empezaba a hablar de
+Su aplicación YouWriteNow! le advirtió que ya iba siendo hora de que revisara lo escrito, así que se puso a leer algunos fragmentos. Empezaba a hablar de 
 mecapenes ya en el segundo párrafo. Y, al parecer, no dejaba de
 hacerlo. Ni de cometer errores gramaticales. Y faltas de ortografía.
 
@@ -1446,10 +1453,10 @@ gestos y palabras clave que encaminaran a la persona escuchada a donde
 él quería que fuera. Su cama. O la de ella. 
 
 Por el camino, pescaba alguna idea. Ella estudiaba algo relacionado
-con la química. O quería estudiarlo. O trabajaba en algo relacionado
+con la química. Y con los cerdos. Dijo en algún momento algo de dormir a los cerdos, pero Roble no estaba seguro de que no lo hubiera hecho en sentido figurado. O quería estudiarlo. O trabajaba en algo relacionado
 con la química, aunque cuando apuntó a esto último en una frase
 pareció arrepentirse de decirlo rápidamente. O quería escribir algo
-relacionado con ello. 
+relacionado con ello. Echó de menos no tener en ese momento las gafas de Google; tendría que mirar más adelante sus perfiles en LinkedIn a ver qué hacía exactamente. 
 
 Aparte del fin último de la conversación, también le relajaba
 escuchar. Por eso creía en escuchar, porque no tenía que concentrarse
@@ -1641,16 +1648,13 @@ si conoces a alguien...
 joder, es como, para qué, si aquí lo tengo todo, tengo mi... bueno,
 mis cosas, ya sabes...
 
-—A alguien que quiera pagar...
+—A alguien que quiera pagar... - aclaró Demelza. 
 
 Tina sólo se rió, pero inmediatamente empezó a hablarle a Roble de
 algo llamado nanomateriales, lo que no tardó en provocar bostezos a
-Demelza que se propagaron inmediatamente a Kevin. Se levantaron para salir diez
-minutos más tarde. Demelza se agachó ligeramente para besar a Roble,
-un primer beso tan cerca de la comisura de sus labios que se podía
-afirmar matemáticamente que la intersección entre ambos labios no
-había sido nula, y el segundo muy cerca de la oreja, lo que le
-permitió susurrarle cuando sus labios todavía no se habían separado:
+Demelza que se propagaron inmediatamente a Kevin, en una frecuencia creciente, como el parto inminente de una partida. Se levantaron para irse unos minutos  
+ más tarde, y en el momento que Demelza le dio dos besos a Roble le dijo,
+cuando sus labios estaban todavía cerca de su oreja:
 
 —Nos veremos pronto. 
 
