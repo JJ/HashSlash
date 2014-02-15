@@ -814,21 +814,23 @@ sabía, al menos, si se había encontrado con ellos alguna vez. Con un
 poco de suerte, podía tener alguna información adicional y asociar la
 firma a una persona. 
 
-—No requiere nada, en realidad. Un vídeo, tres minutos, ahora qué veo,
+—No requiere nada, en realidad. Un vídeo son tres minutos, y luego es
+como, ahora qué veo,
 ¿no? Un libro son horas y horas de entretenimiento sin tener que
 molestarse en pensar qué haces luego, ¿te das cuenta?
 
-Sí se debía dar cuenta, porque continuó. Roble ya había asociado la
+Sí se debía de dar cuenta, porque continuó. Roble ya había asociado la
 voz a un *podcast* aparecido en algún sitio, lo que le dio también un
 nombre y todas las demás coordenadas. Usaba el nombre Vicente
 Asterisco. 
 
-—Además, lo mejor de los libros es que la gente *no los lee*, ¿te das
+—Además, lo mejor de los libros es que, en realidad, la gente *no los lee*, ¿te das
 cuenta? Satisfacen su necesidad inmediata de adquirir algo, por poco
 dinero, o de poseerlo para poder vanagloriarse de ello en las redes
-sociales, ¿sabes? 
+sociales, ¿sabes? Después de eso, leerlos es un extra, pero no es
+estrictamente necesario, ¿te das cuenta?
 
-Roble se entretuvo mirando el perfil de la chica muerta, Demelza. Ahí
+Roble se entretuvo mirando el perfil en las redes sociales de la chica muerta, Demelza. Ahí
 estaban sus compras de libros, efectivamente. Una cantidad
 considerable de títulos que incluían referencias tórridas o
 abiertamente eróticas. Y ahí estaban sus propios libros publicados y
@@ -1099,7 +1101,7 @@ Todo eso no son metáforas.
 En medio del mar, que todavía no era bravío y no parecía tener la
 intención de serlo, a pesar de los nubarrones, vibró brevemente el
 reloj. Alguna trampa había saltado, algo le había sucedido en torno a
-mi tema. Tema que se había quedado cerrado en Granada. Que debía
+mi tema. Tema que se había quedado cerrado en Granada. Que debía de
 haberse quedado cerrado en Granada.
 
 Estalla un trueno en la lontananza, cae un rayo, el mar se encrespa.
@@ -1151,7 +1153,7 @@ infinitamente más inexorable que el que hace que no duermas de
 noche. Se puede perder el sueño de noche por muchas razones. Pero
 hacen falta sustancias potentes y preocupaciones acuciantes para
 perder el sueño post-almuerzo.  Por eso, pensaba Roble, alguien debía
-haber pensado una palabra especial para ello. ¿Insiesto? ¿Minusiesto? 
+de haber ideado una palabra especial para ello. ¿Insiesto? ¿Minusiesto? 
 
 Poco antes de llegar a su casa la pulsera le había avisado de que
 había encontrado la conexión entre la chica muerta y la chica que
@@ -1755,7 +1757,7 @@ la que había entrado en su casa y posteriormente en su cama sin mayor
 problema. No habría sido difícil encontrar a Tina, su móvil iba
 diciendo a los cuatro vientos desde su dirección única IPv6 por dónde
 iba y en dónde se quedaba parada. Y a partir de ahí... bueno, no era
-tan fácil. No debía serlo. Si la gente podía ir por la vida colándose
+tan fácil. No debía de serlo. Si la gente podía ir por la vida colándose
 en la casa de un subinspector de policía, incluso una casa tan evidente como la suya,
 una nave espacial en medio del Barranco del Abogado, los cacos tendría
 la vida muy fácil. 
@@ -2186,6 +2188,6 @@ Demelza, más cerca de su destino final.
 
 A [Marcos Taracido](http://twitter.com/marcostaracido) por su buen
 humor y haber descubierto un error que a mi se me había pasado (lo que
-debería ser obvio, porque si no se me hubiera pasado no habría sido un
+debería de ser obvio, porque si no se me hubiera pasado no habría sido un
 error). También a [Jose María](http://blog.unlugarenelmundo.es/), por
 contestar a mis continuas dudas y preguntas. 
