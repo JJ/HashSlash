@@ -2078,7 +2078,18 @@ muerta. Pero también del mismo Ignacio Salido.
 Bajó las escaleras procurando no hacer ruido para buscar a Torres. Por
 lo pronto, se lo llevaban al calabozo. 
 
+## La hora del vermú
 
+A  las una de la tarde, Ciriaco estaba harto de alumnos displicentes, de
+oposiciones y de los chinos que las inventaron hacía mil o un millón
+de años, así que bajó por la calle Navas buscando algún bar en los
+alrededores de la comisaría donde los compañeros, algunos de ellos
+fuera de servicio, se reunían a hablar de sus cosas y en algunas
+ocasiones de las de los demás. Entre plato de cazón y de berenjenas
+fritas, se resolvían crímenes, se cimentaban amistadas, se resolvían
+los problemas del país y mantenía el nivel de alcohol y fritangas en
+sangre justo al nivel en que las pastillas para el colesterol no
+tuvieran demasiado trabajo en reducirlo. 
 
 
 
@@ -2161,7 +2172,8 @@ quincena y un día más... un día más era un día más. Tenía que llegar
 hoy, esta tarde.
 
 "Puede intentarlo por Mallorca. De ahí, a Alemania hay decenas de
-vuelos y a partir de ahí llega fácilmente a Lituania" Me dijo,
+vuelo diarios y a partir de ahí llega fácilmente a Lituania" Me dijo,
+exponiéndome una verdadera *blitzkrieg* turística,
 contenta de poder ser útil y de que hubiera alguien que la sacara de
 su tedio y le encargara un verdadero reto. "Es más barato que por
 París, además". Mencionada la palabra mágica, cerramos el trato aunque
