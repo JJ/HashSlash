@@ -2202,7 +2202,7 @@ leyera y que escribiera el informe.
 esa ni a nadie. Te lo dijo yo. Ese no mata más que a sí mismo a
 pajas - dijo Yimi, con su coro acompañándole con carcajadas in
 crescendo. Pero, al menos, de la frase, coligió que ya tenían un
-detenido. Y fuera de turno. Y el Roble sbría algo, así que habría que
+detenido. Y fuera de turno. Y el Roble sabría algo, así que habría que
 preguntarle.
 
 Se acercó, bordeando la barra y dando apretones de mano y palmadas en
@@ -2254,9 +2254,16 @@ Y eso sí es verdad. Fui mercenario, sí. “¿Quiere usted escribir? Viva
 usted primero“, ¿no os lo he dicho antes? ¿Es que no leéis? No, no
 debéis leer mucho, porque si no no compraríais la bazofia que me
 escriben mis amanuenses fantasmas y residentes en países
-hispanoablantes. 
+hispanohablantes. 
 
+¿Que por qué no escribo sobre mis hazañas mercenarias? Sí, a ti te las
+voy a contar, gilipollas.
 
+## Kevin, el asesino
+
+—¿Quién es el asesino? ¿El Kevin? - preguntó, Ciriaco.
+
+—¿Kevin? No, 
 
 
 ## Encontrando el camino
