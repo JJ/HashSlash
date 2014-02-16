@@ -27,7 +27,7 @@ final, a partir del cual comenzará el libro segundo.
 ---
 
 Puedes hacerlo en
-[la cuenta de Twitter `@hshslsh](http://twitter.com/hshslsh). Como es
+[la cuenta de Twitter `@hshslsh`](http://twitter.com/hshslsh). Como es
 natural, @hashslash estaba ya pillado. 
  
  
