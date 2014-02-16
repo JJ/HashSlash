@@ -2185,7 +2185,7 @@ levantamiento del cadáver, la jueza de instrucción no tenía ni idea
 (este era un clásico) y, finalmente, el argumento definitivo, pensaban
 hacerlo, claro que sí. 
 
-—Lavin, compae, - dijo Yimi - me has dicho en un montón de palabras y
+—Lavín, compae, - dijo Yimi - me has dicho en un montón de palabras y
 frases lo que yo te he dicho a ti: que no tenéis ni puta idea y que no
 le habéis preguntado a la gente de la fiesta. Ni tú ni el Travolta -
 dijo, señalando con el dedo en gancho un poco más allá de la barra, a
@@ -2266,7 +2266,45 @@ voy a contar, gilipollas.
 
 —¿Quién es el asesino? ¿El Kevin? - preguntó, Ciriaco.
 
-—¿Kevin? No, 
+—¿Kevin? No, - contestó Roble. - Te mando todo.
+
+—¡No! - dijo Ciriaco. - No me lo mandes, ¡cuéntamelo! Joer, que es un
+minuto...
+
+—No. No lo es -, dijo Roble. - Por eso te lo mando. Léelo. 
+
+—Pero... 
+
+Roble se terminó la tónica de origen eslovaco que se estaba bebiendo
+de un trago y eructó quedamente, emitiendo un pequeño gas y tapándose
+la boca pudorosamente. Era de la misma marca que adornaba los carteles
+del bar y que se presentaba, en una botella saliendo de un baño de
+burbujas de metacrilato, a los lados de los grifos de los barriles de
+Alhambra. Ciriaco nunca entendería esas ganas por probar lo nuevo,
+siempre. Lo nuevo *nunca* es mejor. Ciriaco estuvo varios años sin
+probar la
+[milnoh](http://misterbackstage.wordpress.com/2012/07/17/grxperience-blogtrip-2012-la-memoria-definitiva-granada-sensacion-experiencia-emocion-engagement/alhambra-1925/). Tuvo
+que leerlo, y escucharlo, y probar buchitos, varias veces, para
+convencerse de que, bueno, vale, de vez en cuando, la pediría en vez
+de una caña. Por extensión, se sentía incapaz de entender a Roble. Iba
+a volverse con sus colegas, los de siempre, los que llaman al pan,
+pan, al vino, vino y a la cerveza, Alhambra, cuando Roble le dijo:
+
+—¿Vienes al interrogatorio?
+
+—Pero...
+
+Pero no estoy de servicio, pensó Ciriaco. Tengo cita con el profesor
+de los niños en una hora aproximadamente. Por la tarde, más clases, ni
+siquiera le iba a dar tiempo a volver a casa. Y, merecía la pena
+recordarlo, no estaba de servicio.
+
+Pero quería saber quién era el asesino. Aunque fuera sólo por eso, lo
+siguió. Aunque cuando vieron desde la sala contigua a la de
+interrogatorios al detenido, preguntó al agente
+
+—¿Quién es ese tío?
+
 
 
 ## Encontrando el camino
