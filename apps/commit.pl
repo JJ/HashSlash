@@ -24,6 +24,7 @@ if ( $branch =~ /master/ ) {
   if ( $words ~~ @changed_files ) {
     my @palabras = read_file($file_name);
     $palabras[0] =~ s/es (\d+) /es $#palabras /;
+    @palabras[1..$#palabras] = sort( @palabras[1..$#palabras] );
     write_file( $file_name, @palabras);
   }
   $git->command( "commit", "-a", "-m", $comment );
