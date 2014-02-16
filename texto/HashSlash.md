@@ -1742,7 +1742,7 @@ cuadrado, plateado, con un preservativo. Roble lo abrió y sacó de él
 un objeto brillante, cromado, que al desenrollarse y ponerse en el
 miembro se convirtió en una escultura fálica metálica. Y con LEDs.
 
-— Piezoeléctricos - dijo ella.
+—Piezoeléctricos - dijo ella.
 
 ## Despertar
 
@@ -2185,10 +2185,79 @@ levantamiento del cadáver, la jueza de instrucción no tenía ni idea
 (este era un clásico) y, finalmente, el argumento definitivo, pensaban
 hacerlo, claro que sí. 
 
+—Lavin, compae, - dijo Yimi - me has dicho en un montón de palabras y
+frases lo que yo te he dicho a ti: que no tenéis ni puta idea y que no
+le habéis preguntado a la gente de la fiesta. Ni tú ni el Travolta -
+dijo, señalando con el dedo en gancho un poco más allá de la barra, a
+Roble, que tomaba un líquido transparente con burbujas mientras con la
+otra mano sostenía el móvil.
 
+Es que el Roble era así, pensó Ciriaco. O sigiloso o un sieso como una
+casa. Pasaba de todo y de todos, yendo a su bola, si es que el chisme
+que tenía en la mano era la susodicha bola. 
 
+Vaciló un momento si acercarse a él o no. Para ponerse al día era más
+fácil que los compañeros lo hicieran. Roble le mandará un montón de
+documentos pasando el pulgar sobre el ordenador y le diría que se los
+leyera y que escribiera el informe. 
 
+—Porque el notas que habéis detenido no tiene cojones para matar ni a
+esa ni a nadie. Te lo dijo yo. Ese no mata más que a sí mismo a
+pajas - dijo Yimi, con su coro acompañándole con carcajadas in
+crescendo. Pero, al menos, de la frase, coligió que ya tenían un
+detenido. Y fuera de turno. Y el Roble sbría algo, así que habría que
+preguntarle.
 
+Se acercó, bordeando la barra y dando apretones de mano y palmadas en
+la espalda a los conocidos y colegas que se encontraba por allí, hasta
+llegar a Roble. 
+
+Se acercó y Roble, directamente, le acercó el móvil a la cara. Ciriaco
+echó hacia atrás la cabeza, para poder distinguir lo que le estaba
+enseñando. Leía MXE y veía una bonita escultura de bolas dando
+vueltas, con un par de bolitas rojas y otras grises. Como un mecano,
+pero de bolas.
+
+—Análisis toxicológico - dijo Roble. Roble se llevó otra vez el móvil
+para sí. 
+
+—¿Y eso, qué significa?
+
+—Significa que ya tenemos al asesino.
+
+## Tradiciones acendradas
+
+Tengo un gran respeto por el gremio de los asesinos. Tradicionalmente,
+nos han inspirado a nuestro gremio, el de los escritores y, con ello,
+proporcionado un flujo de caja saneado. El gremio de los escritores,
+si no fuera por el gremio de los asesinos, tendría que convertirse, él
+mismo, en asesino. Ja ja. Eso ha tenido gracia. 
+
+Pero ese respeto por el gremio no se tiene, necesariamente, que
+trasladar individualmente a todos y cada uno de sus
+componentes. Vengan con referencias o no, los asesinos son
+avariciosos, descuidados y poco profesionales. A veces, de lo primero
+se deducía lo segundo y también lo tercero. O de lo primero lo segundo
+y lo tercero. Por eso me enervó que el primer contacto lo quisieran
+hacer en un número fijo de lo más corriente que una búsqueda en
+Internet me encontró en unos minutos. 
+
+Volví a contactar con los que me los habían recomendado y me
+aseguraron que eran buenos en lo que hacían y, sobre todo,
+discretos. No hay cualidad más encomiable que la discreción. Por eso
+finalmente me avine a llamar, usando la frase que me habían indicado,
+“¿Puedo hablar con Billy el Báltico Balístico?“. En ruso, claro. Sí,
+hablo ruso. Lo aprendí para poder leer a Tolstoi en su versión
+original. Es lo que todo escritor debe hacer.
+
+Es mentira. Lo aprendí para que me pudieran contratar los rusos en mi
+época de mercenario. 
+
+Y eso sí es verdad. Fui mercenario, sí. “¿Quiere usted escribir? Viva
+usted primero“, ¿no os lo he dicho antes? ¿Es que no leéis? No, no
+debéis leer mucho, porque si no no compraríais la bazofia que me
+escriben mis amanuenses fantasmas y residentes en países
+hispanoablantes. 
 
 
 
