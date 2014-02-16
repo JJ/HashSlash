@@ -148,7 +148,8 @@ novio. Menudo apollardao.
 buscándolo en el móvil.
 
 —Tontolaba, agilipoyao de la vida, persona que lleva ya dos años
-trabajando en Granada y no sabe lo que significa la palabra “apollardao“ -, dijo Ciriaco. - Además, se llama Kevin, ¿qué
+trabajando en Granada y no sabe lo que significa la palabra
+“apollardao“ -, dijo Ciriaco. - Además, se llama Kevin, ¿qué clase de
 nombre es ese, cojones? Nombre de apollardao. 
 
 Roble miró en la
@@ -178,7 +179,10 @@ altura o un poco más bajo.
 —Y eso lo sabes porque...
 
 —Coño, Robles, porque me he visto el NCIS y el CSI y toda serie 
-maderera que echen por la tele o que se pueda bajar uno. ¿Tú te crees que me ha tocado ver muchos fiambres? ¿O que me lo enseñaron en la academia? En mi época, todavía te enseñaban a dar hostias a dos manos. Y los muertos, con los
+maderera que echen por la tele o te compres en el Cortinglés o que se
+pueda bajar uno subtitulada para entenderla. ¿Tú te crees que me ha
+tocado ver muchos fiambres? 
+¿O que me lo enseñaron en la academia? En mi época, todavía te enseñaban a dar hostias a dos manos. Y los muertos, con los
 dedos de esta mano se pueden contar -, mostró su mano izquierda, en la
 que le faltaba un dedo. - Y todas eran mujeres y los asesinos eran
 siempre sus parejas, que, a veces, estaban justo al lado, con
@@ -243,13 +247,16 @@ tomado una manía especial al ojo derecho,  así que lo mantenía cerrado
 y, en ocasiones, tapado con la mano derecha para mayor seguridad.
 
 Habría querido seguir en la cama. Pero había llegado un momento en que la resistencia a levantarse no había
-podido con la necesidad de ingerir  una dosis de ibuprofeno. No la
+podido con la necesidad de ingerir una dosis de ibuprofeno. Que era
+prácticamente lo único que no tenía, en cuestión de química sintética,
+en su habitación, pero justamente lo que necesitaba a esa hora.
+No la
 había encontrado en la cocina. Quizás su compañera Demelza tuviera. O
 si no, quien quiera que anduviera por la casa, que llevaba oyendo el
 chirrido de los muebles del salón durante un rato. Efectivamente, allí
 había dos personas. 
 
-Uno sí podía haber estado en la fiesta el día anterior. Incluso lo
+Uno de ellos sí podría haber estado en la fiesta de lanzamiento del día anterior. Incluso lo
 recordaba, junto con unas trescientas caras y unos cuantos culitos preciosos. Tenía el pelo
 castaño rizado y peinado de forma que huyera de los laterales de la
 cabeza. Llevaba una
@@ -263,7 +270,7 @@ y las gafas de pasta de color  verde oliva, lo
 conseguía, quizás porque en el momento que llegabas a los zapatos te
 dabas cuenta de que llevaba varios miles de euros encima. 
 Además, no se había molestado en levantar la vista del
-teléfono, lo que lo etiquetaba como *cool* sin duda. Igual se lo
+teléfono, lo que lo acreditaba como *cool* sin duda. Igual se lo
 trajo Berta anoche y lo había dejado ahí. ¿Y Berta estaría en...?
 Su cerebro le estaba avisando a base de latidos dolorosos que no era
 ni momento de chequear gente ni de pensar, de hecho, nada. Así que se
@@ -369,9 +376,12 @@ semidesnatada, la mitad fría. - creo que vino todo el mundo, pero todo
 el mundo. Hubo un momento que no se podía ni salir ni entrar, gente
 por todos lados, en los pasillos, ni se oía la música, fíjate. No
 había música, ahora que lo pienso. Es lo guay de vivir en un sitio tan
-solitario, que no molestas a nadie. Vamos, que me da igual molestarles o no, pero si los molestas llaman a los maderos y te cortan el rollo. 
+solitario, que no molestas a nadie. Vamos, que me da igual molestarles
+o no, pero si los molestas llaman a los maderos y te cortan el rollo.
+Pero, oye, contéstame, ¿lo probaste? ¿Te gustó?
 
-Roble pensó que era una chica totalmente aceptable, aunque no el tipo de
+Roble no sabía a qué se refería. Hizo un gesto ambiguo alzando los
+hombros y haciendo una mueca con los labios. A la vez, pensó que era una chica totalmente aceptable, aunque no el tipo de
 chica por el que se haría algo épico, como, por ejemplo, dejar a otra
 chica. O incluso cancelar una cita. En ese momento del día, el pelo no era su fuerte. El que
 hubiera salido a la calle sin dedicarle cierto tiempo más allá de un
@@ -379,6 +389,10 @@ cepillado sin vigor tampoco le había favorecido. Pero era cóncava
 donde la evolución había hecho a las mujeres cóncavas y convexa en los
 sitios correspondientes. Perfectamente aceptable, por
 supuesto. Siempre que, claro. 
+
+—Bueno, sí, es que es un poco así, pero... ya veremos lo que pasa -
+dijo Tina, contestando, o quizás no, al gesto de Roble. - Pero vamos,
+que la fiesta estuvo bien...
 
 Habían tenido que andar unos cien metros, desde muy cerca del final de la carretera de
 la Sierra hasta lo que, por la antigüedad de los edificios, parecía el viejo extremo de la misma, donde sí había una
