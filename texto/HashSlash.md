@@ -2146,7 +2146,7 @@ el levantamiento de los vasos de cerveza y ataques subrepticios al
 plato de las tapas. - tú, ¿qué tal?
 
 —Bueno, no me puedo quejar, tengo ahora bastantes preparantes, aunque
-se me acaba el plazo de entregar un manual de... - contestó Ciríaco.
+se me acaba el plazo de entregar un manual de... - contestó Ciriaco.
 
 —No decíamos ese trabajo, Ciriaco. ¡El de verdad! - dijo Yimi, una vez
 más recibido con carcajadas - ¿Es que te hablo yo de cómo me voy a
@@ -2166,7 +2166,24 @@ Ainhoa, y expresaban sus dudas sobre la competencia policial para
 resolver el caso. Un muerto en un lugar con un montón de gente es una
 mala combinación. Al menos, en este caso se tenía el cadáver, no como
 en el
-[caso de Marta del Castillo](http://es.wikipedia.org/wiki/Marta_del_Castillo).
+[caso de Marta del Castillo](http://es.wikipedia.org/wiki/Marta_del_Castillo). Ayudaba,
+pero los asesinos no dejaban exactamente su DNI en los cadáveres. 
+
+Ciriaco sólo hizo un débil gesto de asentimiento y volvió a
+beber. Yimi continuó en sus acometidas.
+
+—Pero ¿habéis preguntado a la gente que estuvo en la fiesta? Por
+cierto, ¿a santo de qué era la fiesta? - dijo Yimi. Alguno del corro
+estuvo a punto de echarse a reír, pero abortó la operación en cuanto
+que se percató, a dos o tres palabras del comienzo de la frase, de que
+no era de ese tipo.
+
+Ciriaco contestó con todo tipo de excusas para no haber hecho lo
+primero y no saber lo segundo. Había mucha gente, algunos habían
+bebido, no se conocían todos, habían acabado el turno poco después del
+levantamiento del cadáver, la jueza de instrucción no tenía ni idea
+(este era un clásico) y, finalmente, el argumento definitivo, pensaban
+hacerlo, claro que sí. 
 
 
 
