@@ -2109,7 +2109,17 @@ los problemas del país y mantenía el nivel de alcohol y fritangas en
 sangre justo al nivel en que las pastillas para el colesterol no
 tuvieran demasiado trabajo en reducirlo. 
 
-
+ Un día entre semana, y el Braserito estaba en ebullición. La
+ temperatura había subido varios grados desde el día anterior, y el
+ granadino es como el caracol, saca sus cuernos al sol, con perdón por
+ los cuernos, y por el sol, porque si ve el sol es en las terrazas de
+ los bares que, sumadas, tienen una superficie mucho mayor que toda la
+ universidad. 
+ 
+ Allí estaba Eladio, el Yimi y, por supuesto, Rosalía; algunos otros
+ compañeros más que Ciriaco no conocía y más de un extranjero
+ cometiendo el sacrilegio de comer
+ el jamón con cuchillo y tenedor.
 
 
 
