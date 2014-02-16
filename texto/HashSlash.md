@@ -2154,7 +2154,7 @@ arar los olivos cuando me preguntas por el trabajo?
 
 —Afú, eso. Tenemos una muerta... - dijo Ciriaco, y le pegó un buen
 trago a la segunda cerveza que se había materializado en la tangente
-entre la línea recta que unía a Ciríaco con el barril de cerveza y la
+entre la línea recta que unía a Ciriaco con el barril de cerveza y la
 barra.
 
 —Entonces tienes dos cosas, - dijo Yimi. - Eso, y ni puta idea de
