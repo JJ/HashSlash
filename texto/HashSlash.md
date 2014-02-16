@@ -397,7 +397,8 @@ que la fiesta estuvo bien...
 Habían tenido que andar unos cien metros, desde muy cerca del final de la carretera de
 la Sierra hasta lo que, por la antigüedad de los edificios, parecía el viejo extremo de la misma, donde sí había una
 cafetería abierta. Por el camino, un bloque de casas de dos pisos con
-carteles de “Se alquila”, “Se vende”, algunos ya caídos, persianas
+carteles de “Se alquila”, “Se vende”, “Por propietario“, “Por entidad
+bancaria“, algunos torcidos y adheridos sólo por una de sus esquinas, persianas
 echadas, escombros de burbuja.
 
 En el bar, colgadas en las paredes, bufandas del Granada, que andaba peleándose con denuedo
