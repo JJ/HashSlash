@@ -29,3 +29,6 @@ Nombre | Nacido - cuando | dónde |  A qué se dedica | Otros
 Ainhoa González Tovar| 1994 |  - | A copiar y a estudiar | *Spoiler alert*  Asesinada
 Demelza | 1995 | - | Escribe mecaporno y estudia | 
 Tina | 1992 | - | Cocina e investiga | Compañera de piso de Demelza
+Ignacio Salido | 1989 | -  | Trapichea | Okupa en el piso de enfrente de Demelza y Tina
+Kevin | 1994 |  - |  Estudia por su cuenta | Novio de Demelza
+
