@@ -2117,6 +2117,55 @@ tuvieran demasiado trabajo en reducirlo.
  compañeros más que Ciriaco no conocía y más de un extranjero
  cometiendo el sacrilegio de comer
  el jamón con cuchillo y tenedor.
+ 
+ —¿Qué? ¿Qué os contáis? - dijo Ciriaco, a modo de saludo.
+ 
+ —Anda y que te entretenga tu puta madre - le contestó el Yimi. Todos
+ se rieron. Siempre lo hacían. Era un viejo chiste granadino que
+ mostraba la quintaesencia de la malafollá. 
+ 
+En la barra, las burbujas de la cerveza recién tirada explotaban,
+indiferentes. El camarero de la barra se la había puesto al verlo
+aparecer por la puerta. 
+
+—¿Ya estáis en segundas? ¿O terceras? 
+
+—Ciri, son las una y pico de la tarde. Un respeto. - dijo Yimi, de
+nuevo, una vez más jaleado por una escolanía carcajeante, 
+
+—Vale, en cuartas entonces - Ciri se tomó la cerveza de un trago y
+alzó el dedo, pidiendo otra. - ¿Cómo va el trabajo?
+
+—Estaría bien si no fuera, ya sabes, por el trabajo en sí. - dijo esta
+vez Eladio, que era un tío serio y nunca bromeaba, por lo que la única
+acogida que tuvo esta frase, también repetida en muchas ocasiones, fue
+el levantamiento de los vasos de cerveza y ataques subrepticios al
+plato de las tapas. - tú, ¿qué tal?
+
+—Bueno, no me puedo quejar, tengo ahora bastantes preparantes, aunque
+se me acaba el plazo de entregar un manual de... - contestó Ciríaco.
+
+—No decíamos ese trabajo, Ciriaco. ¡El de verdad! - dijo Yimi, una vez
+más recibido con carcajadas - ¿Es que te hablo yo de cómo me voy a
+arar los olivos cuando me preguntas por el trabajo? 
+
+—Afú, eso. Tenemos una muerta... - dijo Ciriaco, y le pegó un buen
+trago a la segunda cerveza que se había materializado en la tangente
+entre la línea recta que unía a Ciríaco con el barril de cerveza y la
+barra.
+
+—Entonces tienes dos cosas, - dijo Yimi. - Eso, y ni puta idea de
+quién la ha matado, ¿no?
+
+Carcajada generalizada. Pero era totalmente cierto. Los periódicos
+habían paseado a los destrozados familiares y compungidos amigos de
+Ainhoa, y expresaban sus dudas sobre la competencia policial para
+resolver el caso. Un muerto en un lugar con un montón de gente es una
+mala combinación. Al menos, en este caso se tenía el cadáver, no como
+en el
+[caso de Marta del Castillo](http://es.wikipedia.org/wiki/Marta_del_Castillo).
+
+
 
 
 

@@ -10,7 +10,7 @@ La madera
 Nombre | Nacido - cuando | dónde |  Puesto | Otros
 --- |--- |--- |--- | ---
 Ciriaco | 1967 | | Inspector | Prepara oposiciones. Vive en la periferia granadina, Huétor. Escribe temarios de oposiciones y otro material para prepararse para la policía. 
-Roble Sáenz | 1996 | | Subinspector | Escribe novelas de asesinatos narradas en primera persona por las víctimas.
+Roble Sáenz | 1986 | | Subinspector | Escribe novelas de asesinatos narradas en primera persona por las víctimas.
 
 Otras fuerzas del orden
 ---
@@ -19,3 +19,10 @@ Nombre | Nacido - cuando | dónde |  Puesto | Otros
 --- |--- |--- |--- | ---
 Puri Blanco | - | - | Jueza de instrucción del caso | 
 
+Las muertas y amistades diversas
+--
+Nombre | Nacido - cuando | dónde |  A qué se dedica | Otros
+--- |--- |--- |--- | ---
+Ainhoa González Tovar| 1994 |  - | A copiar y a estudiar | *Spoiler alert*  Asesinada
+Demelza | 1995 | - | Escribe mecaporno y estudia | 
+Tina | 1992 | - | Cocina e investiga | Compañera de piso de Demelza
