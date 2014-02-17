@@ -2305,7 +2305,34 @@ interrogatorios al detenido, preguntó al agente
 
 —¿Quién es ese tío?
 
+## Leyendo
 
+Uno de los aspectos desagradables de ser escritor es la cantidad de
+bazofia que tiene uno la obligación de leer. No me refiero a lo que escriben mis
+dilectos colegas. No es que no sea bazofia, es que no tiene uno
+ninguna obligación de leerlo. Si acaso, para adoptar y adaptar alguna
+idea que parezca interesante y que ellos hayan sido incapaces de
+desarrollar en toda sus posibilidades. 
+
+No, me refiero en general a lo que uno quiere que aparezca con su
+nombre. El flujo de trabajo hace que la escritura de mis novelas funciona como una factoría de ficción. Qué
+bien suena eso. Todo parte del impulso creador del autor, de mi. El
+*auteur*, uno no se siente autor, escritor, hasta que no lo han
+llamado de esa forma en francés. O 著 en japonés. ¿Que cómo se
+pronuncia? Lo acabo de hacer.
+
+Esquema general de la trama, personajes, ritmo, tono,
+ambientación... esas son las claves de una novela. Luego, se le envía
+a unos cuantos escritores fantasmas. Tacha escritores. Producefrases fantasmas. Porque
+o son escritores. No son *auteurs*. El *auteur* soy yo. Y ellos me
+mandan una propuesta, unos cuantos capítulos. Cada uno una versión
+diferente. Luego, vuelve a ellos, pero ninguno recibe su propia
+versión para editar y ampliar. Y al final de todo el camino, antes del
+The End y de la firma del contrato que se me está escapando por
+momento si no hago lo que tengo que hacer, reviso, pulo. 
+
+Cuando recibo los primeros royalties pago. Siempre pago, siempre
+tarde. Para escribir hay que sufrir. 
 
 ## Encontrando el camino
 
