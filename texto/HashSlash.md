@@ -2328,8 +2328,11 @@ versión para editar y ampliar. Y al final de todo el camino, antes del
 The End y de la firma del contrato que se me está escapando por
 momento si no hago lo que tengo que hacer, reviso, pulo. 
 
-Cuando recibo los primeros royalties pago. Siempre pago, siempre
+Cuando recibo las primeras regalías pago. Siempre pago, siempre
 tarde. Para escribir hay que sufrir. 
+
+Así que a sufrir leyendo las frases producidas por los
+producefrases. Más tarde tengo una llamada a Lituania. 
 
 ## Encontrando el camino
 
