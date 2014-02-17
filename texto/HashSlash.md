@@ -2348,6 +2348,11 @@ cuando llegue uno y le diga “¿Dónde estuviste el día de autos?“ no te
 contesten “Pues matando al muerto“, sino “No, jefe, no me gusta la
 fórmula uno“.
 
+Además, el tío no parecía culpable. Parecía un pringao. Ciriaco se
+puso las gafas de cerca para echarle un vistazo al
+expediente. Un camello de poca monta. Pero, las huellas. Y... ¿qué
+diablos es el MXE?
+
 ## Encontrando el camino
 
 La labor de un escritor es hacer que sus personajes encuentren su
