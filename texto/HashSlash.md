@@ -2337,6 +2337,25 @@ tarde. Para escribir hay que sufrir.
 Así que a sufrir leyendo las frases producidas por los
 producefrases. Más tarde tengo una llamada a Lituania. 
 
+## Preguntas frecuentemente preguntadas
+
+Ciriaco nunca había entendido bien el tema de los interrogatorios. Si
+el tío no es culpable, ¿qué quieres que te diga? Si acaso, se sentirá
+culpable de algo, de haberse meado en el portal del vecino y ese
+sentimiento de culpa le hará sentirse nervioso y parecer culpable. Y
+si lo es, hay que ser muy estúpido para confesarlo. Que no es que los
+chorizos no sean estúpidos. En muchas ocasiones lo son precisamente
+por eso. Pero también son estúpidos veteranos, curtidos ante
+profesores, padres y figuras de autoridad diversas como para que,
+cuando llegue uno y le diga “¿Dónde estuviste el día de autos?“ no te
+contesten “Pues matando al muerto“, sino “No, jefe, no me gusta la
+fórmula uno“.
+
+Además, el tío no parecía culpable. Parecía un pringao. Ciriaco se
+puso las gafas de cerca para echarle un vistazo al
+expediente. Un camello de poca monta. Pero, las huellas. Y... ¿qué
+diablos es el MXE?
+
 ## Encontrando el camino
 
 La labor de un escritor es hacer que sus personajes encuentren su
