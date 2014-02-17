@@ -2353,6 +2353,16 @@ puso las gafas de cerca para echarle un vistazo al
 expediente. Un camello de poca monta. Pero, las huellas. Y... ¿qué
 diablos es el MXE?
 
+Como era cierto que no Ciriaco no tenía ni idea, se quedó en la sala contigua mirando los informes del forense y de la científica. No entendía nada. Pero daba igual. Entraría en un rato, dejaría una carpeta encima de la mesa a los lados doe la cual estaban Roble y el tal Ignacio, miraría a uno y a otro engando, como diciendo "En menudo embolao te has metío, macho" Y el acusado haría lo que tenía que hacer, que con toda seguridad sería nada y excusarse. Pero, quién sabe. A lo mejor en esta ocasión les había tocado el tonto, que, como en los chistes de Gila, acaba confesando.
+
+Entre página relativamente incomprensible y otra totalmente incomprensible, miraba y escuchaba a Roble. El chaval valía para esto. No entendía por qué, pero valía. 
+
+—Esta persona es la que has asesinado -, le dijo, mostrándole diferentes fotos extraídas de las redes sociales, de su perfil en una página de *fan fiction*, vestidos florales, sola, con un grupo de amigas, con unas gafas falsas, ojos rojos por el flash, una baraja de fotos extendida sobre la mesa, sota, con un tipo al que le echaba el brazo por encima, caballo, un *selfie* haciendo morritos con Delemza, rey, con la cara en un charco de sangre, la regla de los tercios haciendo que el cuchillo ocupase uno de los nodos. Ignacio murmulló, pero Roble le interrumpió.
+
+—Tus huellas -, en esta ocasión un tablet que mostraba una foto de un pañuelo de seda y, haciendo el gesto con los dedos, la ampliación hasta mostrar su huella; dos pulsaciones con el índice sobre la misma que enlazaban con la ficha policial de Ignacio. Éste siguió murmurando, pero una vez más Roble lo hizo callar, llevándose esta vez el dedo a los labios.
+
+
+
 ## Encontrando el camino
 
 La labor de un escritor es hacer que sus personajes encuentren su
