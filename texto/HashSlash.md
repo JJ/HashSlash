@@ -2361,7 +2361,7 @@ tal Ignacio, miraría a uno y a otro negando con la cabeza, como diciendo "En me
 
 Entre página relativamente incomprensible y otra totalmente incomprensible, miraba y escuchaba a Roble. El chaval valía para esto. No entendía por qué, pero valía. 
 
-—Esta persona es la que has asesinado -, le dijo, mostrándole diferentes fotos extraídas de las redes sociales, de su perfil en una página de *fan fiction*, vestidos florales, sola, con un grupo de amigas, con unas gafas falsas, ojos rojos por el flash, una baraja de fotos extendida sobre la mesa, sota, con un tipo al que le echaba el brazo por encima, caballo, un *selfie* haciendo morritos con Demelza, rey, con la cara en un charco de sangre, la regla de los tercios haciendo que el cuchillo ocupase uno de los nodos. Ignacio murmulló, pero Roble le interrumpió.
+—Esta persona es la que has asesinado -, le dijo, mostrándole diferentes fotos extraídas de los perfiles en redes sociales, de su perfil en una página de *fan fiction*, vestidos florales, sola, con un grupo de amigas, con unas gafas sin cristal, ojos rojos por el flash, una baraja de fotos extendida sobre la mesa, sota, con un tipo al que le echaba el brazo por encima, caballo, un *selfie* haciendo morritos con Demelza, rey, con la cara en un charco de sangre, la regla de los tercios haciendo que el cuchillo ocupase uno de los puntos importantes. Ignacio murmulló, pero Roble le interrumpió.
 
 —Tus huellas -, en esta ocasión un tablet que mostraba una foto de un
 pañuelo de seda y, haciendo el gesto con los dedos, la ampliación
@@ -2415,6 +2415,41 @@ mesa. Teatralmente, lo abrió y señaló un punto aleatorio dentro de la
 carpeta. Luego miró a Ignacio, frunciendo los labios y
 asintiendo. Para incrementar el efecto, chasqueó la lengua. Roble
 también se le quedó mirando. 
+
+—Os metisteis unas rayas... - dijo Roble.
+
+—Con... Unos clientes -, dijo esto último mascullando y en voz muy baja.
+
+—Bueno, ya sabes -, y paró cuando dijo esto último, como esperando que Ciriaco y Roble, efectivamente, lo supieran. Ciriaco negó con la cabeza y Roble se quedó impasible. - Clientes.
+
+Roble miró a Ciriaco, dándole paso.
+
+—Míranos bien a la cara, Nachito - dijo, haciendo la V con los dedos señalando a sus ojos y luego a Roble y a él - ¿Tenemos cara de golfos? - Y paró un momento, como esperando una respuesta. - ¿A que no? Es porque no somos de narcóticos. Así que nos suda la polla lo que trapichees, cuanto con quién lo hagas. Por lo pronto. Y porque queremos saber qué le pasó a la Ainhoa esta. Así que nos lo cuentas. Que nosotros somos gente legal y no te echamos marrones encima. Y si estabas de subidón cuando lo has hecho, se lo explicamos todo clarito a la jueza y te cae la mínima. 
+
+—Si yo no...
+
+—No, tú sí. - dijo Ciriaco.
+
+—Las huellas... - intervino Roble.
+
+—Las huellas, y esto -, dijo Ciriaco, apuñalando con el índice la carpeta marrón de la que se desbordaban unos papeles. 
+
+Los miró. 
+
+—¿Cómo se llama ese de narcóticos, Roble? Sí, ese que decía que como encontrara al hijoputa que movía el Ka lo iba a capar como a un gorrino que, total, no les duela...
+
+—El... 
+
+
+—Sí, el de la perilla - Ignacio abrió mucho los ojos y se agarró con las manos a la mesa.
+
+—No, el Cabraloca no, por favor, de veras, que no, que yo no...
+
+—Cuenta - dijo, simplemente, Roble. 
+
+Y cantó. 
+
+
 
 ## Encontrando el camino
 
