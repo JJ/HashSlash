@@ -2353,15 +2353,68 @@ puso las gafas de cerca para echarle un vistazo al
 expediente. Un camello de poca monta. Pero, las huellas. Y... ¿qué
 diablos es el MXE?
 
-Como era cierto que no Ciriaco no tenía ni idea, se quedó en la sala contigua mirando los informes del forense y de la científica. No entendía nada. Pero daba igual. Entraría en un rato, dejaría una carpeta encima de la mesa a los lados doe la cual estaban Roble y el tal Ignacio, miraría a uno y a otro engando, como diciendo "En menudo embolao te has metío, macho" Y el acusado haría lo que tenía que hacer, que con toda seguridad sería nada y excusarse. Pero, quién sabe. A lo mejor en esta ocasión les había tocado el tonto, que, como en los chistes de Gila, acaba confesando.
+Como era cierto que no Ciriaco no tenía ni idea, se quedó en la sala
+contigua mirando los informes del forense y de la científica. No
+entendía nada. Pero daba igual. Entraría en un rato, dejaría una
+carpeta encima de la mesa a los lados de la cual estaban Roble y el
+tal Ignacio, miraría a uno y a otro negando con la cabeza, como diciendo "En menudo embolao te has metío, macho" Y el acusado haría lo que tenía que hacer, que con toda seguridad sería nada y excusarse. Pero, quién sabe. A lo mejor en esta ocasión les había tocado el tonto, que, como en los chistes de Gila, acaba confesando.
 
 Entre página relativamente incomprensible y otra totalmente incomprensible, miraba y escuchaba a Roble. El chaval valía para esto. No entendía por qué, pero valía. 
 
-—Esta persona es la que has asesinado -, le dijo, mostrándole diferentes fotos extraídas de las redes sociales, de su perfil en una página de *fan fiction*, vestidos florales, sola, con un grupo de amigas, con unas gafas falsas, ojos rojos por el flash, una baraja de fotos extendida sobre la mesa, sota, con un tipo al que le echaba el brazo por encima, caballo, un *selfie* haciendo morritos con Delemza, rey, con la cara en un charco de sangre, la regla de los tercios haciendo que el cuchillo ocupase uno de los nodos. Ignacio murmulló, pero Roble le interrumpió.
+—Esta persona es la que has asesinado -, le dijo, mostrándole diferentes fotos extraídas de las redes sociales, de su perfil en una página de *fan fiction*, vestidos florales, sola, con un grupo de amigas, con unas gafas falsas, ojos rojos por el flash, una baraja de fotos extendida sobre la mesa, sota, con un tipo al que le echaba el brazo por encima, caballo, un *selfie* haciendo morritos con Demelza, rey, con la cara en un charco de sangre, la regla de los tercios haciendo que el cuchillo ocupase uno de los nodos. Ignacio murmulló, pero Roble le interrumpió.
 
-—Tus huellas -, en esta ocasión un tablet que mostraba una foto de un pañuelo de seda y, haciendo el gesto con los dedos, la ampliación hasta mostrar su huella; dos pulsaciones con el índice sobre la misma que enlazaban con la ficha policial de Ignacio. Éste siguió murmurando, pero una vez más Roble lo hizo callar, llevándose esta vez el dedo a los labios.
+—Tus huellas -, en esta ocasión un tablet que mostraba una foto de un
+pañuelo de seda y, haciendo el gesto con los dedos, la ampliación
+hasta mostrar su huella; dos pulsaciones con el índice sobre la misma
+que enlazaban con la ficha policial de Ignacio. Éste siguió
+murmurando, pero una vez más Roble lo hizo callar, llevándose esta vez
+el dedo a los labios. 
 
+—¿Por qué? -, preguntó Roble. 
 
+—Yo no... -, intentó decir Ignacio, hundido en la silla. Negaba
+moviendo muy rápidamente la cabeza. Roble no le dejó terminar, alzando
+un dedo  para interrumpirle.
+
+—Tu sí. Sabemos cómo, cuando. Pero no el porqué. ¿Molestaba a tu
+novia?
+
+—¡Sí! Esa zorra... esa puta ni sabía escribir ni ná de ná de
+ná. Siempre encima de Demelza, siempre dando por culo, y allí en la
+fiesta todo el tiempo preguntando donde está, donde está, le tengo que
+enseñar una cosa, yéndose pal cuarto, ¿qué coño tenía que hacer en el
+cuarto, qué coño, eh? ¿Qué coño?
+
+—El cuchillo ¿lo cogiste cuando...?
+
+—¿Qué pollas de cuchillo ni cuchillo? ¿A mi qué me cuentas del
+cuchillo? Si yo no fui a la cocina más que para meterme... coño, para
+mis cosas, ¿qué coño te importan?
+
+—Tus huellas están... - estaban en la cocina, pero no en el cuchillo,
+pensó Roble. Estaban, de hecho, en otro cuchillo. En realidad, era muy
+difícil que este tío, con la papa que tendría encima a esas horas de
+la noche, hubiera ido a la cocina, pillado el cuchillo, matar a la
+chica y borrar sus huellas. Pero eso no quiere decir que no hubiera
+estado ahí, sujetando a la muerta o atrayéndola al cuarto o algo.
+
+—Están, sí, están, ¿qué pasa? Demelza es mi novia, y entro cuando
+quiero y salgo cuando quiero y... 
+
+—Y el día de la fiesta... - le ayudó Roble
+
+—Nos metimos unas rayas de K en la cocina, bueno, ella no, ella es toa
+limpia y ná de mierda ni ná de ná, que es escritora... 
+
+O sea, que los cuchillos de la cocina los usaban para cortarse las
+rayas. Sin embargo, no había huellas ni de él ni de nadie en el
+cuchillo usado. 
+
+En ese momento entró Ciriaco y puso la carpeta encima de la
+mesa. Teatralmente, lo abrió y señaló un punto aleatorio dentro de la
+carpeta. Luego miró a Ignacio, frunciendo los labios y
+asintiendo. Para incrementar el efecto, chasqueó la lengua. Roble
+también se le quedó mirando. 
 
 ## Encontrando el camino
 
