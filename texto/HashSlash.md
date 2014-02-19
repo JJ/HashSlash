@@ -2471,6 +2471,9 @@ No, que ya no me acuerdo. Es que estaba acostumbrao al Ka, y eso es
 tope fuerte, me desperté luego tó empotao y me largué pa mi queli,
 bueno, nuestra queli, pero yo enfrente. 
 
+Pero vi al vampiro. El vampiro se la cargó. Fue un vampiro. No fui
+yo. 
+
 ## Encontrando el camino
 
 La labor de un escritor es hacer que sus personajes encuentren su
