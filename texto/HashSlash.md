@@ -2441,7 +2441,8 @@ Los miró.
 —El... 
 
 
-—Sí, el de la perilla - Ignacio abrió mucho los ojos y se agarró con las manos a la mesa.
+—Sí, el de la perilla - Ignacio abrió mucho los ojos y se agarró con
+las manos al borde de la mesa.
 
 —No, el Cabraloca no, por favor, de veras, que no, que yo no...
 
@@ -2449,7 +2450,26 @@ Los miró.
 
 Y cantó. 
 
+## En tu fiesta me colé
 
+Y a la tía la tuve que achuchar, pero ná de mal rollo ni ná, ná más
+que tira pallá, la agarré del pañuelo ese de los chinos que llevaba,
+la tía cutre, pero luego se puso toa rara cuando le dije que Demelza
+era mi novia, y empezó a preguntarme, y decirme, y ya de buen rollo le
+dije que si quería probar una cosa guapa guapa que iba de puta madre
+para escribir y de tó, que flotabas, que flipabas y que escribías lo
+más guapo del mundo, que mi novia lo usaba, es mentira, si se entera
+me mata, pero qué quieres, hay que vivir y no, no era Ka, era otra
+cosa muy guapa que no, que me pasa por ahí una gente, gente, ya, que
+no os interesa, que la tipa, que se mete el Eme, sí, le llamamos eme,
+es como el Ka, pero tó guay, que si queréis, ah, que no queréis, ah,
+ya, que está tó dios ahí mirando, bueno, ya lo hablamos, ja, ja, que
+la tía se lo mete y se pone tó guarra y quiere que nos vayamos al
+cuarto pero yo... pero yo... mi Demelza...
+
+No, que ya no me acuerdo. Es que estaba acostumbrao al Ka, y eso es
+tope fuerte, me desperté luego tó empotao y me largué pa mi queli,
+bueno, nuestra queli, pero yo enfrente. 
 
 ## Encontrando el camino
 
