@@ -2100,8 +2100,8 @@ oposiciones y de los chinos que las inventaron hacía mil o un millón
 de años, así que bajó por la calle Navas buscando algún bar en los
 alrededores de la comisaría donde los compañeros, algunos de ellos
 fuera de servicio, se reunían a hablar de sus cosas y en algunas
-ocasiones de las de los demás. Entre plato de cazón y de berenjenas
-fritas, se resolvían crímenes, se cimentaban amistadas, se resolvían
+ocasiones de las de los demás. Entre plato de cazón en adobo y de berenjenas
+fritas, se resolvían crímenes, se cimentaban amistadas, se arreglaban
 los problemas del país y mantenía el nivel de alcohol y fritangas en
 sangre justo al nivel en que las pastillas para el colesterol no
 tuvieran demasiado trabajo en reducirlo. 
@@ -2113,7 +2113,7 @@ tuvieran demasiado trabajo en reducirlo.
  los bares que, sumadas, tienen una superficie mucho mayor que toda la
  universidad. 
  
- Allí estaba Eladio, el Yimi y, por supuesto, Rosalía; algunos otros
+ Allí estaban Eladio, el Yimi y, por supuesto, Rosalía; algunos otros
  compañeros más que Ciriaco no conocía y más de un extranjero
  cometiendo el sacrilegio de comer
  el jamón con cuchillo y tenedor.
@@ -2209,7 +2209,7 @@ Se acercó, bordeando la barra y dando apretones de mano y palmadas en
 la espalda a los conocidos y colegas que se encontraba por allí, hasta
 llegar a Roble. 
 
-Se acercó y Roble, directamente, le acercó el móvil a la cara. Ciriaco
+ Roble, directamente, le acercó el móvil a la cara. Ciriaco
 echó hacia atrás la cabeza, para poder distinguir lo que le estaba
 enseñando. Leía MXE y veía una bonita escultura de bolas dando
 vueltas, con un par de bolitas rojas y otras grises. Como un mecano,
@@ -2481,11 +2481,26 @@ Todo esto os puede parecer un arenque rojo. El cĺásico arenque que se le da al
 
 ¿Sabéis qué? A mi también. Porque la primera vez que llamé al teléfono me contestaron en lo que debía ser lituano y, cuando les pregunté por el tal Billy, me colgaron inmediatamente. Un arenque rojo debió coger el teléfono. Para apartarme del fin que quería conseguir. Los profesionales. Que quizás no lo eran tanto, si dejaban que cogiera el teléfono uno cualquiera.
 
-Pero hay que dar una segunda oportunidad. Hasta una tercera, si los hados te sonríen. A la segunda Billy el Báltico Balístico me contestó con el convenido "Nyet, pero sé por dónde pasea a su perro". Elegante, el detalle del can. A partir de ahí había que acercar el móvil al aparato para que transmitieran la información de contacto, claves de cifrado, horas de disponibilidad, como un chirrido que, como cuando los hace ung grillo, tiene más información de la que uno pueda sospechar. Un detalle profesional, el del chirrido. 
+Pero hay que dar una segunda oportunidad. Hasta una tercera, si los hados te sonríen. A la segunda Billy el Báltico Balístico me contestó con el convenido "Nyet, pero sé por dónde pasea a su perro". Elegante, el detalle del can. A partir de ahí había que acercar el móvil al aparato para que transmitieran la información de contacto, claves de cifrado, horas de disponibilidad, como un chirrido que, como cuando los hace un grillo, tiene más información de la que uno pueda sospechar. Un detalle profesional, el del chirrido. 
 
 Nada de arenque rojo, pues. Directos al objetivo. Un paquete cifrado con fotos y coordenadas últimas. Y el dinero, claro. En una cuenta en las Caimán. Otro animal que, en estos ambientes, denota profesionalidad. Yo mismo lo uso. 
 
-Vuelta a mis galeradas. Vuelta a la escritura. Vuelta a vivir. Sólo me hacía falta que me proporcionaran un final para cerrar ese libro, el de "Demelza morirá porque a mis editores les molesta". 
+Vuelta a mis galeradas. Vuelta a la escritura. Vuelta a vivir. Sólo me
+hacía falta que me proporcionaran un final para cerrar ese libro, el
+de "Demelza morirá porque a mis editores les molesta". 
+
+
+## Esperando el turno
+
+Cuando acabaron el interrogatorio todavía no era hora de que empezaran
+el turno. Ciriaco se quedó a rellenar el informe. Roble se fue a su
+casa. Había encontrado unos cuantos expedientes con unas fotos que
+harían las delicias de sus clientes americanos y prefería ir a su casa
+a subirlas; no se sabía los controles que podía haber de la red,
+incluso de los que no estaban conectados a través de la propia red de
+la comisaría. Además, la red de su casa era más rápida, así que echó
+las carpetas en su Crumpler y anduvo hasta su casa. 
+
 
 ## Encontrando el camino
 
