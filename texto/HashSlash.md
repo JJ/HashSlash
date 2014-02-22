@@ -2337,35 +2337,55 @@ producefrases. Más tarde tengo una llamada a Lituania.
 
 Ciriaco nunca había entendido bien el tema de los interrogatorios. Si
 el tío no es culpable, ¿qué quieres que te diga? Si acaso, se sentirá
-culpable de algo, de haberse meado en el portal del vecino y ese
-sentimiento de culpa le hará sentirse nervioso y parecer culpable. Y
+culpable de algo, de haberse meado en el portal del vecino, pongamos
+por caso, y ese
+sentimiento de culpa le hará sentirse nervioso y parecer culpable a
+los ojos de quien interroga. Y
 si lo es, hay que ser muy estúpido para confesarlo. Que no es que los
-chorizos no sean estúpidos. En muchas ocasiones lo son precisamente
+chorizos no sean estúpidos. En muchas ocasiones son chorizos precisamente
 por eso. Pero también son estúpidos veteranos, curtidos ante
 profesores, padres y figuras de autoridad diversas como para que,
 cuando llegue uno y le diga “¿Dónde estuviste el día de autos?“ no te
 contesten “Pues matando al muerto“, sino “No, jefe, no me gusta la
 fórmula uno“.
 
-Además, el tío no parecía culpable. Parecía un pringao. Ciriaco se
+Además, el Ignacio este no parecía culpable. Parecía un pringao. Ciriaco se
 puso las gafas de cerca para echarle un vistazo al
 expediente. Un camello de poca monta. Pero, las huellas. Y... ¿qué
 diablos es el MXE?
 
-Como era cierto que no Ciriaco no tenía ni idea, se quedó en la sala
-contigua mirando los informes del forense y de la científica. No
-entendía nada. Pero daba igual. Entraría en un rato, dejaría una
+Como era cierto que no Ciriaco no tenía ni idea, se quedó en su
+despacho, viendo en la pantalla del ordenador el calabozo donde Roble
+interrogaba al tal Ignacio, mientras miraba los informes del forense y de la científica. No
+entendía nada. Pero daba igual. Bajaría a los calabozos en un rato,
+le abrirían la celda con mucha ceremonia, dejaría una
 carpeta encima de la mesa a los lados de la cual estaban Roble y el
-tal Ignacio, miraría a uno y a otro negando con la cabeza, como diciendo "En menudo embolao te has metío, macho" Y el acusado haría lo que tenía que hacer, que con toda seguridad sería nada y excusarse. Pero, quién sabe. A lo mejor en esta ocasión les había tocado el tonto, que, como en los chistes de Gila, acaba confesando.
+tal Ignacio, miraría a uno y a otro negando con la cabeza, como
+diciendo "En menudo embolao te has metío, macho" Y el acusado haría lo
+que tenía que hacer, que con toda seguridad sería nada y
+excusarse. Pero, quién sabe. A lo mejor en esta ocasión les había
+tocado el tonto, que, como en los chistes de Gila, y tras muchas indirectas, acaba confesando. 
 
-Entre página relativamente incomprensible y otra totalmente incomprensible, miraba y escuchaba a Roble. El chaval valía para esto. No entendía por qué, pero valía. 
+Entre página relativamente incomprensible y otra totalmente
+incomprensible, miraba y escuchaba a Roble preguntándole al acusado. El chaval valía para
+esto. No entendía por qué, pero valía.  
 
-—Esta persona es la que has asesinado -, le dijo, mostrándole diferentes fotos extraídas de los perfiles en redes sociales, de su perfil en una página de *fan fiction*, vestidos florales, sola, con un grupo de amigas, con unas gafas sin cristal, ojos rojos por el flash, una baraja de fotos extendida sobre la mesa, sota, con un tipo al que le echaba el brazo por encima, caballo, un *selfie* haciendo morritos con Demelza, rey, con la cara en un charco de sangre, la regla de los tercios haciendo que el cuchillo ocupase uno de los puntos importantes. Ignacio murmulló, pero Roble le interrumpió.
+—Esta persona es la que has asesinado -, le dijo, mostrándole
+diferentes fotos extraídas de los perfiles en redes sociales, de su
+perfil en una página de *fan fiction*, vestidos florales, sola, con un
+grupo de amigas, con unas gafas sin cristal, ojos rojos por el flash,
+una baraja de fotos extendida sobre la mesa, sota, con un tipo al que
+le echaba el brazo por encima, caballo, un *selfie* con un primer plano haciendo morritos
+con Demelza, rey, con la cara en un charco de sangre, la regla de los
+tercios haciendo que el cuchillo ocupase uno de los puntos
+importantes. Ignacio murmulló, pero Roble le interrumpió. 
 
 —Tus huellas -, en esta ocasión un tablet que mostraba una foto de un
 pañuelo de seda y, haciendo el gesto con los dedos, la ampliación
-hasta mostrar su huella; dos pulsaciones con el índice sobre la misma
-que enlazaban con la ficha policial de Ignacio. Éste siguió
+hasta  que la huella de Ignacio se hizo bien visible; dos pulsaciones con el índice sobre la misma
+que enlazaban con la ficha policial de Ignacio, en la que aparecía mal
+afeitado, con la mirada ida y el pelo grasiendo, pegado al
+cráneo. Como ahora, pero visiblemente más joven. Éste siguió
 murmurando, pero una vez más Roble lo hizo callar, llevándose esta vez
 el dedo a los labios. 
 
@@ -2375,7 +2395,7 @@ el dedo a los labios.
 moviendo muy rápidamente la cabeza. Roble no le dejó terminar, alzando
 un dedo  para interrumpirle.
 
-—Tu sí. Sabemos cómo, cuando. Pero no el porqué. ¿Molestaba a tu
+—Tu sí. Sabemos cómo, cuando. No el porqué. ¿Molestaba a tu
 novia?
 
 —¡Sí! Esa zorra... esa puta ni sabía escribir ni ná de ná de
@@ -2384,30 +2404,54 @@ fiesta todo el tiempo preguntando donde está, donde está, le tengo que
 enseñar una cosa, yéndose pal cuarto, ¿qué coño tenía que hacer en el
 cuarto, qué coño, eh? ¿Qué coño?
 
-—El cuchillo ¿lo cogiste cuando...?
+—El cuchillo ¿lo cogiste cuando...? - le preguntó Roble, registrando
+el hecho de que había admitido que la chica asesinada molestaba a
+Demelza. 
 
 —¿Qué pollas de cuchillo ni cuchillo? ¿A mi qué me cuentas del
 cuchillo? Si yo no fui a la cocina más que para meterme... coño, para
-mis cosas, ¿qué coño te importan?
+mis cosas, ¿qué coño te importan? - replicó Ignacio. 
 
-—Tus huellas están... - estaban en la cocina, pero no en el cuchillo,
-pensó Roble. Estaban, de hecho, en otro cuchillo. En realidad, era muy
+—Tus huellas... - estaban en la cocina, pero no en el cuchillo,
+pensó Roble. Estaban, de hecho, en otro cuchillo, en uno pequeño, de
+los de untar. En realidad, era muy
 difícil que este tío, con la papa que tendría encima a esas horas de
-la noche, hubiera ido a la cocina, pillado el cuchillo, matar a la
-chica y borrar sus huellas. Pero eso no quiere decir que no hubiera
-estado ahí, sujetando a la muerta o atrayéndola al cuarto o algo.
+la noche, hubiera ido a la cocina, pillado el cuchillo, matado a la
+chica y borrado sus huellas. O se hubiera puesto unos guantes para no
+dejar huellas. Pero eso no quiere decir que no hubiera
+estado ahí, sujetando a la muerta o atrayéndola al cuarto o algo. Para
+que la matara alguien. Alguien que la considerara molesta.
 
 —Están, sí, están, ¿qué pasa? Demelza es mi novia, y entro cuando
-quiero y salgo cuando quiero y... 
+quiero y salgo cuando quiero y nadie me tiene por qué decir ná ni ná.
 
-—Y el día de la fiesta... - le ayudó Roble
+—Y el día de la fiesta... - le ayudó Roble.
 
-—Nos metimos unas rayas de K en la cocina, bueno, ella no, ella es toa
+—Era una fiesta, ¿no? Fuimos a la cocina... - vaciló Ignacio.
+
+—A coger el cuchillo para matar... - aventuró Roble.
+
+—Cojones, con el cuchillo de los cojones, vuelta la burra al trigo,
+que no cogí el cuchillo ni ná ni ná, que te lo he dicho...
+
+—No entiendo.  ¿Qué hacías en la cocina? Huellas en el
+cuchillo. ¿Para qué? - le volvió a mostrar un primer plano donde se
+veía su huella en un mango de cuchillo. Si hubiera ampliado el plano
+se habría visto que era de los del Tulipán. y que con él no se podría
+matar más que a una mosca y si se tuviera mucho tino. Pero la huella
+mostraba que había estado allí y a lo mejor después de apartar ese
+cuchillo para coger el otro había espabilado y se había puesto los
+guantes de fregar de la misma cocina. - 
+
+—Joder, si es que... - Roble volvió a mostrar la huella, pulsó con el índice sobre
+ella para que volviera a aparecer la ficha de Ignacio. -  Nos metimos
+unas rayas de K en la cocina, bueno, ella no, ella es toa 
 limpia y ná de mierda ni ná de ná, que es escritora... 
 
 O sea, que los cuchillos de la cocina los usaban para cortarse las
-rayas. Sin embargo, no había huellas ni de él ni de nadie en el
-cuchillo usado. 
+lonchas de K. Sin embargo, no había huellas ni de él ni de nadie en el
+cuchillo usado. ¿Quienes los usaban? ¿Él y Tina? ¿O también Demelza?
+¿O alguien más? 
 
 En ese momento entró Ciriaco y puso la carpeta encima de la
 mesa. Teatralmente, lo abrió y señaló un punto aleatorio dentro de la
