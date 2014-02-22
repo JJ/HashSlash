@@ -2481,7 +2481,7 @@ Roble miró a Ciriaco, dándole paso.
 señalando a sus ojos y luego a Roble y a él - ¿Tenemos cara de golfos?
 - Y paró un momento, como esperando una respuesta. - ¿A que no? Es
 porque no somos de narcóticos. Así que nos suda la polla lo que
-trapichees, cuánnto y con quién lo hagas. Por lo pronto. Y porque
+trapichees, cuánto y con quién lo hagas. Por lo pronto. Y porque
 queremos saber qué le pasó a la Ainhoa esta. Así que nos lo
 cuentas. Que nosotros somos gente legal y no te echamos marrones
 encima. Y si estabas de subidón cuando lo has hecho, se lo explicamos
