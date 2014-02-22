@@ -334,9 +334,35 @@ inconsciente. Qué frío hacía, caray.
 
 Qué sería de mi sin Tina. 
 
-Sería una persona más tranquila. No tendría que estar pensando en qué va a pasar cuando la pillen. No la policía. Alguien. La K es demasiado popular para que no levante envidias, y ella tiene el mercado de Granada copado. O eso dice. Y debe de ser verdad. Primero, porque no habrá mucha gente que tenga un proyecto de investigación donde consiga clohidrato de Ketamina a granel. Ni, por el mismo precio, un laboratorio para purificarlo y extraer la K. Segundo, porque tiene una cantidad de dinero considerable debajo del colchón, esperando blanqueo. O en algún sitio. Yo no pregunto. Sólo veo cuando se lo gasta. En lo que se lo gasta.
+Sería una persona más tranquila. No tendría que estar pensando en qué
+va a pasar cuando la pillen. No la policía. Alguien. La K es demasiado
+popular para que no levante envidias, y ella tiene el mercado de
+Granada copado. O eso dice. Y debe de ser verdad. Primero, porque no
+habrá mucha gente que tenga un proyecto de investigación donde consiga
+clorhidrato de Ketamina a granel. Ni, por el mismo precio, un
+laboratorio para purificarlo y extraer la K. Segundo, porque tiene una
+cantidad de dinero considerable debajo del colchón, esperando
+blanqueo. O en algún sitio. Yo no pregunto. Sólo veo cuando se lo
+gasta. En lo que se lo gasta. 
 
-Y tercero, porque el pobre Nachito dice que se la quitan de las manos. Lo dice con los ojos muy abiertos y con un poco de saliva en la comisura de los labios. Bueno, dice todo con un poco de saliva en las comisuras de los labios. El pobre Nachito. Que vive en la casita del perro, la llamamos así porque un buen día se plantó en la casa de enfrente con un cerrajero amigo suyo y se metió a vivir allí. Bueno, no la llamamos casita del perro por eso, por la forma de entrar Es porque antes aparecía, a veces, como un perrillo faldero para seguirme, para medir mi humor a distancia, para ver si era propicio hacerse el encontradizo y decirme algo, cualquier cosa y que yo le contestara algo, cualquier cosa. Siempre con "lo que quieras, Deme, de verdad, dímelo, que eres una tía guay". Eso incluso antes de que, un día, un buen día, después de que Kevin, se cabreara conmigo porque no lo había dejado terminar un juego y lo viera allí, limpio por una vez, afeitado, y me dijera a mi mísma, qué diablos... Después de eso todo fue igual, pero ya nada fue lo mismo. Cuando se le veía feliz, estaba más feliz. Pero cuando era desgraciado, se le veía todavía más desgraciado.  
+Y tercero, porque el pobre Nachito dice que se la quitan de las
+manos. Lo dice con los ojos muy abiertos y con un poco de saliva en la
+comisura de los labios. Bueno, dice todo con un poco de saliva en las
+comisuras de los labios. El pobre Nachito. Que vive en la casita del
+perro, la llamamos así porque un buen día se plantó en la casa de
+enfrente con un cerrajero amigo suyo y se metió a vivir allí. Bueno,
+no la llamamos casita del perro por eso, por la forma de entrar Es
+porque antes aparecía, a veces, como un perrillo faldero para
+seguirme, para medir mi humor a distancia, para ver si era propicio
+hacerse el encontradizo y decirme algo, cualquier cosa y que yo le
+contestara algo, cualquier cosa. Siempre con "lo que quieras, Deme, de
+verdad, dímelo, que eres una tía guay". Eso incluso antes de que, un
+día, un buen día, después de que Kevin, se cabreara conmigo porque no
+lo había dejado terminar un juego y lo viera allí, limpio por una vez,
+afeitado, y me dijera a mi misma, qué diablos... Después de eso todo
+fue igual, pero ya nada fue lo mismo. Cuando se le veía feliz, estaba
+más feliz. Pero cuando era desgraciado, se le veía todavía más
+desgraciado.   
 
 Y a estas horas de la mañana, todavía estaba muerta.
 
@@ -345,7 +371,9 @@ Café para dos
 -----
 
 Por un momento, Roble había creído que la chica iba a descubrir la
-situación antes de lo conveniente, es decir, antes de que pudieran sacarle cierta información sobre qué había pasado la noche anterior. Y antes de que, sabiendo lo ocurrido, tuvieran
+situación antes de lo conveniente, es decir, antes de que pudieran
+sacarle cierta información sobre qué había pasado la noche anterior. Y
+antes de que, sabiendo lo ocurrido, tuvieran 
 hacer de consejeros, que tendría que ser él porque Ciri era un inútil
 para prácticamente todo. Además, si ella había tenido algo que ver con ello, trataría de sacarle información sobre qué sabían, de donde se filtraría lo que ella sabía. Había un tercer
 además, que era la posibilidad de, eventualmente y con un poco de
@@ -485,9 +513,14 @@ Y la fiesta.
 
 De lanzamiento.
 
-¿Qué viene después de la K? La M. Si Tina es lista. Algún día dejarán de darle clorhidrato de ketamina, o se le morirán los cerdos, o acabará la tesis o la tesina o lo que esté haciendo. Y tendrá que buscar otro mercado. Es lista. Debería dedicarse a algo que le diera más dinero. Tráfico de armas nucleares o algo. O lo mismo, y escribir. 
+¿Qué viene después de la K? La M. Si Tina es lista. Algún día dejarán
+de darle clorhidrato de ketamina, o se le morirán los cerdos, o
+acabará la tesis o la tesina o lo que esté haciendo. Y tendrá que
+buscar otro mercado. Es lista. Debería dedicarse a algo que le diera
+más dinero. Tráfico de armas nucleares o algo. O lo mismo, y escribir.  
 
-Lo tiene todo pensado. Hasta el márketing. ¿Cómo lanzas un nuevo producto? Pues ofreciéndolo gratis. La primera vez. En una fiesta. 
+Lo tiene todo pensado. Hasta el marketing. ¿Cómo lanzas un nuevo
+producto? Pues ofreciéndolo gratis. La primera vez. En una fiesta.  
 
 No es que se muevan drogas en la casa. Solo las justas. Bueno, algo más que las justas. Nunca clientes. Pero. Futuros clientes. 
 
@@ -1930,7 +1963,7 @@ se tapaba la nariz y se largaba.
 —Tu Demelza... - dijo Roble.
 
 —Sí, es mi novia, vivimos juntos, cretino modernillo. Y hacemos cosas
-qu ea ella le gustan, con una máscara y... con cosas que no te voy a
+que a ella le gustan, con una máscara y... con cosas que no te voy a
 contar, sobrao, que eres un sobrao. Y por eso estaba en la fiesta para
 que la gente chunga no diera por saco, y por eso al guiri cuando se
 puso muy pesao lo largué de una patá en el culo, porque era gilipoyas niñato
