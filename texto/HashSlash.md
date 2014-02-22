@@ -2384,7 +2384,7 @@ importantes. Ignacio murmulló, pero Roble le interrumpió.
 pañuelo de seda y, haciendo el gesto con los dedos, la ampliación
 hasta  que la huella de Ignacio se hizo bien visible; dos pulsaciones con el índice sobre la misma
 que enlazaban con la ficha policial de Ignacio, en la que aparecía mal
-afeitado, con la mirada ida y el pelo grasiendo, pegado al
+afeitado, con la mirada ida y el pelo grasiento, pegado al
 cráneo. Como ahora, pero visiblemente más joven. Éste siguió
 murmurando, pero una vez más Roble lo hizo callar, llevándose esta vez
 el dedo a los labios. 
@@ -2454,20 +2454,35 @@ cuchillo usado. ¿Quienes los usaban? ¿Él y Tina? ¿O también Demelza?
 ¿O alguien más? 
 
 En ese momento entró Ciriaco y puso la carpeta encima de la
-mesa. Teatralmente, lo abrió y señaló un punto aleatorio dentro de la
-carpeta. Luego miró a Ignacio, frunciendo los labios y
+mesa. Teatralmente, la abrió y señaló un punto aleatorio dentro de
+ella. Luego miró a Ignacio, frunciendo los labios y 
 asintiendo. Para incrementar el efecto, chasqueó la lengua. Roble
 también se le quedó mirando. 
 
 —Os metisteis unas rayas... - dijo Roble.
 
-—Con... Unos clientes -, dijo esto último mascullando y en voz muy baja.
+—Con... Unos clientes -, dijo esto último mascullando y en voz muy
+baja.
 
-—Bueno, ya sabes -, y paró cuando dijo esto último, como esperando que Ciriaco y Roble, efectivamente, lo supieran. Ciriaco negó con la cabeza y Roble se quedó impasible. - Clientes.
+—Nombres - dijo Roble, con el pulgar en el móvil, haciendo ademán de
+estar listo para apuntarlos. 
+
+—Bueno, ya sabes -, y paró cuando dijo esto último, como esperando que
+Ciriaco y Roble, efectivamente, lo supieran. Ciriaco negó con la
+cabeza y Roble se quedó impasible. - Clientes. 
 
 Roble miró a Ciriaco, dándole paso.
 
-—Míranos bien a la cara, Nachito - dijo, haciendo la V con los dedos señalando a sus ojos y luego a Roble y a él - ¿Tenemos cara de golfos? - Y paró un momento, como esperando una respuesta. - ¿A que no? Es porque no somos de narcóticos. Así que nos suda la polla lo que trapichees, cuanto con quién lo hagas. Por lo pronto. Y porque queremos saber qué le pasó a la Ainhoa esta. Así que nos lo cuentas. Que nosotros somos gente legal y no te echamos marrones encima. Y si estabas de subidón cuando lo has hecho, se lo explicamos todo clarito a la jueza y te cae la mínima. 
+—Míranos bien a la cara, Nachito - dijo, haciendo la V con los dedos
+índice y corazón,
+señalando a sus ojos y luego a Roble y a él - ¿Tenemos cara de golfos?
+- Y paró un momento, como esperando una respuesta. - ¿A que no? Es
+porque no somos de narcóticos. Así que nos suda la polla lo que
+trapichees, cuánnto y con quién lo hagas. Por lo pronto. Y porque
+queremos saber qué le pasó a la Ainhoa esta. Así que nos lo
+cuentas. Que nosotros somos gente legal y no te echamos marrones
+encima. Y si estabas de subidón cuando lo has hecho, se lo explicamos
+todo clarito a la jueza y te cae la mínima.  
 
 —Si yo no...
 
@@ -2475,19 +2490,23 @@ Roble miró a Ciriaco, dándole paso.
 
 —Las huellas... - intervino Roble.
 
-—Las huellas, y esto -, dijo Ciriaco, apuñalando con el índice la carpeta marrón de la que se desbordaban unos papeles. 
+—Las huellas, y esto -, dijo Ciriaco, apuñalando con el índice la
+carpeta marrón de la que se desbordaban unas hojas. 
 
-Los miró. 
+Ignacio miró la carpeta.  
 
-—¿Cómo se llama ese de narcóticos, Roble? Sí, ese que decía que como encontrara al hijoputa que movía el Ka lo iba a capar como a un gorrino que, total, no les duela...
+—¿Cómo se llama ese de narcóticos, Roble? Sí, ese que decía que como
+encontrara al hijoputa que movía el Ka lo iba a capar como a un
+gorrino que, total, se meten lo mismo que los marranos y además no les
+va a doler... 
 
-—El... 
-
+—El... - replicó Roble, sin mucho convencimiento.
 
 —Sí, el de la perilla - Ignacio abrió mucho los ojos y se agarró con
 las manos al borde de la mesa.
 
-—No, el Cabraloca no, por favor, de veras, que no, que yo no...
+—No, el Cabraloca no, por favor, de veras, que no, que yo no... - dijo
+Ignacio, negando frenéticamente. 
 
 —Cuenta - dijo, simplemente, Roble. 
 
