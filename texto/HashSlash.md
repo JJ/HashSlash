@@ -539,7 +539,12 @@ producto? Pues ofreciéndolo gratis. La primera vez. En una fiesta.
 
 No es que se muevan drogas en la casa. Solo las justas. Bueno, algo más que las justas. Nunca clientes. Pero. Futuros clientes. 
 
-Además, siempre conozco gente. Buena gente. Muy buena gente, como el chavalote con el que me he levantado esta mañana. A Kevin siempre le aburren. Bueno, a Kevin le aburre casi todo. Es una persona a la que le aburre casi todo y se entretiene con casi nada. Una combinación perfecta. Cuando se va, empieza la verdadera fiesta. Aún sin M, las fiestas son divertidas. Con M, las fiestas son de muerte. 
+Además, siempre conozco gente. Buena gente. Muy buena gente, como el
+chavalote con el que me he levantado esta mañana. A Kevin siempre le
+aburren. Bueno, a Kevin le aburre casi todo. Es una persona a la que
+le aburre casi todo y se entretiene con casi nada. Una combinación
+perfecta. Cuando se va, empieza la verdadera fiesta. Aún sin M, las
+fiestas son divertidas. Con M, las fiestas son de muerte.  
 
 Fiambres y bocadillos
 ---
@@ -631,6 +636,36 @@ Quique había aprovechado para tirar unas cuantas fotos con el móvil.
 —Cuando me acuerde te la digo. Venga, puedes subir y echar unas
 fotos y cuando se le pase el berrinche te dejo cinco minutos con
 ella. Pero déjame a mi primero, hombre.
+
+## Inspiración
+
+No a todos les va lo de la máscara, claro. A algunos les agobia. A
+otros les pone más todavía. Tengo otras cosas. Un top masculino, sí,
+hay de esas cosas, color, en realidad no es color, no existen los
+colores metalizados, cobre. Lo compré en una tienda de artículos
+cachondos para gays. En París. Bueno, todas mis cosas las he comprado
+por ahí. No aquí, claro.
+
+Pero si no les pone ni se ponen ni la máscara ni el top de cobre, para
+este último abstenerse los de la barriga cervecera; ahora que lo
+pienso, nunca me acuesto con los de barriga cervecera, entonces me
+toca a mi. Vestirme. Yo soy la mujer mecánica, la Maria de Metropolis,
+enviada por mis amos mecánicos para aparearme con todos los tíos
+buenos de la ciudad. 
+
+Eso siempre funciona. Como también funciona el condón que tienen que
+usar. Sexo seguro. Y metálico. 
+
+Todo lo hago por una razón, claro. No por joder a Kevin. Kevin no se
+deja joder, ya os lo he explicado. No por joder con otros. Bueno, un
+poco sí. Todo lo hago por las novelas, mis novelas. ¿Cómo iba a
+escribir mecaporno si yo misma no viviera el mecaporno? Mecaporno:
+basado en hechos reales, tendría que poner en las portadas. Tengo que
+vivirlo, porque, de no hacerlo, no sabría qué escribir. Mis lectoras,
+quizás algún lector también, claro, no sabrían qué leer. Mis
+imitadoras, bueno, también algún imitador, no sabrían qué imitar. 
+
+Lo que tiene que hacer una por la inspiración. 
 
 Asuntos propios
 ----
