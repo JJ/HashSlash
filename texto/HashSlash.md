@@ -2564,6 +2564,70 @@ incluso de los que no estaban conectados a través de la propia red de
 la comisaría. Además, la red de su casa era más rápida, así que echó
 las carpetas en su Crumpler y anduvo hasta su casa. 
 
+1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
+---
+
+—Justo a las 12 de la noche - dijo el forense.
+
+—¿Justo? No me jodas. - le contestó el agente de policía.
+
+—Bueno, justo, justo... media hora arriba o abajo. - le contestó el
+forense.
+
+—¿Y por qué a las doce? - contestó el agente
+
+—¿Porque más tarde se habría convertido en calabaza? A mi qué me
+cuentas, Miguel. - le dijo el forense
+
+—No, lo que yo digo es que quién querría matar a una mujer a las 12 de la noche en la puerta del
+Sol. 
+
+El forense miró al policía municipal. Eran casi las una de la mañana,
+y de la pastelería Mallorca, de la calle Preciados, llegaban voces
+destempladas, canciones a coro y, por supuesto, palmas. El reloj,
+justo detrás del policía, comenzó a tocar los cuartos. Alguien dijo
+“Esperad, no os comáis todavía las uvas.“
+
+Alrededor del cadáver de Julia habían tenido que poner vallas
+amarillas para contener a la multitud que se congregó y que sacaba
+decenas de miles de fotos. 
+
+## Fotos con muertas
+
+Lo cierto es que el mercado de #escenasdelcrime en Granada era
+bastante limitado. Roble ya había pensado pedir un traslado a otro
+sitio, Sevilla, Barcelona. No era fácil, pero mientras tanto había
+montado una red de contactos por toda España en la que los forenses
+le vendían las fotos que tomaban y él les buscaba comprador. 
+
+La foto que le llegó desde Madrid era una joya. Una mujer joven,
+vestida de rojo, sin ninguna herida aparente, con las luces de la
+Puerta del Sol reflejándose en la sangre todavía fresca. 
+
+Sólo sabía el nombre de la muerta, pero los blogs a los que vendía en
+Estados Unidos y los países nórdicos, sobre todo Suecia, querían más
+detalles, detalles morbosos, así que a partir del nombre que le
+proporcionó su contacto, Julia Matesanz Vázquez buscó si había una
+pareja con la que hubiera hecho planes vitales, una madre a la que
+cuidaba, o un hámster al que alimentaba que estuvieran en ese momento
+desconsolados, desconsuelo que en Suecia se compraba al por mayor.
+
+Encontró inmediatamente su perfil en redes sociales. Julia Matesanz,
+autora de literatura ambulatoria. Roble era lo suficientemente leído
+para saber que no se trataría de literatura desarrollada en
+ambulatorios, aunque con la explosión de nichos literarios de los
+últimos dos años seguro que existía como género,, pero tuvo que mirar
+para ver de qué se trataba de forma precisa: un género en el cual las
+partes de un relato o novela están geoposicionados y, para leerlo,
+tienes no sólo que estar colocado en un lugar determinado y mirar en
+determinada posición, sino además averiguar, por las pistas, cuál es
+el lugar en el que continúa el relato. Lo que empezó con el
+[Bloomsday](http://en.wikipedia.org/wiki/Bloomsday) se había
+convertido en una actividad, literaria, tremendamente popular. Y al
+parecer Julia Matesanz era la persona que había hecho de la literatura
+ambulatoria la actividad e masas.
+
+Había. En pasado. Dos escritoras muertas en un mes. ¿Casualidad? 
 
 ## Encontrando el camino
 
