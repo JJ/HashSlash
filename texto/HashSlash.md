@@ -650,38 +650,55 @@ Así somos los escritores.
 Asuntos propios
 ----
 
-Roble se pilló un autobús para ir hacia el Clínico a entrevistar al
+Roble fue andando hasta la parada más cercana de la línea L, que
+pensaba tomar para ir hacia el Clínico a entrevistar al
 novio de la chica difunta. Kevin. De padres, seguramente, fans de
 [Aquellos maravillosos años](http://es.wikipedia.org/wiki/The_Wonder_Years)
 lo que les había marcado no sólo cultural sino físicamente. 
 
-En la parada del 33 y mientras iba en el mismo fue perfilando al
-chaval. Tenía cuenta de todo. De Jelly, de Twitter, de Facebook, de
+En los ratos que pudo apartar su atención del exterior, es decir,
+prácticamente todo el tiempo y durante el trayecto fue perfilando al
+chaval. Tenía cuenta de todo tipo de redes sociales, incluso de alguna
+que Roble tenía de sus *otras* actividades. De Jelly, de Twitter, de Facebook, de
 Instagram. Donde más se movía era en Jelly, respondiendo a todo tipo
 de preguntas estúpidas. “¿Qué color de bufanda prefieres?” “¿Caballo o
-poni?” “¿Filadelfia o Seattle?”. Si hasta retuiteaba fotos de
-animalitos. 
+poni?” “¿Filadelfia o Seattle?”.  Retuiteaba fotos retro de maquinaria
+pesada y de robots de películas de serie B. 
 
-En Instagram, mucho *selfie*, alguno con la novia. Este sería del tipo
-de gente que queda con la novia para usar, en paralelo, el móvil. Ya
+En Instagram, mucho *selfie*, algunos, pocos, con su difunta novia. Este sería del tipo
+de gente que queda con la novia para usar con ella, en paralelo, el móvil. Ya
 se lo podía imaginar, mandándole un Whatsapp para decirle “¿Dejamos ya
-los móviles y nos metemos mano?”
+los móviles para proceder a besarnos apasionadamente sonrisita
+sonrisita corazón sonrisita?”
 
-Pero, por lo demás, no parecía ni el asesino ni tener nada que ver con
+Ninguna de ellas parecían razones para asesinar a su novia ni, de hecho, tener nada que ver con
 el tema. Puso en Facebook el inicio oficial de la relación hacía ocho
 meses, en mayo, finales del curso pasado. ¿Una novia anterior
-especialmente celosa? No parecía tenerla, alguna amiga que
-otra. Tendría que minar fotos y posts para sacar alguna conclusión
-más, pero su olfato le decía que no.
+especialmente celosa que no hubiera soportado su relación actual? No parecía tenerla, alguna amiga que
+otra. Tendría que minar fotos y posts suyos y de su entorno para sacar alguna conclusión
+más, pero su olfato le decía que no. Por otro lado, parecía haber
+tenido alguna relación anterior, pero nada que indicara que se hubiera
+tomado la ruptura, o abandono, o separación, como algo más grave que
+la pérdida de unos cuantos seguidores en Twitter. Si había alguna
+infidelidad de por medio, no encajaba en el perfil del asesino de
+mujeres. Y menos del asesino que, a sangre fría, se muestra
+desconsolado cuando sabe de la muerte de la misma. 
 
-Su app monedero de *bitcoin* sonó con su tintineo metálico en ese
+El app monedero de *bitcoin* de Roble sonó, con su tintineo metálico, en ese
 momento. Ya le habían abonado las fotos que había tomado el
 Ciri, un par de *bitcoins* que no era probable que duraran
 veinticuatro horas. Sólo si esto le tomaba demasiado tiempo. 
 
-Le mandó un Whatsapp al asistente social que estaba con el chico para
-ver donde se encontraban. Seguían en urgencias y parecía que el chaval
-estaba más calmado gracias a la química. Se lo encontró tumbado, con
+Bajó del autobús en la Caleta y le mandó un Whatsapp al asistente social que estaba con el chico para
+ver donde su posición dentro del hospital. Recibió un mensaje
+inmediatamente, indicándole que seguían en urgencias y parecía que el chaval
+estaba más calmado gracias a la química. También un mensaje de la
+operadora del autobús preguntándole si su viaje en la línea de alta
+capacidad había sido satisfactorio. Pulsó el círculo verde del Si,
+siendo incapaz de recordar, en ese momento, ni siquiera si había ido
+sentado o de pie. 
+
+Se lo encontró tumbado, con
 los ojos cerrados, El asistente, a su lado, leía en un tableta. Se
 levantó y le dijo
 
