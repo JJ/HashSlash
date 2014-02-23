@@ -579,7 +579,7 @@ garantizado como no  trinquéis al asesino esta misma tarde. Esta misma
 mañana. Eso igual no te viene bien para pillarte alumnos de
 oposiciones, ¿eh, Ciri?
 
-Ciríaco le soltó el brazo. No, no le vendría bien como publicidad. Al
+Ciriaco le soltó el brazo. No, no le vendría bien como publicidad. Al
 menos de forma inmediata. Pero en dos meses se habrían olvidado y le
 daría igual. Además, estaba ya un poco harto de preparar oposiciones y
 el piso de la costa lo tenían prácticamente pagado. 
