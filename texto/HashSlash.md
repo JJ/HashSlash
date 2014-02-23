@@ -158,9 +158,9 @@ tal Kevin. Al menos a estas alturas de la investigación.
 —¿Inocente? - preguntó Roble. 
 
 —Inocente lo es de por sí. Pero también puede ser, digo yo, que sea un mosquito muerto de los que las mata callando. Dicho esto como figurativamente hablando, vamos, porque el tío bien que chillaba. Vamos, que no tengo ni puta idea, Roble. Pero me extrañaría. Cuando salga del
-Clínico le preguntaremos. Pero vamos, que no. 
+Clínico le preguntaremos. Pero vamos, que no.   
 
-—¿Por?
+—¿Por? - preguntó Roble, de nuevo. 
 
 —Mira las fotos. El cuchillo.
 
@@ -170,10 +170,10 @@ Clínico le preguntaremos. Pero vamos, que no.
 —La posición del cuchillo, el ángulo, - hizo movimientos de Bates
 apuñalando la cortina de
 la ducha en Psicosis, - quien fuera tendría que ser bastante más alto
-que ella. Y este menda, así a ojo de buen cubero, era de la misma
+que ella. Y ese menda, así a ojo de buen cubero, era de la misma
 altura o un poco más bajo.
 
-—Y eso lo sabes porque...
+—¿Seguro? - insistió Robles. 
 
 —Coño, Robles, porque me he visto el NCIS y el CSI y toda serie 
 maderera que echen por la tele o te compres en el Cortinglés o que se
@@ -184,9 +184,10 @@ dedos de esta mano se pueden contar -, mostró su mano izquierda, en la
 que le faltaba un dedo. - Y todas eran mujeres y los asesinos eran
 siempre sus parejas, que, a veces, estaban justo al lado, con
 los sesos volados. Expediente cerrado, caso resuelto, te vas a casa y
-te echas la siesta.
+te echas la siesta. Pero vamos, que en las series es lo primero que
+miran, Ángulo, altura, este es culpable, ese no. 
 
-—Vaya - dijo Roble.
+—Vaya -, dijo Roble.
 
 —Qué.
 
@@ -551,7 +552,7 @@ adelantó por la izquierda y se dirigió a la chica.
 —¿Es usted familiar de la difunta?
 
 Ella abrió muchos los ojos y se echó a llorar, claro. Y Quique se puso
-a grabarla, claro. Ya veía el
+a grabarla con el móvil, claro. Ya veía el
 titular: “Momentos de pánico en el piso de la estudiante asesinada”,
 seguido de las frases de *stock* que tenían preparadas para esos
 casos. “Era muy querida por todos” (muy querida por todos los vecinos,
@@ -559,33 +560,46 @@ en caso de tratarse de una barriada popular o un pueblo; frase
 preferida por el presidente de la asociación de vecinos o el alcalde pedáneo), “Tenía una vida por delante” y “No
 podía imaginar que le iba a pasar esto”. 
 
-—Anda, Quique y lárgate, cojones, no des más por culo. Luego te pasas
+—Anda, Quique, pilla y lárgate, cojones, no des más por culo. - le
+dijo Ciriaco, cogiéndolo por el brazo e indicándole la dirección del
+centro de la ciudad. - Luego te pasas
 por Jefatura y te damos el comunicado de prensa.
 
-—Si me dejas subir a hacer fotos.
+—Me largo ya. Si antes me dejas subir a hacer fotos. - le contestó Quique.
 
-—No te dejo subir a hacer fotos - , dijo Ciriaco, haciendo a la vez un
-gesto con la mano. 
+—No te dejo subir a hacer fotos -, dijo Ciriaco, haciendo a la vez un
+gesto con la mano. - El de la poli las hace bien bonicas y enfocás y
+tienen todo lo que tienen que tener o que nosotros queremos que
+tenga. Venga, humo. 
 
-—Entonces, aquí me tienes hasta que desfile desde la primera a la última maruja del
-barrio. Y el artículo sobre incompetencia policial lo tienes
+—Entonces, aquí me tienes en la puerta hasta que desfile desde la primera a la última maruja del
+barrio. Y el artículo sobre incompetencia policial, con tus nombres y
+tus apellidos, lo tienes
 garantizado como no  trinquéis al asesino esta misma tarde. Esta misma
-mañana. 
+mañana. Eso igual no te viene bien para pillarte alumnos de
+oposiciones, ¿eh, Ciri?
+
+Ciríaco le soltó el brazo. No, no le vendría bien como publicidad. Al
+menos de forma inmediata. Pero en dos meses se habrían olvidado y le
+daría igual. Además, estaba ya un poco harto de preparar oposiciones y
+el piso de la costa lo tenían prácticamente pagado. 
 
 —Pero ¿quién se ha muerto ni niño muerto? - dijo Ciriaco, encogiendo
-los hombros y metiéndose las manos en los bolsillos - Es un registro rutinario.
+los hombros y metiéndose las manos en los bolsillos - Es un registro
+rutinario. Y no me agobies, Quique, que me busco la ruina, de verdad. 
 
 —Sí, y esa furgoneta es la del fresco del barrio, oye, qué bueno, lo
-del fresco del barrio, eso va a mi blog, fijo,  y esa señora que se
+del fresco del barrio, eso va a mi blog, fijo.  Y esa señora que se
 ha bajado del coche no es la jueza Blanco sino su gemela maligna que
 viene a hacer una fiesta de Tuppersex.
 
-Segundos de intercambio de frases que había aprovechado la chica para
-llegar hasta la puerta del bloque sin dejar de llorar. El agente no la
-dejó pasar y tras amagar unos golpes decidió, simplemente sentarse en
+Estos minutos de intercambio de frases los había aprovechado la chica para
+acercarse hasta la puerta del bloque sin dejar de llorar, aunque más
+en silencio. El agente no la
+dejó pasar y tras amagar unos golpes decidió, simplemente, sentarse en
 el suelo y seguir llorando. Quique y Ciriaco se fueron hacia ella,
 pero Ciriaco volvió el brazo con la palma hacia atrás y le impidió
-continuar.
+continuar a Quique.
 
 —Venga, coño, Ciri, dame vidilla, cojones. ¿Cuánto? - le preguntó
 Quique, echándose la mano a la cartera en el bolsillo de atrás. 
@@ -602,7 +616,7 @@ muertos y pa los de asuntos internos si es que te preguntan. Ahora,
 humo.
 
 —Joder, Ciri, que está el de marketing del periódico encima nuestro,
-todo lo que huela a sangre son visitas a la web, venga, va, joder...
+todo lo que huela a sangre son visitas a la web y si tiene imágenes, más, venga, va, joder...
 
 Ciriaco no dijo nada. Tina había vuelto al suelo a llorar y la jueza y el
 secretario judicial se acercaban ya a la puerta y tenía que
