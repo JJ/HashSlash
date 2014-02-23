@@ -2645,7 +2645,7 @@ cualquier caso, la petición era FTW.
 La pulsera de Roble, que ese momento sostenía en la mano un café de
 origen indonesio y que se había traído desde su casa en un termo
 porque no aguantaba, de ninguna forma, el café que se servía en la
-comisaría, comprado en el Corte Ingĺés, vibró, creando unas ondas
+comisaría, comprado en el Corte Inglés, vibró, creando unas ondas
 concéntricas en superficie de la bebida, que afortunadamente ya había
 apurado y estaba unos milímetros más abajo del borde. 
 
