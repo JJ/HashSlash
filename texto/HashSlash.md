@@ -2594,7 +2594,7 @@ decenas de miles de fotos.
 
 ## Fotos con muertas
 
-Lo cierto es que el mercado de #escenasdelcrime en Granada era
+Lo cierto es que el mercado de #escenasdelcrimen en Granada era
 bastante limitado. Roble ya había pensado pedir un traslado a otro
 sitio, Sevilla, Barcelona. No era fácil, pero mientras tanto había
 montado una red de contactos por toda España en la que los forenses
@@ -2628,6 +2628,40 @@ parecer Julia Matesanz era la persona que había hecho de la literatura
 ambulatoria la actividad e masas.
 
 Había. En pasado. Dos escritoras muertas en un mes. ¿Casualidad? 
+
+Tendría que ir a la comisaría a pedir los informes a Madrid. Podía ser
+casualidad, claro. También podía conseguir alguna foto más. En
+cualquier caso, la petición era FTW. 
+
+## Mientras tanto, en la mente de Ciriaco
+
+(Nada que no hayamos contado antes.)
+
+## Asesinato en la multitud
+
+La pulsera de Roble, que ese momento sostenía en la mano un café de
+origen indonesio y que se había traído desde su casa en un termo
+porque no aguantaba, de ninguna forma, el café que se servía en la
+comisaría, comprado en el Corte Ingĺés, vibró, creando unas ondas
+concéntricas en superficie de la bebida, que afortunadamente ya había
+apurado y estaba unos milímetros más abajo del borde. 
+
+Miró los informes sobre la pantalla que tenía en su mesa. Julia murió
+de un sólo dardo *flechette* en el corazón, disparado posiblemente
+desde una escopeta y a corta distancia, un par de metros como máximo;
+había restos de pólvora en la ropa. En el momento que murió estaba
+rodeada de amigos, conocidos y fans diversos que habían seguido una
+nueva historia ambulatoria que estaba presentando. La muerte sucedió,
+posiblemente, a las 12 de la noche, cuando todos estaban mirando el
+reloj y en el momento que nadie, por el ruido ambiente, por las
+campanadas y por el simple caos imperante, habría sido capaz de oir un
+disparo. 
+
+Los agentes habían interrogado, sobre la marcha, a más de treinta
+personas. Algunas personas habían escuchado un disparo, otras siete y
+otras ninguno. Para algunos Julia calló al suelo tras la primera
+campanada, para otras después de la séptima. Muchos pensaron que era
+parte de la historia. 
 
 ## Encontrando el camino
 
