@@ -818,13 +818,14 @@ fácil no hacerlo, pero es que no me apetece dejar de hacerlo.  En
 alguna ocasión. Generalmente, lo que me apetece es no hacerlo.
 
 Ya sé que todo el rollo literario, el malditismo, el parnaso y la
-hostia en verso, todo eso. Bien, vale. Pero en este mundo *indie* hay
+hostia en verso, todo eso tiene un componente psiconáutico
+considerable. Bien, vale. Pero en este mundo *indie* hay 
 que producir material cada muy poco tiempo. Y una vez producido, hay
 que promocionarlo, corregirlo, mejorarlo y volver a
 promocionarlo. Escritora aquí, escritora allí, en todo el orbe del
 universo mundo. Es un jodido trabajo. Que da dinero. Pero hay que
 sudarlo. Y si te metes una loncha un día sí y otro también y el de
-enmedio un porrito para relajarte, acabas dejando de escribir un día
+en medio un porrito para relajarte, acabas dejando de escribir un día
 sí y otro también. Y no puedes permitírtelo. Porque esto es una jodida
 carrera y gentes como la pesada de la Ainhoa y el petardo del Iron
 Pedro, están ahí para llevarse a los lectores y a los que escriben fan
