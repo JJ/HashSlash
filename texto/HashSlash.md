@@ -960,6 +960,23 @@ uno en las últimas horas. Igual decía la verdad.
 —Pues invítame a una caña. - contestó el amigo, o, más concretamente,
 compañero de asiento en el autobús. 
 
+## Ya ocurrió
+
+Tenía que pasar. Han trincado a Tina. Tanta policía alrededor de
+nuestra casa no puede ser por otra cosa. 
+
+¿Tendría que haberla denunciado? ¿No tendremos eximentes por
+compañeras de piso o eso? Demasiado tarde, ahora. A trabar con lo que
+caiga. 
+
+Todo por la mierda de la fiesta. “¿Cómo voy a lanzar un producto
+nuevo, si no?“ Toma producto nuevo. Ahí lo tienes. 
+
+El alivio que sentí al darme cuenta de que no estaban por ahí por
+Tina, sino por mi asesinato, fue considerable.
+
+*Sigue por aquí*
+
 ## Los muertos no hablan, los vivos sí.
 
 El walkie de Ciriaco emitió un sonido. Estaba de nuevo en el salón del
