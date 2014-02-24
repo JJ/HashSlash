@@ -245,9 +245,17 @@ Kevin
 
 Podría vivir así. Escribir y tirarme a tíos buenos. Y, bueno, estar con Kevin. 
 
-En realidad, yo lo quiero. Pero, primero, no le van los fetiches metálicos. Segundo, no es de los que les va la penetración. Tercero, no hace preguntas.
+En realidad, yo lo quiero. Pero, primero, no le van los fetiches
+metálicos. Segundo, no es de los que les va la penetración. Tercero,
+no hace preguntas. 
 
-Bueno, borra tercero. Sí hace preguntas. No con la boca. Hace poco con la boca, la verdad. No como éste. Pero sí con los ojos. Mira, suplica. También hace el amor. Se lo hace a sí mismo, claro, mientras yo me divierto. A veces, si no me apetece después de una noche especialmente movida y sin él, una noche en el que el iBra que me regaló con el vano objetivo de controlarme no acaricia mis pezones, me mira.
+Bueno, borra tercero. Sí hace preguntas. No con la boca. Hace poco con
+la boca, la verdad. No como éste. Pero sí con los ojos. Mira,
+suplica. También hace el amor. Se lo hace a sí mismo, claro, mientras
+yo me divierto. A veces, si no me apetece después de una noche
+especialmente movida y sin él, una noche en el que el iBra que me
+regaló con el vano objetivo de controlarme no acaricia mis pezones, me
+mira. 
 
 Despertar
 ---
@@ -342,9 +350,35 @@ inconsciente. Qué frío hacía, caray.
 
 Qué sería de mi sin Tina. 
 
-Sería una persona más tranquila. No tendría que estar pensando en qué va a pasar cuando la pillen. No la policía. Alguien. La K es demasiado popular para que no levante envidias, y ella tiene el mercado de Granada copado. O eso dice. Y debe de ser verdad. Primero, porque no habrá mucha gente que tenga un proyecto de investigación donde consiga clohidrato de Ketamina a granel. Ni, por el mismo precio, un laboratorio para purificarlo y extraer la K. Segundo, porque tiene una cantidad de dinero considerable debajo del colchón, esperando blanqueo. O en algún sitio. Yo no pregunto. Sólo veo cuando se lo gasta. En lo que se lo gasta.
+Sería una persona más tranquila. No tendría que estar pensando en qué
+va a pasar cuando la pillen. No la policía. Alguien. La K es demasiado
+popular para que no levante envidias, y ella tiene el mercado de
+Granada copado. O eso dice. Y debe de ser verdad. Primero, porque no
+habrá mucha gente que tenga un proyecto de investigación donde consiga
+clorhidrato de Ketamina a granel. Ni, por el mismo precio, un
+laboratorio para purificarlo y extraer la K. Segundo, porque tiene una
+cantidad de dinero considerable debajo del colchón, esperando
+blanqueo. O en algún sitio. Yo no pregunto. Sólo veo cuando se lo
+gasta. En lo que se lo gasta. 
 
-Y tercero, porque el pobre Nachito dice que se la quitan de las manos. Lo dice con los ojos muy abiertos y con un poco de saliva en la comisura de los labios. Bueno, dice todo con un poco de saliva en las comisuras de los labios. El pobre Nachito. Que vive en la casita del perro, la llamamos así porque un buen día se plantó en la casa de enfrente con un cerrajero amigo suyo y se metió a vivir allí. Bueno, no la llamamos casita del perro por eso, por la forma de entrar Es porque antes aparecía, a veces, como un perrillo faldero para seguirme, para medir mi humor a distancia, para ver si era propicio hacerse el encontradizo y decirme algo, cualquier cosa y que yo le contestara algo, cualquier cosa. Siempre con "lo que quieras, Deme, de verdad, dímelo, que eres una tía guay". Eso incluso antes de que, un día, un buen día, después de que Kevin, se cabreara conmigo porque no lo había dejado terminar un juego y lo viera allí, limpio por una vez, afeitado, y me dijera a mi mísma, qué diablos... Después de eso todo fue igual, pero ya nada fue lo mismo. Cuando se le veía feliz, estaba más feliz. Pero cuando era desgraciado, se le veía todavía más desgraciado.  
+Y tercero, porque el pobre Nachito dice que se la quitan de las
+manos. Lo dice con los ojos muy abiertos y con un poco de saliva en la
+comisura de los labios. Bueno, dice todo con un poco de saliva en las
+comisuras de los labios. El pobre Nachito. Que vive en la casita del
+perro, la llamamos así porque un buen día se plantó en la casa de
+enfrente con un cerrajero amigo suyo y se metió a vivir allí. Bueno,
+no la llamamos casita del perro por eso, por la forma de entrar Es
+porque antes aparecía, a veces, como un perrillo faldero para
+seguirme, para medir mi humor a distancia, para ver si era propicio
+hacerse el encontradizo y decirme algo, cualquier cosa y que yo le
+contestara algo, cualquier cosa. Siempre con "lo que quieras, Deme, de
+verdad, dímelo, que eres una tía guay". Eso incluso antes de que, un
+día, un buen día, después de que Kevin, se cabreara conmigo porque no
+lo había dejado terminar un juego y lo viera allí, limpio por una vez,
+afeitado, y me dijera a mi misma, qué diablos... Después de eso todo
+fue igual, pero ya nada fue lo mismo. Cuando se le veía feliz, estaba
+más feliz. Pero cuando era desgraciado, se le veía todavía más
+desgraciado.   
 
 Y a estas horas de la mañana, todavía estaba muerta.
 
@@ -353,7 +387,9 @@ Café para dos
 -----
 
 Por un momento, Roble había creído que la chica iba a descubrir la
-situación antes de lo conveniente, es decir, antes de que pudieran sacarle cierta información sobre qué había pasado la noche anterior. Y antes de que, sabiendo lo ocurrido, tuvieran
+situación antes de lo conveniente, es decir, antes de que pudieran
+sacarle cierta información sobre qué había pasado la noche anterior. Y
+antes de que, sabiendo lo ocurrido, tuvieran 
 hacer de consejeros, que tendría que ser él porque Ciri era un inútil
 para prácticamente todo. Además, si ella había tenido algo que ver con
 ello, trataría de interrogarla sobre qué sabían, de donde se filtraría
@@ -503,13 +539,24 @@ Y la fiesta.
 
 De lanzamiento.
 
-¿Qué viene después de la K? La M. Si Tina es lista. Algún día dejarán de darle clorhidrato de ketamina, o se le morirán los cerdos, o acabará la tesis o la tesina o lo que esté haciendo. Y tendrá que buscar otro mercado. Es lista. Debería dedicarse a algo que le diera más dinero. Tráfico de armas nucleares o algo. O lo mismo, y escribir. 
+¿Qué viene después de la K? La M. Si Tina es lista. Algún día dejarán
+de darle clorhidrato de ketamina, o se le morirán los cerdos, o
+acabará la tesis o la tesina o lo que esté haciendo. Y tendrá que
+buscar otro mercado. Es lista. Debería dedicarse a algo que le diera
+más dinero. Tráfico de armas nucleares o algo. O lo mismo, y escribir.  
 
-Lo tiene todo pensado. Hasta el márketing. ¿Cómo lanzas un nuevo producto? Pues ofreciéndolo gratis. La primera vez. En una fiesta. 
+Lo tiene todo pensado. Hasta el marketing. ¿Cómo lanzas un nuevo
+producto? Pues ofreciéndolo gratis. La primera vez. En una fiesta.  
 
-No es que se muevan drogas en la casa. Solo las justas. Bueno, algo más que las justas. Nunca clientes. Pero. Futuros clientes. 
+No es que se muevan drogas en la casa. Solo las justas. Bueno, algo
+más que las justas. Nunca clientes. Pero. Futuros clientes.  
 
-Además, siempre conozco gente. Buena gente. Muy buena gente, como el chavalote con el que me he levantado esta mañana. A Kevin siempre le aburren. Bueno, a Kevin le aburre casi todo. Es una persona a la que le aburre casi todo y se entretiene con casi nada. Una combinación perfecta. Cuando se va, empieza la verdadera fiesta. Aún sin M, las fiestas son divertidas. Con M, las fiestas son de muerte. 
+Además, siempre conozco gente. Buena gente. Muy buena gente, como el
+chavalote con el que me he levantado esta mañana. A Kevin siempre le
+aburren. Bueno, a Kevin le aburre casi todo. Es una persona a la que
+le aburre casi todo y se entretiene con casi nada. Una combinación
+perfecta. Cuando se va, empieza la verdadera fiesta. Aún sin M, las
+fiestas son divertidas. Con M, las fiestas son de muerte.  
 
 Fiambres y bocadillos
 ---
@@ -614,6 +661,36 @@ Quique había aprovechado para tirar unas cuantas fotos con el móvil.
 —Cuando me acuerde te la digo. Venga, puedes subir y echar unas
 fotos y cuando se le pase el berrinche te dejo cinco minutos con
 ella. Pero déjame a mi primero, hombre.
+
+## Inspiración
+
+No a todos les va lo de la máscara, claro. A algunos les agobia. A
+otros les pone más todavía. Tengo otras cosas. Un top masculino, sí,
+hay de esas cosas, color, en realidad no es color, no existen los
+colores metalizados, cobre. Lo compré en una tienda de artículos
+cachondos para gays. En París. Bueno, todas mis cosas las he comprado
+por ahí. No aquí, claro. 
+
+Pero si no les pone ni se ponen ni la máscara ni el top de cobre, para
+este último abstenerse los de la barriga cervecera; ahora que lo
+pienso, nunca me acuesto con los de barriga cervecera, entonces me
+toca a mi. Vestirme. Yo soy la mujer mecánica, la Maria de Metropolis,
+enviada por mis amos mecánicos para aparearme con todos los tíos
+buenos de la ciudad. 
+
+Eso siempre funciona. Como también funciona el condón que tienen que
+usar. Sexo seguro. Y metálico. 
+
+Todo lo hago por una razón, claro. No por joder a Kevin. Kevin no se
+deja joder, ya os lo he explicado. No por joder con otros. Bueno, un
+poco sí. Todo lo hago por las novelas, mis novelas. ¿Cómo iba a
+escribir mecaporno si yo misma no viviera el mecaporno? Mecaporno:
+basado en hechos reales, tendría que poner en las portadas. Tengo que
+vivirlo, porque, de no hacerlo, no sabría qué escribir. Mis lectoras,
+quizás algún lector también, claro, no sabrían qué leer. Mis
+imitadoras, bueno, también algún imitador, no sabrían qué imitar. 
+
+Lo que tiene que hacer una por la inspiración. 
 
 Asuntos propios
 ----
@@ -746,6 +823,37 @@ aparentemente muy líquido. Sonaron diferentes melodías procedentes de
 diferentes aparatos y Roble,
 eventualmente, se fue.
 
+## Mi postura sobre las drogas. Clara y rotunda.
+
+La fiesta del M estuvo bien. El hecho de que sea capaz de decir esto
+indica que no lo probé. En general, no tomo drogas. No, borra eso. En
+general, no tomo muchas drogas. Teniendo a Tina al lado, que es una
+farmacia andante y el departamento de investigación y desarrollo de la
+misma, todo junto, es difícil no hacerlo. No, borra eso también. Es
+fácil no hacerlo, pero es que no me apetece dejar de hacerlo.  En
+alguna ocasión. Generalmente, lo que me apetece es no hacerlo.
+
+Ya sé que todo el rollo literario, el malditismo, el parnaso y la
+hostia en verso, todo eso tiene un componente psiconáutico
+considerable. Bien, vale. Pero en este mundo *indie* hay 
+que producir material cada muy poco tiempo. Y una vez producido, hay
+que promocionarlo, corregirlo, mejorarlo y volver a
+promocionarlo. Escritora aquí, escritora allí, en todo el orbe del
+universo mundo. Es un jodido trabajo. Que da dinero. Pero hay que
+sudarlo. Y si te metes una loncha un día sí y otro también y el de
+en medio un porrito para relajarte, acabas dejando de escribir un día
+sí y otro también. Y no puedes permitírtelo. Porque esto es una jodida
+carrera y gentes como la pesada de la Ainhoa y el petardo del Iron
+Pedro, están ahí para llevarse a los lectores y a los que escriben fan
+fiction y a todo el mundo. 
+
+Por eso, cuando me desperté el día que me mataron estaba fresca, con
+varias ideas bullendo en mi cabeza y con ganas de volver al teclado a
+verter todo lo que me hervía dentro. 
+
+Por el camino a casa, ningún mensaje de Tina ni de Kevin ni de nadie. Como si
+me hubiera muerto. 
+
 
 ## Sentido y sensibilidad
  
@@ -775,8 +883,6 @@ tópicos que contenían. Sin embargo, la respuesta fue
 
 Con casi treinta años de policía, Ciriaco pensó que la condición
 humana nunca dejaría de sorprenderle.
-
-*Revisar* 
 
 ## Identidad
 
@@ -870,6 +976,22 @@ uno en las últimas horas. Igual decía la verdad.
 
 —Pues invítame a una caña. - contestó el amigo, o, más concretamente,
 compañero de asiento en el autobús. 
+
+## Ya ocurrió
+
+Tenía que pasar. Han trincado a Tina. Tanta policía alrededor de
+nuestra casa no puede ser por otra cosa. 
+
+¿Tendría que haberla denunciado? ¿No tendremos eximentes por
+compañeras de piso o eso? Demasiado tarde, ahora. A trabar con lo que
+caiga. 
+
+Todo por la mierda de la fiesta. “¿Cómo voy a lanzar un producto
+nuevo, si no?“ Toma producto nuevo. Ahí lo tienes. Producto, vida y hasta traje nuevo. De color naranja, que es el nuevo negro. 
+
+El alivio que sentí al darme cuenta de que no estaban por ahí por
+Tina, sino por mi asesinato, fue considerable.
+
 
 ## Los muertos no hablan, los vivos sí.
 
@@ -1083,6 +1205,14 @@ el viaje hacia su casa, acompañando en su salida a Puri y al secretario.
 Iba por la mitad de la cuesta cuando su pulsera vibró y en ella
 apareció un mensaje informándole de que se había encontrado una conexión
 entre las dos muertas. La real y la putativa. 
+
+## La pesada de Ainhoa
+
+Hay cosas en la vida de una escritora que no molan nada. Una es que escribas un libro y no le guste a nadie. Otra, que te quedes sin ideas. La tercera, tener fans que estén dándote por saco continuamente. La cuarta, que te copien. 
+
+No, borra eso. Da igual que te copien. Quien copia es un perdedor que demuestra que es incapaz de soportar la primera cosa que no mola nada y que está sufriendo la segunda cosa que no mola nada. Ainhoa era de esas. Pero, además, era, para mi, la tercera cosa que no mola nada. Y a la vez, la cuarta. La primera y la segunda no me han ocurrido nunca, gracias a Optimus Prime.
+
+O sea, que una persona que no me mola nada aparece muerta en mi cuarto con un cuchillo de mi cocina. Eso tampoco mola nada. Pero me alegro por Tina, que parece que, por lo pronto, no va a ir a la cárcel. Eso sí mola. 
 
 ## Interludios y preludios
 
