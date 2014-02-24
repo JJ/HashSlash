@@ -824,12 +824,10 @@ tópicos que contenían. Sin embargo, la respuesta fue
 Con casi treinta años de policía, Ciriaco pensó que la condición
 humana nunca dejaría de sorprenderle.
 
-*Revisar* 
-
 ## Identidad
 
-Roble estaba de pie en el autobús, de vuelta a su casa, cuando recibió
-la llamada de Ciriaco, informándole de lo que Tina le había contestado a él y
+Roble estaba de pie en el autobús, camino de vuelta a su casa, cuando recibió
+la llamada de Ciriaco, informándole de lo que Tina le había contestado y
 de la llegada de recoge-fiambres, en palabras del propio
 Ciriaco. Inmediatamente le envió un mensaje a Tina quedando para tomar algo esa noche.
 
@@ -854,21 +852,26 @@ posibilidades de viralidad, ¿no?
 
 Su compañero o compañera emitió un sonido para indicar continuidad en la
 comunicación. Quien hablaba, una persona que, por la voz, podría tener
-tanto la edad de Ciriaco como la de Roble, continuaba. Las gafas de
-Roble habían recolectado las firmas electrónicas de todo el mundo y ya
+tanto la edad de Ciriaco como la de Roble como una situada entre las dos, continuaba. Las gafas de
+Roble habían recolectado las firmas electrónicas de todos los
+pasajeros del autobús y ya
 sabía, al menos, si se había encontrado con ellos alguna vez. Con un
 poco de suerte, podía tener alguna información adicional y asociar la
-firma a una persona. 
+firma electrónica a una persona. 
 
 —No requiere nada, en realidad. Un vídeo son tres minutos, y luego es
 como, ahora qué veo,
 ¿no? Un libro son horas y horas de entretenimiento sin tener que
-molestarse en pensar qué haces luego, ¿te das cuenta?
+molestarse en pensar qué haces luego, ¿te das cuenta? Y una serie,
+mucho mejor. ¡Días y días acumulados!
 
-Sí se debía de dar cuenta, porque continuó. Roble ya había asociado la
+Sí se debía de dar cuenta, porque continuó. Una aplicación de
+reconocimiento de voz de Roble ya había asociado la
 voz a un *podcast* aparecido en algún sitio, lo que le dio también un
-nombre y todas las demás coordenadas. Usaba el nombre Vicente
+nombre y todas las demás coordenadas. El nick que usaba era Vicente
 Asterisco. 
+
+*Revisar* 
 
 —Además, lo mejor de los libros es que, en realidad, la gente *no los lee*, ¿te das
 cuenta? Satisfacen su necesidad inmediata de adquirir algo, por poco
