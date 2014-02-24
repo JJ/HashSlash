@@ -829,23 +829,21 @@ humana nunca dejaría de sorprenderle.
 ## Identidad
 
 Roble estaba de pie en el autobús, de vuelta a su casa, cuando recibió
-la llamada de Ciriaco, poniéndole al día del interrogatorio de Tina y
+la llamada de Ciriaco, informándole de lo que Tina le había contestado a él y
 de la llegada de recoge-fiambres, en palabras del propio
-Ciriaco. Inmediatamente le envió un mensaje a Tina quedando para unas
-cervezas por la noche.
+Ciriaco. Inmediatamente le envió un mensaje a Tina quedando para tomar algo esa noche.
 
 Sus planes inmediatos incluían dormir unas cuantas horas. Había estado
 de servicio toda la noche, un turno de diez horas que al final parecía
-haberse extendido unas pocas más, la pulsera ya le
-estaba avisando de que era hora de dormir si se quería mantener
-saludable y con la piel tersa. Además, el caso no
-parecía tener visos de ser resuelto fácilmente. Arma oportunista,
+haberse extendido unas pocas más. El app TuSalud de la pulsera ya le
+estaba avisando de que era hora de un sueño reparador si se quería mantener
+saludable y con la piel tersa. Además, su vigilia no tenía visos de aportar nada a la investigación. Arma oportunista,
 persona sin grandes enemistades ni, aparentemente, amistades,
 categorías 
-ambas que podían pasar a la de asesinos fácilmente. 
+ambas que podían pasar a la de asesinos fácilmente. Así que hacerle caso a TuSalud parecía una opción razonable, por el momento. 
 
 Mientras pensaba esto, escuchaba la conversación que se desarrollaba en el asiento de
-atrás. Que es algo, pensó Roble, que las redes sociales nunca podrían
+atrás.  Escucha oportunista que, pensó Roble, las redes sociales nunca podrían
 emular. Legalmente, al menos.
 
 —No, los vídeos son muy de principio de década. Ahora lo que la peña
