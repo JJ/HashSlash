@@ -186,7 +186,7 @@ tocado ver muchos fiambres?
 dedos de esta mano se pueden contar -, mostró su mano izquierda, en la
 que le faltaba un dedo. - Y todas eran mujeres y los asesinos eran
 siempre sus parejas, que, a veces, estaban justo al lado, con
-los sesos volados. Expediente cerrado, caso resuelto, te vas a casa y
+los sesos volados o, en su caso, ahorcados con el cinturón. Expediente cerrado, caso resuelto, te vas a casa y
 te echas la siesta. Pero vamos, que en las series es lo primero que
 miran, Ángulo, altura, este es culpable, ese no. 
 
@@ -315,7 +315,7 @@ dijo, mirando a hipster de nuevo. Este miró al otro, como si pidiera
 permiso. El otro no dijo nada, pero se echó mano al bolsillo, sacó un
 móvil y miró la hora. 
 
-—Te invito a uno -, le dijo el hipster.
+—Te invito -, le dijo el hipster.
 
 —Oye, ¿tú qué te has creído? - le contestó Tina, frunciendo los
 labios. 
@@ -362,7 +362,9 @@ Café para dos
 Por un momento, Roble había creído que la chica iba a descubrir la
 situación antes de lo conveniente, es decir, antes de que pudieran sacarle cierta información sobre qué había pasado la noche anterior. Y antes de que, sabiendo lo ocurrido, tuvieran
 hacer de consejeros, que tendría que ser él porque Ciri era un inútil
-para prácticamente todo. Además, si ella había tenido algo que ver con ello, trataría de sacarle información sobre qué sabían, de donde se filtraría lo que ella sabía. Había un tercer
+para prácticamente todo. Además, si ella había tenido algo que ver con
+ello, trataría de interrogarla sobre qué sabían, de donde se filtraría
+lo que ella sabía. Había un tercer 
 además, que era la posibilidad de, eventualmente y con un poco de
 suerte, tirársela, lo que habría sido bastante improbable en caso de
 que la presencia de Roble estuviera asociada, desde el principio, con una
@@ -402,7 +404,7 @@ carteles de “Se alquila”, “Se vende”, “Por propietario“, “Por enti
 bancaria“, algunos torcidos y adheridos sólo por una de sus esquinas, persianas
 echadas, escombros de burbuja.
 
-En el bar, colgadas en las paredes, bufandas del Granada, que andaba peleándose con denuedo
+En el bar, colgadas en las paredes, bufandas del Granada Club de Fútbol, que andaba peleándose con denuedo
 para alcanzar  los puestos
 de descenso de segunda de nuevo; parejas de jubilados, jubilados sin pareja y algún grupo de
 amas y amos de casa de casa que compartían el café post-dejada de los niños en el
@@ -536,16 +538,16 @@ Fiambres y bocadillos
 ---
 
 Ya se había escaqueado el Roble de las narices, pensó Ciriaco. Miró
-alrededor, a los de la furgona del Anatómico fumando apoyados en la
-puerta del conductor, al cachas recién salido de la academia que lucía
+en derredor, a los de la furgona del Anatómico fumando apoyados en la
+puerta del conductor, al agente cachas recién salido de la academia que lucía
 músculos y tatuaje a pesar del frío, de pie y de brazos cruzados en la
-entrada al bloque, el coche del juzgado un poco más allá de donde se
+entrada al bloque, al coche del juzgado un poco más allá de donde se
 acababa de bajar la jueza, bajita, rubia con un traje de chaqueta y el
-pelo corto, no la conocía. Sería nueva, o sustituta o algo. Y Roble
+pelo corto. No la conocía. Sería nueva, o sustituta o algo. Y Roble
 alejándose y la compañera del piso acercándose con lentitud, como no
 queriendo creer que aquello tenía que ver, de alguna forma, con ella,
 cuando no vivía nadie más en el bloque y casi en cincuenta metros a la
-redonda. 
+redonda, no quedaba más remedio. 
 
 Con un poco de suerte podía entretenerla y retrasar el momento
 histeria hasta que llegara... alguien. Se fue acercando a ella, con la
@@ -800,17 +802,18 @@ eventualmente, se fue.
  
 Tina no estaba tampoco en condiciones de responder a muchas
 preguntas. Ciriaco le pidió que le hiciera una lista de las personas
-que habían asistido a la fiesta, que tratara de recordar cuando había
+que habían asistido a la fiesta más adelante, pero por el momento que tratara de recordar cuando había
 visto a Demelza por última vez. Dejó la pregunta sobre drogas y
-cualquier otra actividad ilegal para más adelante. Total, acabaría
-saliendo. Esas cosas siempre salían.
+cualquier otra actividad ilegal de la difunta para más adelante. Total, acabaría
+saliendo. Esas cosas siempre salían. Tina le contestó entre hipidos,
+había dejado de verla a partir de las una o las dos de la mañana. 
 
 —¿Había alguien extraño en la fiesta? - le preguntó, finalmente. Tina
 dejó de secarse los ojos y lo miró.
 
 —A partir de cierta hora, *todos* éramos extraños.
 
-Se la pasó, como había prometido, a Quique. Móvil en mano, éste le
+No tenía mucho más que preguntarle, por lo pronto. Se la pasó, como había prometido, a Quique. Móvil en mano, éste le
 preguntó:
 
 —¿Cómo se siente por la muerte de su compañera de piso?
@@ -823,6 +826,8 @@ tópicos que contenían. Sin embargo, la respuesta fue
 
 Con casi treinta años de policía, Ciriaco pensó que la condición
 humana nunca dejaría de sorprenderle.
+
+*Revisar* 
 
 ## Identidad
 
