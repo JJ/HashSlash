@@ -12,8 +12,20 @@ Si quieres ir leyendo,
  
 [![Build Status](https://travis-ci.org/JJ/HashSlash.png)](https://travis-ci.org/JJ/HashSlash)
 
-La novela se irá publicando en [Amazon](http://amazon.es) por
-entregas. Poquito a poco. 
+Publicación
+---
+
+La primera parte de la novela
+[la puedes comprar en Amazon](https://www.amazon.es/dp/B00IBIYHC0?tag=atalaya-21&camp=3634&creative=24822&linkCode=as4&creativeASIN=B00IBIYHC0&adid=1QPHCEY5JGN96X9AM0MN&). Esta
+publicación va cambiando con las correcciones y adiciones, pero no el
+final, a partir del cual comenzará el libro segundo. 
+
+¿Quieres seguir la escritura?
+---
+
+Puedes hacerlo en
+[la cuenta de Twitter `@hshslsh`](http://twitter.com/hshslsh). Como es
+natural, @hashslash estaba ya pillado. 
  
  Esta es una rama, "Muerta", que usa diferentes puntos de vista y en
  la cual el personaje es la supuesta víctima, no el supuesto
