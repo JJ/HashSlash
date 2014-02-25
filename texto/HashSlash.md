@@ -972,10 +972,8 @@ caiga.
 Todo por la mierda de la fiesta. “¿Cómo voy a lanzar un producto
 nuevo, si no?“ Toma producto nuevo. Ahí lo tienes. 
 
-El alivio que sentí al darme cuenta de que no estaban por ahí por
+El alivio que sentí al darme cuenta de que no estaban  ahí por
 Tina, sino por mi asesinato, fue considerable.
-
-*Sigue por aquí*
 
 ## Los muertos no hablan, los vivos sí.
 
@@ -1189,6 +1187,8 @@ el viaje hacia su casa, acompañando en su salida a Puri y al secretario.
 Iba por la mitad de la cuesta cuando su pulsera vibró y en ella
 apareció un mensaje informándole de que se había encontrado una conexión
 entre las dos muertas. La real y la putativa. 
+
+
 
 ## Interludios y preludios
 
