@@ -989,9 +989,8 @@ caiga.
 Todo por la mierda de la fiesta. “¿Cómo voy a lanzar un producto
 nuevo, si no?“ Toma producto nuevo. Ahí lo tienes. Producto, vida y hasta traje nuevo. De color naranja, que es el nuevo negro. 
 
-El alivio que sentí al darme cuenta de que no estaban por ahí por
+El alivio que sentí al darme cuenta de que no estaban  ahí por
 Tina, sino por mi asesinato, fue considerable.
-
 
 ## Los muertos no hablan, los vivos sí.
 
