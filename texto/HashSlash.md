@@ -1314,25 +1314,43 @@ hacerlo. Ni de cometer errores gramaticales. Y faltas de ortografía.
 
 Realmente, era para matarla.
 
-## La página en blanco
+## La felicidad de Kevin
 
-Cualquier escritor te hablará de ese momento angustioso en el que
-tienes que enfrentarte a una página y las teclas repelen las yemas de
-tus dedos como tu cerebro repele las ideas.
+Kevin estaba feliz. Era feliz, en realidad. No unas horas antes. Y, en
+realidad, ahora tampoco. Íbamos a celebrar nuestro reencuentro con la
+vida con una sesión de sexo salvaje, es decir, él a su bola o a sus
+bolas mientras yo me ocupaba de lo mío y él me miraba. Pero,
+aparentemente, los relajantes que le habían dado todavía seguían
+haciéndole efecto lo que hacía que sus automagreos, o la visión de una
+diosa mecánica como yo proporcionándose placer, no funcionaran. Lo que
+lo hizo ligeramente infeliz. No mucho. Dedujo lógicamente que ya que
+las sustancias químicas en su cuerpo le pedían dormir, tendría que
+hacerlo y eso fue lo que hizo.
 
-Comenzar. Quizás no es problema de repulsión cerebral de ideas. Antes
-al contrario, las ideas se agolpan, se aglomeran, se enredan unas con
-otras, se pelean, pero, en una victoria pírrica, todas acaban vencidas
-y ninguna te arroja el artículo que seguido de un sustantivo y más
-adelante un verbo acabarían, de por sí, constituyendo una frase.
+Lo que me dejó a mi bastante despierta y, por decirlo así, a falta de
+una conclusión satisfactoria que tuve que llevar a cabo en la
+ducha. Lo que me dio tiempo a pensar.
 
-Peor es recomenzar. Cuando, una vez terminado el trabajo, el editor, los
-primeros lectores, el querido y despreciado público, lo arrojan a la
-basura y hay que empezar de nuevo.
+Pensar en Ainhoa. En por qué la habían matado. Yo sabía que yo no lo
+había matado. Ni me di cuenta de que estaba en la fiesta. Y tenía
+coartada. Coartada que no quería que Kevin supiera. O supiera a nivel
+consciente porque, a algún nivel, Kevin debía saberlo. Pero alguien la
+había matado en mi propio dormitorio, y eso no mola nada. Y no hay que
+descartar la posibilidad de que quien fuera quisiera, en realidad,
+matarme a mi. 
 
-La chica no ha muerto. No la he matado, corrijo. Volvemos al principio. 
+Así que había que encontrar al asesino. Primero, porque no podía
+quedar impune lo que hizo. Optimus Prime no lo habría
+permitido. Segundo, para evitar que asesinara a alguien más, por
+ejemplo a mi misma.
 
-Y ahora es algo personal.
+Mejor borra eso. Si en realidad quería matarme a mi, buscarlo es
+posible que no sea una gran idea. Por Optimus Prime, entonces. Y
+punto. 
+
+¿Cómo se encuentra un asesino? ¿Cómo se hace cualquier cosa? Con ayuda
+de un profesional. Y el policía bien vestido lo era. Y además,
+guapo. En realidad, el mal vestido parecía mucho más profesional. Pero.
 
 ## En otro mundo
 
