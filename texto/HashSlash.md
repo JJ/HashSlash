@@ -1223,7 +1223,7 @@ O sea, que una persona que no me mola nada aparece muerta en mi cuarto
 con un cuchillo de mi cocina. Eso tampoco mola nada. Pero me alegro
 por Tina, que parece que, por lo pronto, no va a ir a la cárcel. Eso
 sí mola. Bueno, tampoco mola nada que haya muerto Ainhoa. Apesta. Pero
-apesta un poquito. 
+apesta un poquito sólo. 
 
 ## Interludios y preludios
 
@@ -1372,6 +1372,32 @@ tenían razón en lo segundo que pensaban. Con los años que tenía y
 todavía no sabía cómo funcionaba el mundo.
 
 Y, a estas alturas, tampoco tenía ganas de ponerse a averiguarlo. 
+
+## Buscando la ayuda de profesionales
+
+Hay profesionales-profesionales. También aficionados-profesionales. Y
+luego está Kevin. 
+
+En serio, Kevin es un amor. Siempre queriendo complacerme. También
+complacerse. O complacerme para complacerse. Metacomplacerse. Lo que
+sea. El caso es que se puede hablar con él. No reacciona mucho. En
+realidad, no para de mirar a su móvil y hacer cosas con él. Pero
+escucha. Cuando le conté lo de Tina, sonrió y me dijo que ya lo
+sabía. Es un aficionado profesional en saber cosas. Y en saber cómo
+saberlas.
+
+Y también estaba ligeramente infeliz por su problema de megahercios
+anterior. Así lo llamó él, problema de megahercios. Que no tenía
+suficientes revoluciones. Se levantó de la siesta en plan turbo, pero
+le conté el problema y él simplemente contestó “No hay problema“. Lo
+que me hacía suponer que en un momento determinado, si pudiera haber
+algo que contribuyera a averiguar quién la había querido matar a ella
+y, por tanto, a exculparme, me lo contaría.
+
+Pero yo soy siempre de poner huevos en diferentes cestas. En fundas
+cromadas, pero también en diferentes cestas. Y ya sabía, como sé todo
+lo que Tina hace o ve o activa desde el móvil, que Tina había quedado
+con el policía maqueado. Así que allí iríamos esta misma noche. 
 
 ## Citas
 
