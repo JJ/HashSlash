@@ -1208,11 +1208,23 @@ entre las dos muertas. La real y la putativa.
 
 ## La pesada de Ainhoa
 
-Hay cosas en la vida de una escritora que no molan nada. Una es que escribas un libro y no le guste a nadie. Otra, que te quedes sin ideas. La tercera, tener fans que estén dándote por saco continuamente. La cuarta, que te copien. 
+Hay cosas en la vida de una escritora que no molan nada. Una es que
+escribas un libro y no le guste a nadie. Otra, que te quedes sin
+ideas. La tercera, tener fans que estén dándote por saco
+continuamente. La cuarta, que te copien.  
 
-No, borra eso. Da igual que te copien. Quien copia es un perdedor que demuestra que es incapaz de soportar la primera cosa que no mola nada y que está sufriendo la segunda cosa que no mola nada. Ainhoa era de esas. Pero, además, era, para mi, la tercera cosa que no mola nada. Y a la vez, la cuarta. La primera y la segunda no me han ocurrido nunca, gracias a Optimus Prime.
+No, borra eso. Da igual que te copien. Quien copia es un perdedor que
+demuestra que es incapaz de soportar la primera cosa que no mola nada
+y que está sufriendo la segunda cosa que no mola nada. Ainhoa era de
+esas. Pero, además, era, para mi, la tercera cosa que no mola nada. Y
+a la vez, la cuarta. La primera y la segunda no me han ocurrido nunca,
+gracias a Optimus Prime. 
 
-O sea, que una persona que no me mola nada aparece muerta en mi cuarto con un cuchillo de mi cocina. Eso tampoco mola nada. Pero me alegro por Tina, que parece que, por lo pronto, no va a ir a la cárcel. Eso sí mola. 
+O sea, que una persona que no me mola nada aparece muerta en mi cuarto
+con un cuchillo de mi cocina. Eso tampoco mola nada. Pero me alegro
+por Tina, que parece que, por lo pronto, no va a ir a la cárcel. Eso
+sí mola. Bueno, tampoco mola nada que haya muerto Ainhoa. Apesta. Pero
+apesta un poquito. 
 
 ## Interludios y preludios
 
