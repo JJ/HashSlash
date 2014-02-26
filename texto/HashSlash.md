@@ -1425,8 +1425,8 @@ Dio la vuelta para salir y se encontró con Tina, sonriendo.
 Roble abrió la boca, pero no dijo nada. Se le acercó y le dio un beso
 en una mejilla. 
 
-—Estaba en el cuarto de baño. - Le señaló una mesa vacía en la que
-había un vaso relleno de algo rosado, casi vacío. A su alrededor,
+—Estaba en el cuarto de baño - le dijo Tina, señalando una mesa vacía en la que
+había un vaso relleno de algo rosado, casi vacío. Alrededor de la copa,
 escombros de mesa de bar: migas de pan, gotas de grasa, bolitas de servilletas,
 palillos de dientes partidos. La escena del crimen tras el asesinato
 de una tapa. 
@@ -1447,29 +1447,28 @@ despierto durante unos diez minutos recordando el material que tenía
 que preparar para las clases del día siguiente en la academia. 
 
 Luego estuvo despierto otros diez minutos esperando que su mujer
-dejara de roncar. Al final consiguió que cambiara de postura y dejó de
-hacerlo. Se volvió a dormir.
+dejara de roncar. Al final consiguió que cambiara de postura y dejara de
+hacerlo. Ciriaco estuvo un momento tratando de recordar un artículo del código Penal, pero se volvió a dormir sin conseguirlo. 
 
 ## Camino de la cama
 
 Roble creía en escuchar.
 
-Quizás no, pensó Roble. Creía en oír. Primero, en oír. 
+Quizás no, pensó Roble. Creía en oír. Antes que en escuchar, en oír. 
 
 Quizás tampoco. Creía en la presencia física mientras otra persona
 hablaba con un cierto grado de atención prestado para insertar frases,
 gestos y palabras clave que encaminaran a la persona escuchada a donde
 él quería que fuera. Su cama. O la de ella. 
 
-Por el camino, pescaba alguna idea. Ella estudiaba algo relacionado
-con la química. Y con los cerdos. Dijo en algún momento algo de dormir a los cerdos, pero Roble no estaba seguro de que no lo hubiera hecho en sentido figurado. O quería estudiarlo. O trabajaba en algo relacionado
-con la química, aunque cuando apuntó a esto último en una frase
+Por el camino, su mente iba pescando alguna idea. Ella estudiaba algo relacionado
+con la química. Y con los cerdos. Porque dijo en algún momento algo de dormir a los cerdos, pero Roble no estaba seguro de que no lo hubiera hecho en sentido figurado. O como un deseo. O trabajaba en algo relacionado
+con la química, aunque cuando apuntó esto último en una frase
 pareció arrepentirse de decirlo rápidamente. O quería escribir algo
 relacionado con ello. Echó de menos no tener en ese momento las gafas de Google; tendría que mirar más adelante sus perfiles en LinkedIn a ver qué hacía exactamente. 
 
-Aparte del fin último de la conversación, también le relajaba
-escuchar. Por eso creía en escuchar, porque no tenía que concentrarse
-en contestar algo ingenioso y, a la vez, halagador o en elaborar
+Aparte de que escuchar le acercaba a alcanzar el fin último por el que formaba parte de esta conversación, también le relajaba. Por eso creía en hacerlo, porque no tenía que concentrarse
+en contestar algo ingenioso y, a la vez, halagador. Ni esforzarse en elaborar
 historias de seducción. Había mujeres que se dejaban seducir por la
 palabra, por los gestos. Pero en muchas, la primera y por tanto única
 impresión era la que contaba. La conversación era, por tanto, sólo un
