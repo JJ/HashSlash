@@ -1507,7 +1507,7 @@ al olor y de ahí a la textura a la vista, a los cinco sentidos...
 Y de ahí a escribir historias con los Transformers y Mazinger Z y
 Afrodita A y todos ellos a la vez, en una orgía metálica y seguramente
 muy ruidosa, había un paso. El problema es que gustó. Recibí *favs* y
-seguidores por docenas. Y eso me convención que devía intentar mi
+seguidores por docenas. Y eso me convenció de que debía intentar mi
 propio camino, libre de las ataduras del canon de unas y otras
 historias. Así nació el mecaporno y su reina. Yo. Aplausos, aplausos,
 gracias.
@@ -1663,6 +1663,32 @@ de Demelza y la propia Tina. Al lado de Demelza, Kevin levantó
 brevemente la cabeza de su móvil, sin llegar a saludar y sin llegar realmente a despegar los ojos de él.
 
 —¡Hola! - dijo Demelza. 
+
+## Interrogando a los interrogadores
+
+Recogí a Kevin poco después de recibir en mi móvil los mensajes que
+Tina había intercambiado con el poli maqueado. Me había ido a un café,
+cerca de casa de Kevin, un bar donde nadie prestaba atención a nadie
+ni a nada más que a una pantalla. Ni el camarero. Pero tenía WiFi
+gratis, era acogedora y discreta y podía sentarme a escribir sin que
+nadie intentara, por esa razón o por la simple presencia física, ligar
+conmigo.
+
+No es que me importe que intenten ligar conmigo. Pero no cuando estoy
+escribiendo. Revivir las sensaciones, buscar las palabras para
+expresarlas, excitarme a veces... prefiero estar sola. O sola en
+compañía. 
+
+Creo que todo el mundo viene a este sitio a lo mismo, aunque no estoy
+segura ni siquiera de que todos tenga la misma definición de *lo mismo*. De hecho, no
+estoy segura de que se trate de una cafetería. Es un sitio de gente
+que prefiere estar sola y donde a veces, con un poco de suerte, te
+ponen un café. Pero no te dicen nada si tú te traes tu propio café, y
+yo lo hago. El termo, su olor metálico y a la vez cálido, me ayuda a
+rememorar y a imaginar. Sí, es un símbolo fálico. Pero también lleva
+café. Y si lo acaricio a nadie le importa. Sólo en este café, claro.
+
+
 
 ## Interrogatorios a varias bandas
 
