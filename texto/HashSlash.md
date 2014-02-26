@@ -1469,7 +1469,7 @@ ella algo si se lo permitía. Le mandó un mensaje de vuelta.
 ## Mientras tanto, en un lugar de la periferia granadina
 
 Ciriaco llegó a su casa e hizo inventario de los miembros de su
-familia, visitándolos
+familia, visitándo los lugares donde se encontraban
 uno por uno. En el salón, su
 mujer leía un bestseller. Su hijo mayor, en su cuarto, escuchaba
 música y hablaba por el móvil. Su hijo pequeño jugaba con la consola
@@ -1479,7 +1479,7 @@ secos, cariños unilaterales.
 Se fue a la cocina, se hizo un bocadillo de jamón y se lo tomó con una
 Alhambra. Cuando terminó, tiró la cerveza que le sobraba por el fregadero, puso el cubierto en el lavavajillas y se fue a
 su cuarto. Se puso la serie policíaca que estuvieran echando en ese
-momento, una serie coreana titulada “Mala gente“. Se durmió antes del
+momento, una serie coreana titulada “Mala gente“. Se durmió antes de que apareciera en el episodio el
 informe del forense.
 
 ## Escribir es como soñar
@@ -1802,11 +1802,11 @@ si conoces a alguien...
 joder, es como, para qué, si aquí lo tengo todo, tengo mi... bueno,
 mis cosas, ya sabes...
 
-—A alguien que quiera pagar... - aclaró Demelza. 
+—A alguien que quiera pagar, quería decir... - aclaró Demelza. 
 
 Tina sólo se rió, pero inmediatamente empezó a hablarle a Roble de
 algo llamado nanomateriales, lo que no tardó en provocar bostezos a
-Demelza que se propagaron inmediatamente a Kevin, en una frecuencia creciente, como el parto inminente de una partida. Se levantaron para irse unos minutos  
+Demelza que se propagaron inmediatamente a Kevin, en una frecuencia creciente, como el parto inminente de una marcha. Se levantaron para irse unos minutos  
  más tarde, y en el momento que Demelza le dio dos besos a Roble le dijo,
 cuando sus labios estaban todavía cerca de su oreja:
 
