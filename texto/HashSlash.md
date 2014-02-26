@@ -1360,11 +1360,11 @@ ella algo si se lo permitía. Le mandó un mensaje de vuelta.
 ## Mientras tanto, en un lugar de la periferia granadina
 
 Ciriaco llegó a su casa e hizo inventario de los miembros de su
-familia, visitándo los lugares donde se encontraban
+familia, visitando las habitaciones donde se encontraban
 uno por uno. En el salón, su
 mujer leía un bestseller. Su hijo mayor, en su cuarto, escuchaba
-música y hablaba por el móvil. Su hijo pequeño jugaba con la consola
-portátil. Cómo ha ido el día, bien, bien. sonrisas con arrugas, besos
+música y hablaba por el móvil. En el cuarto de al lado, Su hijo pequeño jugaba con la consola
+portátil. Cómo ha ido el día, bien, bien, sonrisas con arrugas, besos
 secos, cariños unilaterales. 
 
 Se fue a la cocina, se hizo un bocadillo de jamón y se lo tomó con una
