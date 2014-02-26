@@ -1482,23 +1482,22 @@ su cuarto. Se puso la serie policíaca que estuvieran echando en ese
 momento, una serie coreana titulada “Mala gente“. Se durmió antes del
 informe del forense.
 
-## Escribir es sufrir
+## Escribir es como soñar
 
-Sufra usted primero, le dijo algún famoso escritor ruso a un no tan
-famoso escritor en ciernes. Cretino.
+No tengo mucha imaginación, ya os lo he dicho. Por eso, para mi
+escribir es como soñar. Es decir, reformular lo que te ha ocurrido
+durante el día dándole una vuelta o dos. 
 
-Pero cierto. 
+Hoy el amante mecánico de la novela que estoy escribiendo, que se
+llamará “Pasión de altas prestaciones“, tendrá un problema con su
+firmware que habrá que actualizar. Pero, mientras se actualiza el
+sistema operativo, *ella* no puede quedarse quieta, ¿verdad? 
 
-Sufrir para volver a encontrar el tema, seguirlo, perseguirlo y,
-finalmente, atenazarlo y terminarlo. Pero el sufrimiento se exacerba
-si el tema te elude. Mucho más si se ha ido a Lituania. Allí es donde
-se ha ido la chica. Eso es lo que dice en su perfil en Facebook y sus
-tweets están geolocalizados por Vilna y alrededores. Cualquier día la
-vemos aparecer por Minsk. ¿Cómo puede haber llegado allí tan
-rápidamente? 
-
-Escribe, conocerás mundo. No lo dijo nadie, pero podía haberlo dicho
-Paul Theroux.
+No sé por qué escribo sobre esto, la verdad. Quizás por mis primeras
+experiencias amorosas. Quizás porque leí “Los robots del amanecer“ a
+una edad demasiado temprana. Sí, donde el robot Jander se cepilla a
+Gladia antes de que lo desconecten. Isaac Asimov es el pionero del
+mecaporno, ¿de qué os extrañáis?
 
 ## Nuboso, con posibilidad de polvo
 
@@ -1648,33 +1647,6 @@ brevemente la cabeza de su móvil, sin llegar a saludar y sin llegar realmente a
 
 —¡Hola! - dijo Demelza. 
 
-## Escribir es sufrir, la secuela
-
-Lituania está jodidamente lejos. Espera, eso es poco
-literario. Lituania está la hostia de lejos. 
-
-Tampoco es literario, pero es la pura verdad. Lo peor de los sitios
-que están lejos no es que lo estén. Sino que para llegar a ellos hay
-que pasar forzosamente por alguna etapa en la que hay una línea de
-bajo coste. O pagar varios miles de euros.
-
-Sin contrato editorial y con prisa. Vámonos a Lituania.
-
-Aunque los grandes escritores también lo son porque tienen grandes
-escritores a su
-sombra. [Escritores fantasma](http://es.wikipedia.org/wiki/Escritor_fantasma),
-los llaman. Ya los usaba para escribir las novelas que se publicaban
-bajo su nombre. ¿Por qué no usarlo para esto, esta obra literaria
-escrita sobre el papel en blanco de la realidad y con sangre? Lituania
-y asesinos a sueldo, si es que prácticamente una idea llevaba a la
-otra. 
-
-Envió desde el móvil un mensaje a sus contactos en México y Filipinas
-pidiéndoles nombres, “para documentación“. A los pocos minutos tenía
-los teléfonos de un par de ellos en Lituania. Y otros dos en
-Birmania. Nunca se sabía cuando podía venir bien un asesino a sueldo
-en Birmania.
-
 ## Interrogatorios a varias bandas
 
 —¿Quién la ha matado, entonces? - preguntó Demelza, mirándolo a los ojos.
@@ -1797,44 +1769,6 @@ Demelza que se propagaron inmediatamente a Kevin, en una frecuencia creciente, c
 cuando sus labios estaban todavía cerca de su oreja:
 
 —Nos veremos pronto. 
-
-## Los trabajos y los días
-
-En realidad, no soy escritor durante todas mis horas de vigilia. Nadie
-lo es. “¿Quieres usted escribir? Viva usted primero“, le dijo un
-periclitado escritor ruso a alguien que no pasó a la historia ni como
-escritor ni como vividor. Pero yo sí he seguido ese consejo. Vivo
-antes, durante y después de escribir. Y en vez de escribir, de hecho. 
-
-Por eso, en vista de la batida en retirada de Demelza la muerta
-putativa y la necesidad de replantear esa trama, me vuelvo a Larache,
-que es donde vivo una parte de esa vida. Toda la que puedo, de hecho. 
-
-Porque los escritores, en realidad, son gente aburrida que sólo sabe
-escribir sobre la escritura. Sus personajes son escritores que tienen
-problemas de escritores y fornican con otros escritores. Y todo esto
-sucede porque no hay gente como yo que les dice sobre qué tienen que
-escribir, les dan tres o cuatro directrices, personajes, escenas, que
-ellos interpretan y muchas veces reinterpretan y vuelven a
-reinterpretar cuando no lo hacen suficientemente bien. 
-
-¿Qué pasa? ¿Está mal? ¿Es que Gaudí puso todos los ladrillos de la
-Sagrada Familia? ¿Norman Foster acristaló ese supositorio gigante de
-la City de Londres? 
-
-Ese es, precisamente, el error de los escritores, de casi todos
-ellos. Mi propio error al principio, cuando era joven, acababa de
-salir de la cárcel y pensaba que había que escribir desde las tripas y
-desde el corazón. Iluso. Hay que escribir desde el bolsillo. Y Gastón,
-Mauro, Yadiel, Yarianis, Brígida, Salvador, todos esos chicos y chicas
-que escriben lo que yo les digo y se editan y corrigen unos a otros
-hasta que yo coloco esa piedra angular, esa coma o esa frase que da el
-toque final a todo el edificio, no se engañan. Escriben porque yo les
-pago. Y yo les pago porque La Editorial me paga a mi.
-
-Pero sólo si hay contrato. Que no habrá hasta que haya esa muerte. Que
-me está resultando más difícil que las anteriores. Escribir es
-sufrir. 
 
 ## Sexo
 
