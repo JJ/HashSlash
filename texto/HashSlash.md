@@ -46,7 +46,7 @@ diferente de la que hacía al final de la carretera de la Sierra. En
 ninguno de los dos casos tenía más de una cifra significativa. 
 
 —Bueno, en realidad... -, dijo Roble, levantando la cara del móvil y
-poniendo una cara similar a esta :-) - ¿Qué cuchillo dices? 
+poniendo una cara similar a esta :-) - ¿Qué cuchillo? 
 
 —El de la muerta. - Hizo una pausa e intentó levantarse de nuevo,
 sin lograrlo. - Espera, ¿qué coño has puesto? Afú, qué tropa. - Roble aprovechó la pausa para dejar el móvil en su
@@ -1493,11 +1493,28 @@ llamará “Pasión de altas prestaciones“, tendrá un problema con su
 firmware que habrá que actualizar. Pero, mientras se actualiza el
 sistema operativo, *ella* no puede quedarse quieta, ¿verdad? 
 
-No sé por qué escribo sobre esto, la verdad. Quizás por mis primeras
+No sé por qué escogí este tema para escribir, la verdad. Quizás por mis primeras
 experiencias amorosas. Quizás porque leí “Los robots del amanecer“ a
-una edad demasiado temprana. Sí, donde el robot Jander se cepilla a
-Gladia antes de que lo desconecten. Isaac Asimov es el pionero del
-mecaporno, ¿de qué os extrañáis?
+una edad demasiado temprana. Sí, donde el Gladia se cepilla al
+androide Jander antes de que lo desconecten. Isaac Asimov es el pionero del
+mecaporno, ¿de qué os extrañáis? Allí aprendí la palabra *tumefacción*
+que nunca, nadie, debería usar para referirse a la erección. O quizás
+sea porque mi primer beso fue con un chico que usaba aparato en los
+dientes. El sabor metálico, desde entonces, ha estado asociado para mi
+a la excitación y al erotismo. De veras. Y del sabor al tacto y de ahí
+al olor y de ahí a la textura a la vista, a los cinco sentidos... 
+
+Y de ahí a escribir historias con los Transformers y Mazinger Z y
+Afrodita A y todos ellos a la vez, en una orgía metálica y seguramente
+muy ruidosa, había un paso. El problema es que gustó. Recibí *favs* y
+seguidores por docenas. Y eso me convención que devía intentar mi
+propio camino, libre de las ataduras del canon de unas y otras
+historias. Así nació el mecaporno y su reina. Yo. Aplausos, aplausos,
+gracias.
+
+Así que a escribir. Quizás debería usar hoy la palabra tumefacción. Por
+la ausencia de la misma. Que rima con frustración.
+
 
 ## Nuboso, con posibilidad de polvo
 
