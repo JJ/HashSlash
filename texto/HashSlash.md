@@ -99,8 +99,7 @@ dijo Roble, que seguía pegado al teléfono.- Normal.
 
 —¿Hay un app para eso? - Preguntó Ciriaco, curioso.
 
-—Hay un app para *todo* -, señaló al mueble que sostenía la televisión
-- [Byaaas](http://www.ikea.com/es/es/catalog/products/80227797/). -
+—Hay un app para *todo* -, señaló al mueble que sostenía la televisión - [Byaaas](http://www.ikea.com/es/es/catalog/products/80227797/). -
   Señaló a la mesa en la que Ciriaco había estado varias veces a punto
   de extender los pies -
   [Klingsbo](http://www.ikea.com/es/es/catalog/products/90128565/) -,
@@ -1375,34 +1374,32 @@ informe del forense.
 ## Nuboso, con posibilidad de polvo
 
 Roble se puso los auriculares para que el móvil le leyera al completo
-el informa del forense según bajaba la cuesta para encontrarse con
-Tina. Nada de tóxicos más allá de lo esperable tras una fiesta, nada
-de signos de violación, ni rastros de maltrato habitual excepto una
-fractura soldada tiempo atrás. No había restos de piel bajo las uñas,
+el informe inicial del forense a la vez que bajaba la cuesta en la cima de la cual se encontraba su casa para encontrarse con
+Tina. La muerte se había producido, efectivamente, por una sola puñalada asestada desde la espalda y que había interesado corazón y pulmones, produciendo la muerte en segundos. No había signos de violación, ni rastros de maltrato habitual excepto una
+fractura soldada tiempo atrás, que podía ser un accidente deportivo o de cualquier otro tipo. No había restos de piel bajo las uñas,
 saliva en ningún sitio. El asesino, o quizás la asesina, había
-llegado, la había apuñalado por la espalda sin que ella reaccionara y se había largado. O se
+llegado, la había apuñalado por la espalda sin que ella tuviera tiempo de reaccionar y se había largado. O se
 había quedado a verla desangrarse, lentamente, contemplando  cómo el charco
-de sangre se expandía hasta que el corazón dejaba de latir y ya dejaba
-de expandirse con cada latido, simplemente fluía mansamente fuera del
+de sangre se expandía hasta que el corazón dejaba de latir y el charco cesaba su expansión con cada latido, simplemente fluía mansamente fuera del
 cuerpo. 
 
 Nada de eso estaba en la autopsia, claro. Pero era una imagen que le
 gustaba insertar, con diferentes variaciones, en las fantasías de las
-víctimas que eran los protagonistas de sus novelas. 
+víctimas que eran los protagonistas de sus novelas, que terminaban la narración así, viéndose a sí mismos desde fuera del cuerpo, camino de la nada. De hecho, ya estaban en la nada, pero esa metáfora añadía un cierre a sus narraciones y no era cuestión de dejar que sus creencias materialistas le estropearan un buen final de novela.
 
-La autopsia decía que había sido una sola cuchillada la que había
+No había cortes en los brazos ni pinchazos en ninguna otra parte del cuerpo. Una sola cuchillada la que había
 causado la muerte. Lo que decía mucho de la calidad de los cuchillos
 del Ikea, aunque no era posible que lo incluyeran en su
 publicidad. ¿Qué nos decía todo esto del asesino?
 
 Roble tenía un app que perfilaba a los posibles sospechosos a partir
 de los datos conocidos del crimen. También había hecho
-[algún curso online sobre análisis de escena del crimen](http://www.strath.ac.uk/press/newsreleases/headline_746589_en.html). Pero
+[algún curso online sobre análisis de escena del crimen](http://www.strath.ac.uk/press/newsreleases/headline_746589_en.html). Buscó brevemente en sus recuerdos algún perfil que incluyera "personas que son capaces de matar con un solo golpe". Sus recuerdos le sirvieron de poco e inició una búsqueda en su *lifestream* que le daría el resultado en poco tiempo. Pero
 aquí se podía aplicar el sentido común. Que podía ser un ejercicio vano, porque el
 libro sobre el sentido común de los asesinos todavía no estaba
 escrito. Pero, ante la falta de experiencia de Roble en la
 investigación de asesinatos, era lo único a lo que podía recurrir. Así
-que decidió fijarse especialmente en el Erasmus esloveno, el colectivo
+que decidió que el Erasmus esloveno era quien encajaba más con ese perfil de asesino-de-una-sola-puñalada; el colectivo
 de las animadoras de discoteca y azafatas de congresos no se suele
 caracterizar por sus instintos asesinos. Y los eslovenos... bueno, son
 eslovenos. Tendría que entrevistarlo. Mañana,
@@ -1411,7 +1408,7 @@ claro.
 Llegaba ya al Jaraiz, atravesando calles vacías con ventanas cerradas,
 callejones que olían a humedad y a meados con carteles que, desde sus
 paredes, recibían pulsos de su móvil y excitaban a sus chips NFC, que
-le enviaban mensajes publicitarios que el veía aparecer, brevemente,
+le enviaban mensajes publicitarios que él veía aparecer, brevemente,
 en su pulsera. “Compra“. “Alquila“. “Comparte“. Entró en el Jaraiz, donde
 grupos animados de personas lenguaraces sostenían cañas y frágiles copas de vino en sus
 manos. Tina no estaba allí; giró a la izquierda desde la barra y entró
@@ -1797,8 +1794,6 @@ Demelza y la Demelza propiamente dicha. Fue inmediatamente a su móvil
 en la mesita de noche y empezó a actualizar todo lo que pudiera.
 
 —Nos veremos pronto. - oyó que decía según salía. 
-
-
 
 ## El camino hacia la policía
 
