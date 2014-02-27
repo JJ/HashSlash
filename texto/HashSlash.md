@@ -1996,6 +1996,39 @@ Cabezada, tenía que ser cabezada. No, lomo. ¿O lomo y cabezada?
 Código bla bla bla artículo bla bla bla caso bla bla bla sentencia bla
 bla bla.
 
+## La vida fácil
+
+Tina se había alquilado una suite en el Nazaríes. Por las buenas. Allí
+me fui después de Roble, que así se llamaba el policía. La
+nanoestación estaría en su lugar recogiendo información, pero yo no me
+enteraría de qué hasta que pasara por allí.
+
+Así que decidí irme a la universidad a encontrarme a mi misma, como en
+las pelis americanas. Además, estábamos a punto de entrar en la época
+de exámenes. 
+
+Automática. Me encantaba. Mientras montábamos sistemas de contros
+industrial, en mi mente montaba elaborados transformers cuyas
+transformaciones eran espectaculares especialmente en... bueno, no me
+voy a repetir, ya os lo imagináis, ¿no? Picaronas... Además, el tema
+de robótica era simplemente enorme. Mucha robótica industrial, pero
+también tenía sus posibilidades. Quizás en el siguiente libro.
+
+En las prácticas teníamos que usar una serie de procesos para
+monitorizar chismes diversos. Correas de transmisión. Detectores de
+cosas. Cosas. Había que reconfigurarlos, volver a lanzar el proceso,
+matando el proceso antes, claro.
+
+Pasaba algo. El proceso no moría. Daba las órdenes en el terminal,
+`kill 1111`, y no moría el maldito. Y vuelta a matarlo. Y el proceso
+seguía ahí, sin tomar los cambios. ¿Qué diablos pasaría?
+
+Pasaba que faltaba un uno, y listando los procesos del sistema me di cuenta. Estaba matando al proceso incorrecto. Un
+`kill 11111`y el maldito pereció. Para matar a un proceso, no hay más
+que saber buscarlo. 
+
+Un momento... 
+
 ## El vecino
 
 Las ventanas del cuarto de Roble estaban orientadas al este y desde
