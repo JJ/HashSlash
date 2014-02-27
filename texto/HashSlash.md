@@ -9,7 +9,7 @@
 
 —Tengo un cuchillo como ese -, dijo Ciriaco.
 
-—¿Como cuál? - le contestó Roble, sin dejar de teclear con los dos
+—¿Cuál? - le contestó Roble, sin dejar de teclear con los dos
 pulgares en su móvil.
 
 —Como, ya sabes -, hizo una pequeña pausa. Roble siguió tecleando.
@@ -29,19 +29,21 @@ encontraba sentado.
 
 —Ah. Vayamos a pollas-, volvió a sentarse Ciriaco, el mayor de los
 dos. Una vez hundido en el sillón, se cerró el abrigo sobre las
-rodillas. Eran las diez de la mañana de un día de enero, estaba
+rodillas. Eran cerca de las diez de la mañana de un día de enero, estaba
 nublado y la temperatura en el interior del piso era escasamente
 diferente de la que hacía al final de la carretera de la Sierra. En
 ninguno de los dos casos tenía más de una cifra significativa. 
 
 —Bueno, en realidad... -, dijo Roble, levantando la cara del móvil y
-poniendo una cara similar a esta :-) - ¿Qué cuchillo dices? 
+poniendo una expresión similar a esta :-) - ¿Qué cuchillo? 
 
 —El de la muerta. - Hizo una pausa e intentó levantarse de nuevo,
-sin lograrlo. - Espera, ¿qué coño has puesto? Afú, qué tropa. - Roble aprovechó la pausa para dejar el móvil en su
+sin lograrlo. - Espera, ¿qué coño has puesto? Afú, qué tropa.  
+
+Roble aprovechó la pausa para dejar el móvil en su
 regazo y hacer copa con las manos para calentárselas. 
 
-—Nada,- sólo un poco de #escenadelcrimen en Instagram.  Ya tenía más
+—Nada -, dijo Roble, mientras pensaba "sólo un poco de #escenadelcrimen en Instagram".  Ya tenía más
 de veinte *likes*. Ciriaco hizo un esfuerzo para intentar ver qué era lo que
 había en la pantalla. Se distinguían borrones rojos y figuras
 geométricas de color naranja. Poco más. Ninguna cara, nada
@@ -55,13 +57,13 @@ crimen. No encontró nada. El propio Roble, que vaya tela marinera de
 nombre, Roble, había estado en la academia hacía menos. Así que él
 sabría. 
 
-Roble vio que llevaba veinticinco ya. Y en Twitter casi los mismos. 
+En ese pequeño intervalo de tiempo, dedos de todo el mundo habían hecho *me gusta*; Roble vio que llevaba veinticinco ya. Y en Twitter casi los mismos, con el doble de RTs. 
 
-—Lo que te decía, el cuchillo. De Ikea. - dijo Ciriaco, haciendo que el ritmo de tecleo
+—Lo que te decía, el cuchillo. De Ikea. - retomó el tema Ciriaco, haciendo que el ritmo de tecleo
 de Roble variara.
 
 —[Gynnsam](http://www.ikea.com/es/es/catalog/products/50134950/)-,
-dijo Roble, mostrándole de nuevo la pantalla del móvil a
+dijo Roble, esforzándose en hacer una n lo suficientemente larga como para que pareciera el doble, mostrándole de nuevo la pantalla del móvil a
 Ciriaco. Ciriaco lo cogió y se alzó las gafas, entornando a la vez un
 poco los ojos.
 
@@ -84,22 +86,25 @@ alguien que quería comprar no sé qué.
 Roble eludió reaccionar a la conversión de su nombre singular en apellido plural para buscar el
 mensaje del que hablaba. Efectivamente, un blog americano de crímenes
 reales le compraba las fotos. Ahora no le quedaría otro remedio que
-acercarse a la chica.
+acercarse a la chica. O que Ciriaco lo siguiera haciendo.
 
-—Ah, sí. Mis novelas -, le dijo a Ciriaco. 
+—Sí. Novelas -, le dijo a Ciriaco. 
 
 —Pues decía no sé qué de fotos. Joder, Robles, que la policía no es
 tonta -, dijo, riéndose de su propia gracia. - Tú verás lo que haces,
-pero si te cae un paquete a mi no me busques. 
+pero si te cae un paquete a mi no me líes. 
 
 Roble seguía manipulando el teléfono.
 
-—El app de Ikea. No funciona. -,
+—El app de Ikea. No funciona -,
 dijo Roble, que seguía pegado al teléfono.- Normal. 
+
+Normal que no funcionara cuando la prístina forma de un cuchillo diseñado por ingenieros industriales suecos estaba cubierto por todo tipo de sustancias orgánicas. 
 
 —¿Hay un app para eso? - Preguntó Ciriaco, curioso.
 
-—Hay un app para *todo* -, señaló al mueble que sostenía la televisión - [Byaaas](http://www.ikea.com/es/es/catalog/products/80227797/). -
+—Hay apps para *todo* -, señaló al mueble que sostenía la televisión
+- [Byaaas](http://www.ikea.com/es/es/catalog/products/80227797/). -
   Señaló a la mesa en la que Ciriaco había estado varias veces a punto
   de extender los pies -
   [Klingsbo](http://www.ikea.com/es/es/catalog/products/90128565/) -,
@@ -110,7 +115,7 @@ dijo Roble, que seguía pegado al teléfono.- Normal.
   y él seguía tecleando. - No hay app - dijo aaahhh - para eso,
   ¿verdad? 
   
-  Ciriaco se rió de su propia gracia. 
+  Ciriaco se rió de su propia gracia. Roble volvió al móvil, que acababa de emitir el tono que indicaba, de nuevo, que había llegado un mensaje. 
   
  — Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Ciriaco. 
  
@@ -131,10 +136,10 @@ habitación donde se encontraba el cadáver. Ciriaco le dio una palmada
 en la espalda, lo que casi hizo que se le volviera a salir el vómito. 
 
 —La compañera de piso -, dijo Roble. Seguía durmiendo. Dos chicas en
-un piso de tres dormitorios, que podían permitirse porque estaba lejos
+un piso de tres dormitorios, que podían permitirse, imaginaba Roble, porque estaba lejos
 de cualquier facultad y prácticamente de todo. Aún así, había vislumbrado en las fotos mobiliario que estaba muy por encima de los desechos y muebles montables que había en la zona común. 
 
-—Ahí se puede quedar. Yo paso de despertarla -, dijo Ciriaco. ¿Para darle el mal rato y que le dé un jamacuco?? Yo paso de consolar a niñatas. Al menos, de
+—Ahí se puede quedar. Yo paso de despertarla -, dijo Ciriaco.- ¿Para darle el mal rato y que le dé un jamacuco? Yo paso de consolar a niñatas. Al menos, de
 consolarlas así - le dio un codazo al joven Roble, que le
 volvió a traer la náusea a la garganta - Bastante hemos tenido con el
 novio. Menudo apollardao.
@@ -155,7 +160,7 @@ tal Kevin. Al menos a estas alturas de la investigación.
 
 —¿Inocente? - preguntó Roble. 
 
-—Inocente lo es de por sí. Pero también puede ser, digo yo, que sea un mosquito muerto de los que las mata callando. Dicho esto como figurativamente hablando, vamos, porque el tío bien que chillaba. Vamos, que no tengo ni puta idea, Roble. Pero me extrañaría. Cuando salga del
+—Inocente lo es de por sí. Pero también puede ser, digo yo, que sea un mosquito muerto de los que las mata callando. Dicho esto como figurativamente hablando, vamos, porque el tío bien que chillaba cuando llamó y mientras nos abría la puerta. Vamos, que no tengo ni puta idea, Roble. Pero me extrañaría. Cuando salga del
 Clínico le preguntaremos. Pero vamos, que no.   
 
 —¿Por? - preguntó Roble, de nuevo. 
