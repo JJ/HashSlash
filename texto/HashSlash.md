@@ -4,14 +4,14 @@
 
 ## Ese día
 
-El día siguiente a mi asesinato no comenzó demasiado bien. Primero: el
+El día de mi asesinato no comenzó demasiado bien. Primero: el
 dolor de cabeza. Segundo: las náuseas. Tercero: un tío en pelotas al
 que no conozco de nada, a mi lado.
 
 Mejor borra tercero. Qué pedazo de tío. Joder, lo que se ve debajo de
 las sábanas. Y todavía lleva la máscara puesta. 
 
-Mejor bórralo todo. El día podía haber empezado mejor. Pero una vez
+Mejor bórralo todo. El día podía haber empezado sin resaca. Pero una vez
 que desperté al tío empezando, como es natural, por aquello, tampoco
 empezó demasiado mal.  
 
@@ -1812,6 +1812,17 @@ Demelza que se propagaron inmediatamente a Kevin, en una frecuencia creciente, c
 cuando sus labios estaban todavía cerca de su oreja:
 
 —Nos veremos pronto. 
+
+## Las limitaciones de la comunicación
+
+En un bar, delante de Tina, no he conseguido obtener mucha
+información. Ella estaba claro por donde iba, mi Tina, tan evidente
+para quien la conoce. No creo que fuera ella, ¿no? 
+
+El poli se dejaba querer. De pocas palabras. Más complicado sacarle
+algo. Pero no hace falta hablar para saber por dónde va. Kevin me
+ayudará a entrar en su casa. No, borra eso. Kevin, esta vez, no tiene
+que enterarse de nada. Los amigos de Kevin.
 
 ## Sexo
 
