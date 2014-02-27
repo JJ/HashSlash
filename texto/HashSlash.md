@@ -1664,7 +1664,7 @@ brevemente la cabeza de su móvil, sin llegar a saludar y sin llegar realmente a
 
 —¡Hola! - dijo Demelza. 
 
-## Interrogando a los interrogadores
+## Interludio con café
 
 Recogí a Kevin poco después de recibir en mi móvil los mensajes que
 Tina había intercambiado con el poli maqueado. Me había ido a un café,
@@ -1687,7 +1687,6 @@ ponen un café. Pero no te dicen nada si tú te traes tu propio café, y
 yo lo hago. El termo, su olor metálico y a la vez cálido, me ayuda a
 rememorar y a imaginar. Sí, es un símbolo fálico. Pero también lleva
 café. Y si lo acaricio a nadie le importa. Sólo en este café, claro.
-
 
 
 ## Interrogatorios a varias bandas
@@ -1817,12 +1816,15 @@ cuando sus labios estaban todavía cerca de su oreja:
 
 En un bar, delante de Tina, no he conseguido obtener mucha
 información. Ella estaba claro por donde iba, mi Tina, tan evidente
-para quien la conoce. No creo que fuera ella, ¿no? 
+para quien la conoce. No creo que fuera ella, la asesina, ¿no? Tanta
+sangre fría, horas dormida con un cadáver a unos cuantos
+metros... Aunque cuando le da el bajón, no hay quien la despierte. ¿Le
+daría el bajón despues de? No creo. Espero que no. No, no creo. 
 
-El poli se dejaba querer. De pocas palabras. Más complicado sacarle
+Al otro lado del ring, el poli guapetón se dejaba querer. De pocas palabras. Más complicado sacarle
 algo. Pero no hace falta hablar para saber por dónde va. Kevin me
 ayudará a entrar en su casa. No, borra eso. Kevin, esta vez, no tiene
-que enterarse de nada. Los amigos de Kevin.
+que enterarse de nada. Los amigos de Kevin, esta vez. 
 
 ## Sexo
 
@@ -1939,6 +1941,32 @@ Demelza y la Demelza propiamente dicha. Fue inmediatamente a su móvil
 en la mesita de noche y empezó a actualizar todo lo que pudiera.
 
 —Nos veremos pronto. - oyó que decía según salía. 
+
+## Los porqués
+
+Hay muchos porqués. Ese el problema con los hombres, que nos
+subestiman. Piensan que tenemos una sola razón para hacer algo. No es
+así. A veces no tenemos ninguna y hacemos las cosas porque sí. Que
+también es un porqué. Pero a veces tenemos muchas.
+
+Pero yo tenía una muy gorda: colocar una nanoestación de escucha. Oye,
+son una maravilla. Coreanas. O copia coreana de una China. Tienen,
+para empezar, escuchas pasivas de todo: NFT, RFID, BlueTooth. Si hay
+algún dispositivo, captan su ID y la almacenan, con marca
+temporal. Luego, tienen más cosas: interceptan el tráfico WiFi que
+llega a sus alrededores, aunque sólo almacenan lo que le programes,
+porque no les cabe mucho en la memoria. Es el clásico Man in the
+Middle, pero en una mota que se puede esconder dentro de una pelusa de
+las que hay debajo de la cama y que no vale más que... bueno, sí vale
+cara. Quince días de ventas de libros. Pero merece la pena. Tina
+también tiene una en su cuarto, con micrófono incluido y cámara. Oye, que a veces mis propia experiencias
+no es suficiente inspiración y Tina es exhuberante, imaginativa y muy
+entusiasta. 
+
+El problema que tiene la estación es que no puede almacenar gran cosa
+y hay que pasar cerca para recuperar la información y borrarla. Pero
+no hay problema. Ya le he dicho que nos veremos pronto. Y yo cuando
+digo algo, lo cumplo. 
 
 ## El camino hacia la policía
 
