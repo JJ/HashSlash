@@ -2007,8 +2007,8 @@ Así que decidí irme a la universidad a encontrarme a mi misma, como en
 las pelis americanas. Además, estábamos a punto de entrar en la época
 de exámenes. 
 
-Automática. Me encantaba. Mientras montábamos sistemas de contros
-industrial, en mi mente montaba elaborados transformers cuyas
+Automática. Me encantaba. Mientras montábamos sistemas de control
+industrial, en mi mente montaba elaborados Transformers cuyas
 transformaciones eran espectaculares especialmente en... bueno, no me
 voy a repetir, ya os lo imagináis, ¿no? Picaronas... Además, el tema
 de robótica era simplemente enorme. Mucha robótica industrial, pero
