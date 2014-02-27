@@ -84,13 +84,12 @@ acercarse.
 que hacer arquitectura? Por cierto, que ha saltado un mensaje de
 alguien que quería comprar no sé qué. 
 
-Roble eludió la conversión de su nombre singular en apellido plural para buscar el
+Roble eludió reaccionar a la conversión de su nombre singular en apellido plural para buscar el
 mensaje del que hablaba. Efectivamente, un blog americano de crímenes
 reales le compraba las fotos. Ahora no le quedaría otro remedio que
 acercarse a la chica.
 
-—Ah, sí. Mis novelas -, le dijo a
-Ciriaco. 
+—Ah, sí. Mis novelas -, le dijo a Ciriaco. 
 
 —Pues decía no sé qué de fotos. Joder, Robles, que la policía no es
 tonta -, dijo, riéndose de su propia gracia. - Tú verás lo que haces,
@@ -1376,24 +1375,6 @@ su cuarto. Se puso la serie policíaca que estuvieran echando en ese
 momento, una serie coreana titulada “Mala gente“. Se durmió antes del
 informe del forense.
 
-## Escribir es sufrir
-
-Sufra usted primero, le dijo algún famoso escritor ruso a un no tan
-famoso escritor en ciernes. Cretino.
-
-Pero cierto. 
-
-Sufrir para volver a encontrar el tema, seguirlo, perseguirlo y,
-finalmente, atenazarlo y terminarlo. Pero el sufrimiento se exacerba
-si el tema te elude. Mucho más si se ha ido a Lituania. Allí es donde
-se ha ido la chica. Eso es lo que dice en su perfil en Facebook y sus
-tweets están geolocalizados por Vilna y alrededores. Cualquier día la
-vemos aparecer por Minsk. ¿Cómo puede haber llegado allí tan
-rápidamente? 
-
-Escribe, conocerás mundo. No lo dijo nadie, pero podía haberlo dicho
-Paul Theroux.
-
 ## Nuboso, con posibilidad de polvo
 
 Roble se puso los auriculares para que el móvil le leyera al completo
@@ -1542,32 +1523,6 @@ brevemente la cabeza de su móvil, sin llegar a saludar y sin llegar realmente a
 
 —¡Hola! - dijo Demelza. 
 
-## Escribir es sufrir, la secuela
-
-Lituania está jodidamente lejos. Espera, eso es poco
-literario. Lituania está la hostia de lejos. 
-
-Tampoco es literario, pero es la pura verdad. Lo peor de los sitios
-que están lejos no es que lo estén. Sino que para llegar a ellos hay
-que pasar forzosamente por alguna etapa en la que hay una línea de
-bajo coste. O pagar varios miles de euros.
-
-Sin contrato editorial y con prisa. Vámonos a Lituania.
-
-Aunque los grandes escritores también lo son porque tienen grandes
-escritores a su
-sombra. [Escritores fantasma](http://es.wikipedia.org/wiki/Escritor_fantasma),
-los llaman. Ya los usaba para escribir las novelas que se publicaban
-bajo su nombre. ¿Por qué no usarlo para esto, esta obra literaria
-escrita sobre el papel en blanco de la realidad y con sangre? Lituania
-y asesinos a sueldo, si es que prácticamente una idea llevaba a la
-otra. 
-
-Envió desde el móvil un mensaje a sus contactos en México y Filipinas
-pidiéndoles nombres, “para documentación“. A los pocos minutos tenía
-los teléfonos de un par de ellos en Lituania. Y otros dos en
-Birmania. Nunca se sabía cuando podía venir bien un asesino a sueldo
-en Birmania.
 
 ## Interrogatorios a varias bandas
 
@@ -1846,6 +1801,8 @@ en la mesita de noche y empezó a actualizar todo lo que pudiera.
 
 —Nos veremos pronto. - oyó que decía según salía. 
 
+
+
 ## El camino hacia la policía
 
 Ciriaco se aburría con la perorata de uno de sus tutorizados. Ley
@@ -1870,6 +1827,50 @@ Cabezada, tenía que ser cabezada. No, lomo. ¿O lomo y cabezada?
 
 Código bla bla bla artículo bla bla bla caso bla bla bla sentencia bla
 bla bla.
+
+
+## Escribir es sufrir
+
+Sufra usted primero, le dijo algún famoso escritor ruso a un no tan
+famoso escritor en ciernes. Cretino.
+
+Pero cierto. 
+
+Sufrir para volver a encontrar el tema, seguirlo, perseguirlo y,
+finalmente, atenazarlo y terminarlo. Pero el sufrimiento se exacerba
+si el tema te elude. Mucho más si se ha ido a Lituania. Allí es donde
+se ha ido la chica. Eso es lo que dice en su perfil en Facebook y sus
+tweets están geolocalizados por Vilna y alrededores. Cualquier día la
+vemos aparecer por Minsk. ¿Cómo puede haber llegado allí tan
+rápidamente? 
+
+Escribe, conocerás mundo. No lo dijo nadie, pero podía haberlo dicho
+Paul Theroux.
+
+Lituania está jodidamente lejos. Espera, eso es poco
+literario. Lituania está la hostia de lejos. 
+Tampoco es literario, pero es la pura verdad. Lo peor de los sitios
+que están lejos no es que lo estén. Sino que para llegar a ellos hay
+que pasar forzosamente por alguna etapa en la que hay una línea de
+bajo coste. O pagar varios miles de euros.
+
+Sin contrato editorial y con prisa. Vámonos a Lituania.
+
+Aunque los grandes escritores también lo son porque tienen grandes
+escritores a su
+sombra. [Escritores fantasma](http://es.wikipedia.org/wiki/Escritor_fantasma),
+los llaman. Ya los usaba para escribir las novelas que se publicaban
+bajo su nombre. ¿Por qué no usarlo para esto, esta obra literaria
+escrita sobre el papel en blanco de la realidad y con sangre? Lituania
+y asesinos a sueldo, si es que prácticamente una idea llevaba a la
+otra. 
+
+Envió desde el móvil un mensaje a sus contactos en México y Filipinas
+pidiéndoles nombres, “para documentación“. A los pocos minutos tenía
+los teléfonos de un par de ellos en Lituania. Y otros dos en
+Birmania. Nunca se sabía cuando podía venir bien un asesino a sueldo
+en Birmania.
+
 
 ## El vecino
 
@@ -2803,4 +2804,6 @@ A [Marcos Taracido](http://twitter.com/marcostaracido) por su buen
 humor y haber descubierto un error que a mi se me había pasado (lo que
 debería de ser obvio, porque si no se me hubiera pasado no habría sido un
 error). También a [Jose María](http://blog.unlugarenelmundo.es/), por
-contestar a mis continuas dudas y preguntas. 
+contestar a mis continuas dudas y preguntas y a
+[Manuel Cogolludo](http://twitter.com/makova65) por sus correcciones y
+su ayuda. 
