@@ -1819,7 +1819,7 @@ información. Ella estaba claro por donde iba, mi Tina, tan evidente
 para quien la conoce. No creo que fuera ella, la asesina, ¿no? Tanta
 sangre fría, horas dormida con un cadáver a unos cuantos
 metros... Aunque cuando le da el bajón, no hay quien la despierte. ¿Le
-daría el bajón despues de? No creo. Espero que no. No, no creo. 
+daría el bajón después de? No creo. Espero que no. No, no creo. 
 
 Al otro lado del ring, el poli guapetón se dejaba querer. De pocas palabras. Más complicado sacarle
 algo. Pero no hace falta hablar para saber por dónde va. Kevin me
@@ -1951,16 +1951,19 @@ también es un porqué. Pero a veces tenemos muchas.
 
 Pero yo tenía una muy gorda: colocar una nanoestación de escucha. Oye,
 son una maravilla. Coreanas. O copia coreana de una China. Tienen,
-para empezar, escuchas pasivas de todo: NFT, RFID, BlueTooth. Si hay
+para empezar, escuchas pasivas de todo: NFC, RFID, BlueTooth. Si hay
 algún dispositivo, captan su ID y la almacenan, con marca
-temporal. Luego, tienen más cosas: interceptan el tráfico WiFi que
+temporal. ¿Qué pasa? Estoy estudiando ingeniería electrónica y escribo
+sobre robots. Tendré que saber de todas estas cosas, ¿no?
+
+Las nanoestaciones no se quedan ahí: interceptan el tráfico WiFi que
 llega a sus alrededores, aunque sólo almacenan lo que le programes,
 porque no les cabe mucho en la memoria. Es el clásico Man in the
 Middle, pero en una mota que se puede esconder dentro de una pelusa de
 las que hay debajo de la cama y que no vale más que... bueno, sí vale
 cara. Quince días de ventas de libros. Pero merece la pena. Tina
 también tiene una en su cuarto, con micrófono incluido y cámara. Oye, que a veces mis propia experiencias
-no es suficiente inspiración y Tina es exhuberante, imaginativa y muy
+no es suficiente inspiración y Tina es exuberante, imaginativa y muy
 entusiasta. 
 
 El problema que tiene la estación es que no puede almacenar gran cosa
