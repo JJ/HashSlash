@@ -18,7 +18,7 @@ pulgares en su móvil.
 víctima - dijo, chasqueando la lengua.
 Roble puso la boca en posición de "Ah", pero no dijo nada.
 
-—No estarás poniendo nada de esto - hizo un gesto señalando a su
+—No estarás poniendo nada de esto -, dijo, haciendo un gesto señalando a su
 alrededor con la mano - en la Internet esa.
 
 Ciriaco hizo un
@@ -44,7 +44,7 @@ Roble aprovechó la pausa para dejar el móvil en su
 regazo y hacer copa con las manos para calentárselas. 
 
 —Nada -, dijo Roble, mientras pensaba "sólo un poco de #escenadelcrimen en Instagram".  Ya tenía más
-de veinte *likes*. Ciriaco hizo un esfuerzo para intentar ver qué era lo que
+de veinte *me gusta*. Ciriaco hizo un esfuerzo para intentar ver qué era lo que
 había en la pantalla. Se distinguían borrones rojos y figuras
 geométricas de color naranja. Poco más. Ninguna cara, nada
 distintivo que permitiera reconocer ni al sitio, ni a la
@@ -100,10 +100,10 @@ pero si te cae un paquete a mi no me líes.
 
 Roble seguía moviendo los dedos y golpeando la pantalla el teléfono.
 
-—El app de Ikea. No funciona -,
-dijo Roble, que seguía pegado al teléfono.- Normal. 
+—El app de Ikea. No funciona -, dijo Roble, que seguía pegado al
+teléfono.- Normal.  
 
-Normal que no funcionara cuando la prístina forma de un cuchillo
+Era normal que no funcionara cuando la prístina forma de un cuchillo
 diseñado por ingenieros industriales suecos estaba cubierto por todo
 tipo de sustancias orgánicas.  A los algoritmos de análisis de imagen
 les daba un pequeño ataque.
@@ -111,8 +111,8 @@ les daba un pequeño ataque.
 —¿Hay un app para eso? - Preguntó Ciriaco, curioso. - ¿Para saber qué
 cosa de Ikea es?
 
-—Hay apps para *todo* -, señaló al mueble que sostenía la televisión
-- [Byaaas](http://www.ikea.com/es/es/catalog/products/80227797/). -
+—Hay apps para *todo* -, señaló al mueble que sostenía la televisión -
+  [Byaaas](http://www.ikea.com/es/es/catalog/products/80227797/). - 
   Señaló a la mesa en la que Ciriaco había estado varias veces a punto
   de extender los pies -
   [Klingsbo](http://www.ikea.com/es/es/catalog/products/90128565/) -,
@@ -123,7 +123,7 @@ cosa de Ikea es?
   y él seguía tecleando. - No hay app - dijo aaahhh - para eso,
   ¿verdad? 
   
-  Ciriaco se rió de su propia gracia. Roble volvió al móvil, que acababa de emitir el tono que indicaba, de nuevo, que había llegado un mensaje. 
+Ciriaco se rió de su propia gracia. Roble volvió al móvil, que acababa de emitir el tono que indicaba, de nuevo, que había llegado un mensaje. 
   
  — Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Ciriaco. 
  
@@ -164,7 +164,8 @@ Roble miró en la
 pantalla. [Apollardao](http://www.frikipedia.es/friki/Diccionario_granadino). Vale. No
 tiene nada que ver con el tamaño del miembro. Con el que, en todo
 caso, no tenía por qué estar familiarizado Ciriaco en el caso de este
-tal Kevin. Al menos a estas alturas de la investigación.
+tal Kevin. Al menos diez minutos después de habérselo encontrado por
+primera vez.
 
 —¿Inocente? - preguntó Roble. 
 
@@ -200,10 +201,10 @@ miran, Ángulo, altura, este es culpable, ese no.
 
 —Vaya -, dijo Roble.
 
-—Qué.
+—Qué. - contestó Ciriaco, apoyando el puño sobre su muslo. 
 
-—Quique. El periodista. - Quique había  visto que Roble había hecho check-in en
-FourSquare en el barrio y me acaba de poner un like en él. - Viene.
+—Quique. El periodista. - Aparentemente, Quique había visto que Roble había hecho check-in en
+FourSquare en el barrio y me acaba de poner un *me gusta* en él. - Viene.
 
 —Cuidao con la polla y con el chismecico. Porque se ha enterado por el
 chismecico, ¿no? - Roble puso cara de póker. - Un día nos vas a traer
@@ -221,14 +222,14 @@ ocasional uña la pantalla de su móvil, cambiando de aplicación.
 
 —Mira, dicen que... - movió el
 pulgar verticalmente, pasando algo por la pantalla - el color de la
-sangre - movió pulgar y corazón, ampliando algo - indica que... es de
-verdad. 
+sangre - movió pulgar y corazón, ampliando algo - indica que... es auténtica.
 
 Dijo esto último bajando la voz, consciente del #fail y #vayanovedad
-implícito en sus palabras. Pero los comentaristas de la imagen no sólo
+que eran la respuesta obvia a sus palabras. Pero los comentaristas de la imagen no sólo
 habían hecho eso. También se quejaban del tratamiento Lomo de
 la foto. Poco más. Los seguidores de Dexter parecían no estar muy
-espabilados a estas horas de la mañana. Todo eso no había impedido que el número de *likes* siguiera creciendo.
+espabilados a estas horas de la mañana. Todo eso no había impedido que
+el número de *me gustas* siguiera creciendo, por otro lado.
 
 Ciriaco se volvió a sentar en el
 sillón, diciendo
@@ -240,13 +241,13 @@ encontraba el cadáver. Los dos giraron la cabeza en esa
 dirección. Luego se miraron el uno al otro y finalmente siguieron uno
 escribiendo en el móvil y otro en el bloc.
 
-Durmiendo con un cadáver y despertando luego
+Durmiendo con un cadáver. Y luego despertando.
 ---
 
-Tina avanzó por el pasillo con una mano en la cabeza, tratando de
-contener el dolor que le latía ahí dentro y que amenazaba por expulsarle los
+Tina avanzó por el pasillo con una mano sobre la cabeza, tratando de
+contener el dolor que le latía en su interior y que amenazaba por expulsarle los
 globos oculares fuera del cráneo. Ahora mismo parecía que le había
-tomado una manía especial al ojo derecho,  así que lo mantenía cerrado
+tomado una manía especial al ojo derecho, así que lo mantenía cerrado
 y, en ocasiones, tapado con la mano derecha para mayor seguridad.
 
 Habría querido seguir en la cama. Pero había llegado un momento en que la resistencia a levantarse no había
@@ -278,10 +279,10 @@ trajo Berta anoche y lo había dejado ahí. ¿Y Berta estaría en...?
 Su cerebro le estaba avisando a base de latidos dolorosos que no era
 ni momento de chequear gente ni de pensar, de hecho, nada. Así que se
 dirigió al otro, que no podría haber estado de ninguna de las maneras
-en la fiesta y cuya ropa valdría tanto como uno de los zapatos del
+en la fiesta y cuya ropa, a la hora de comprarla, valdría tanto como uno de los zapatos del
  *hipster*.
 
-— ¿Tenéis un ibuprofeno? - , les preguntó. Hipster mono la miró
+— ¿Tenéis un ibuprofeno? -, les preguntó. Hipster mono la miró
 durante una fracción de segundo. El otro trató de levantarse del
 sillón, sin conseguirlo. Comenzó a cruzar el salón donde se encontraban- Da igual, ya voy a pedirle a la
 compi. 
@@ -1331,7 +1332,11 @@ escombros de mesa de bar: migas de pan, gotas de grasa, bolitas de servilletas,
 palillos de dientes partidos. La escena del crimen tras el asesinato
 de una tapa. 
 
-Roble se sentó.
+Roble se sentó, dejando [su parka de
+camuflaje de Bathing Ape](http://www.bape.com/webstore/#/1A30-140-017)
+en el perchero de la pared. Se quedó mirándola un momento, para
+prevenir posibles deslizamientos. Tina también. Ese era el otro
+objetivo del gesto. 
 
 —Así que policía, ¿no? Eso mola. ¿Eso mola?
 
@@ -1376,25 +1381,26 @@ juego en el que los dos sabían qué iba a ocurrir y los dos sabían que
 los dos sabían qué iba a ocurrir. Importaba poco que fuera uni o
 multilateral.
 
-—Muy chulo tu chaleco, por cierto. ¿Es de...? - preguntó Tina.
+—Muy *hardcore* tu chaleco también, por cierto. ¿Es de...? - preguntó Tina.
 
-—A medida. De Liverpool. - contestó Roble.
+—A medida. De Liverpool -, contestó Roble.
 
 —Y cuesta...
 
 —Cuesta. Sí - sonrió.
 
-Medio bitcoin, sí. Le había costado casi todo lo que había obtenido
+Medio bitcoin, sí, en aquel momento. Le había costado casi todo lo que había obtenido
 con las fotos de un asesinato-suicidio particularmente escatológico. Y
 eso que las había tomado desde el umbral de la puerta, sin asomarse
 más que para ver, en general, dónde se situaban los cadáveres. Luego
 había tenido que verlas en pantalla para seleccionar las más
-enfocadas, claro, pero no sentía las mismas náuseas si no las veía en
-directo. Ni olores. 
+enfocadas, claro, pero no sentía las mismas náuseas si no lo veía, y olía, en
+directo. 
 
 Tina tampoco se vestía de baratillo. La e-pulsera que llevaba, el
 perfume, los zapatos, todo era caro. Sobre todo los zapatos. No algo
-fuera de lo habitual para una estudiante. Pero sí lo suficiente para
+fuera de lo habitual para una estudiante, y más para una estudiante de
+farmacia. Pero sí lo suficiente para
 llamar la atención de un policía. 
 
 —Y tu ropa... - introdujo Roble en la conversación. Tina contó qué le
@@ -1415,7 +1421,6 @@ de Demelza y la propia Tina. Al lado de Demelza, Kevin levantó
 brevemente la cabeza de su móvil, sin llegar a saludar y sin llegar realmente a despegar los ojos de él.
 
 —¡Hola! - dijo Demelza. 
-
 
 ## Interrogatorios a varias bandas
 
@@ -1776,7 +1781,8 @@ ahí. Cuando no era su turno, o cuando era su turno y tenía su mente en
 alguna clase o en algún otro manual para preparar oposiciones. Que
 era probablemente lo que estaba haciendo ahora.
 
-Había una cosa que le preocupaba. En la web profunda, las apuestas en `whodunnit.onion` pagaban 3 a 1 el que eventualmente fuera Demelza la
+Había una cosa que le preocupaba. En la web profunda, las apuestas en
+`whodunnit.onion` pagaban 3 a 1 el que eventualmente fuera Demelza la 
 asesina. Tina iba 25 a 1, y otros asistentes a la baja. Jože el
 esloveno estaba escalando desde el 30 a uno, y ya se pagaba 29 a
 2. Lola no aparecía. Tampoco aparecían ni él ni Ciriaco, lo que era
@@ -1843,7 +1849,13 @@ a este pillado, coño, Torres, joder, que es un momento...
 —Joder, y yo de niñera mientras, me cago en diez. ¡Torres! ¿Me miras
 los antecedentes, joder?
 
-Roble salió de la comisaría y se fue andando hacia el final de la Carretera de la Sierra, o el principio, según se mirara. Se arrebujó en su Barbour y se adentró en el día claro, luminoso y por tanto, espantosamente frío que hacía en Granada. Tan pronto el sol calentaba animosamente los centímetros cuadrados de su cara expuestos a la intemperie, como una ráfaga de aire frío le hacía arrepentirse incluso de esos pocos centímetros. 
+Roble salió de la comisaría y se fue andando hacia el final de la
+carretera de la Sierra, o el principio, según se mirara. Se arrebujó
+en su Barbour y se adentró en el día claro, luminoso y por tanto,
+espantosamente frío que hacía en Granada. Tan pronto el sol calentaba
+animosamente los centímetros cuadrados de su cara expuestos a la
+intemperie, como una ráfaga de aire frío le hacía arrepentirse incluso
+de esos pocos centímetros.  
 
 El tiempo parecía darles pistas de cómo se estaba acercando a la solución del caso: frío, frío. Era posible que este nuevo elemento diera alguna pista. Pero también era posible y más que probable que no tuviera ni idea, que fuera simplemente el vecino que se les metía en la casa a tomarse la cerveza y a lo que cayera.
 
@@ -2338,7 +2350,17 @@ harían las delicias de sus clientes americanos y prefería ir a su casa
 a subirlas; no se sabía los controles que podía haber de la red,
 incluso de los que no estaban conectados a través de la propia red de
 la comisaría. Además, la red de su casa era más rápida, así que echó
-las carpetas en su Crumpler y anduvo hasta su casa. 
+las carpetas en su Crumpler y se fue andando hacia su casa. 
+
+Por el camino, volvió a comprobar las apuestas. Demelza iba a la baja,
+7 a 2 ya. Tina al alza, pero todavía nada por lo que preocuparse, ni
+ella ni, tampoco, él, 20 a 1. El esloveno había subido, pero muy
+ligeramente, 14 a 1. Ignacio había aparecido, de repente, pero no
+parecía que fuera a pasar del 30 a 1. 
+
+Tendría que hablar de nuevo con Demelza. Más que hablar, si
+podía. Pero, a pesar de la clarividencia de las apuestas en la web
+profunda, el MXE apuntaba, de nuevo, a Tina. 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
