@@ -18,9 +18,10 @@ Otras fuerzas del orden
 Nombre | Nacido - cuando | dónde |  Puesto | Otros
 --- |--- |--- |--- | ---
 Puri Blanco | - | - | Jueza de instrucción del caso | 
+Paco | - | - | Secretario judicial
 
 Las muertas y amistades diversas
---
+---
 
 Nombre | Nacido - cuando | dónde |  A qué se dedica | Otros
 --- |--- |--- |--- | ---
