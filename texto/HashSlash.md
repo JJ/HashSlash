@@ -1608,26 +1608,37 @@ y todo termina así, de repente, sales por donde has venido, nadie te
 ve, nadie te conoce... Pero también era posible que quisieran matar
 precisamente a esa persona. O a otra totalmente diferente. 
 
-—No es descartable.
+—No es descartable -, contestó Roble. 
 
-—Pues si quiere una versión dos punto cero, lo va a tener
-jodido. Porque ya no estoy aquí.
+—Qué mono, no es descartable, oye, y qué descartáis entonces, ¿así lo
+decís, descartar? - dijo Tina
 
-—¿Y dónde estás, guapetona? Yo te veo muy, como te diría, vamos, lo
-que se dice, aquí - dijo, riéndose y dando golpes con los dedos en el
-borde de la mesa.
+—¿Qué habéis descartado entonces? - preguntó Demelza.
 
-—Kevin tiene unos amigos que te van geolocalizando contenidos donde tú
-quieras. Quieres que te lancen un tuit desde Birmania, allí te
-llevan. 
+Kevin la miró. Roble no contestó, posó el codo en la mesa y la
+barbilla sobre su mano. Escuchando. 
 
-Kevin la miró y posó la barbilla sobre su mano. Escuchando. Roble era
+—Nosotros tampoco te hemos descartado a ti, caballero - dijo Tina -
+¡Somos todos un grupito de presuntos asesinos! ¿Nos hacemos un grupo
+de WhatsApp con ese nombre, “Los presuntos de la muerte“?  
+
+Roble era
 bueno escuchando, no sólo por el hecho físico de hacerlo, que eso lo
 hace cualquiera, sino porque transmitía desde su postura, su mirada,
 sus sonidos guturales de continuación del discurso, "Te estoy
 escuchando". En el gremio de escuchadores se habría llevado el premio
 de Escuchador Más Valioso. Si no eso, el que más polvos había
-conseguido escuchando. Que tampoco era mal mérito.
+conseguido escuchando. Que tampoco era mal mérito. Por lo pronto,
+estaba claro que entre todos los presuntos de la muerte, había dos
+personas nerviosas. 
+
+—Kevin tiene unos amigos -, dijo Demelza, y a Tina le dio la risita -
+que nos pueden ayudar. 
+
+Roble miró a Demelza y luego a Kevin, que seguía con la cabeza gacha
+concentrado en lo que fuera, robar un banco central, derribar cerdos
+con pájaros, programar un virus que destruyera las reservas mundiales
+de elixir contra la alopecia. 
 
 —Lo bueno de estos tíos - , "Son buenos", intervino Kevin, con
 brevedad y hablando muy rápido, como esas voces que de repente se
@@ -1635,16 +1646,16 @@ cruzan en la radio y que dicen "estroncio, rubidio y cesio" en medio
 de una retransmisión deportiva, dejándole la impresión de que, aunque
 no parece que haya nadie más ahí, entre tú y el que habla, sí lo hay y
 puede aparecer en el momento más inesperado -, es que son capaces de
-diseñarte un itinerario completo, sin ningún hueco, nada, si cancelan
-un vuelo que tenían en el itinerario lo saben. Cobran caros. En una
+buscarte la información que quieras. Cobran caros. En una
 cosa que se llama bitcoins, ¿lo conocéis? - Todos pusieron cara de
 póker, y Kevin dijo de nuevo, "bitcoins" -, pero son colegas y lo
 hacen así, *pro bono*, aunque les tengo que hacer publicidad, así que
 si conoces a alguien...
 
-—¡Yo misma! -, dijo Tina. -A veces es como, caray, me quiero ir de aquí pero luego,
-joder, es como, para qué, si aquí lo tengo todo, tengo mi... bueno,
-mis cosas, ya sabes...
+—¡Yo misma! -, dijo Tina. -A veces es como, caray, conoces a un tío, y dices
+joder, es un tío guay, y lo miras en Facebook, y es como, esto no
+puede ser verdad, ¿y si es caníbal o le huelen los pies o...? ¿Eso lo
+hacen tus colegas, Kevin? ¿Lo harían por mi?
 
 —A alguien que quiera pagar, quería decir... - aclaró Demelza. 
 
