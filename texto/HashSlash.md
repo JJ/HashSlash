@@ -1605,7 +1605,7 @@ y todo termina así, de repente, sales por donde has venido, nadie te
 ve, nadie te conoce... Pero también era posible que quisieran matar
 precisamente a esa persona. O a otra totalmente diferente. 
 
-—No es descartable.
+—No es descartable -, contestó Roble. 
 
 —Pues si quiere una versión dos punto cero, lo va a tener
 jodido. Porque ya no estoy aquí.
