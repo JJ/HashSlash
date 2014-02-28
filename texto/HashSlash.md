@@ -45,7 +45,7 @@ nublado y la temperatura en el interior del piso era escasamente
 diferente de la que hacía al final de la carretera de la Sierra. En
 ninguno de los dos casos tenía más de una cifra significativa. 
 
-—Bueno, en realidad... -, dijo Roble, levantando la cara del móvil y
+—Realmente... - Dijo Roble, levantando la cara del móvil y
 poniendo una expresión similar a esta :-) - ¿Qué cuchillo? 
 
 —El de la muerta. - Hizo una pausa e intentó levantarse de nuevo,
@@ -68,7 +68,10 @@ crimen. No encontró nada. El propio Roble, que vaya tela marinera de
 nombre, Roble, había estado en la academia hacía menos. Así que él
 sabría. 
 
-En ese pequeño intervalo de tiempo, dedos de todo el mundo habían hecho *me gusta*; Roble vio que llevaba veinticinco ya. Y en Twitter casi los mismos, con el doble de RTs. 
+En ese pequeño intervalo de tiempo, dedos de todo el mundo habían
+golpeado dos veces sobre sus pantallas, hecho *me gusta* sobre las
+fotos que el avatar virtual de Roble había subido; Roble vio que llevaba veinticinco ya. Y en Twitter
+casi los mismos, con el doble de RTs.  
 
 —Lo que te decía, el cuchillo. De Ikea. - retomó el tema Ciriaco, haciendo que el ritmo de tecleo
 de Roble variara.
@@ -90,7 +93,8 @@ también con chafarrinones negros, marrones y rojos oscuros. Rojo
 sangre, pensó Roble. La chica muerta, a la que no había querido
 acercarse. 
 
-—Coño, ¿qué te has creído, Robles, que para darle a un botoncico hay
+—Coño, ¿qué te has creído, Robles, que para darle golpecitos con el
+dedo a un dibujico hay
 que hacer arquitectura? Por cierto, que ha saltado un mensaje de
 alguien que quería comprar no sé qué. 
 
@@ -105,14 +109,18 @@ acercarse a la chica. O que Ciriaco lo siguiera haciendo.
 tonta -, dijo, riéndose de su propia gracia. - Tú verás lo que haces,
 pero si te cae un paquete a mi no me líes. 
 
-Roble seguía manipulando el teléfono.
+Roble seguía moviendo los dedos y golpeando la pantalla el teléfono.
 
 —El app de Ikea. No funciona -,
 dijo Roble, que seguía pegado al teléfono.- Normal. 
 
-Normal que no funcionara cuando la prístina forma de un cuchillo diseñado por ingenieros industriales suecos estaba cubierto por todo tipo de sustancias orgánicas. 
+Normal que no funcionara cuando la prístina forma de un cuchillo
+diseñado por ingenieros industriales suecos estaba cubierto por todo
+tipo de sustancias orgánicas.  A los algoritmos de análisis de imagen
+les daba un pequeño ataque.
 
-—¿Hay un app para eso? - Preguntó Ciriaco, curioso.
+—¿Hay un app para eso? - Preguntó Ciriaco, curioso. - ¿Para saber qué
+cosa de Ikea es?
 
 —Hay apps para *todo* -, señaló al mueble que sostenía la televisión
 - [Byaaas](http://www.ikea.com/es/es/catalog/products/80227797/). -
@@ -1766,26 +1774,37 @@ y todo termina así, de repente, sales por donde has venido, nadie te
 ve, nadie te conoce... Pero también era posible que quisieran matar
 precisamente a esa persona. O a otra totalmente diferente. 
 
-—No es descartable.
+—No es descartable -, contestó Roble. 
 
-—Pues si quiere una versión dos punto cero, lo va a tener
-jodido. Porque ya no estoy aquí.
+—Qué mono, no es descartable, oye, y qué descartáis entonces, ¿así lo
+decís, descartar? - dijo Tina
 
-—¿Y dónde estás, guapetona? Yo te veo muy, como te diría, vamos, lo
-que se dice, aquí - dijo, riéndose y dando golpes con los dedos en el
-borde de la mesa.
+—¿Qué habéis descartado entonces? - preguntó Demelza.
 
-—Kevin tiene unos amigos que te van geolocalizando contenidos donde tú
-quieras. Quieres que te lancen un tuit desde Birmania, allí te
-llevan. 
+Kevin la miró. Roble no contestó, posó el codo en la mesa y la
+barbilla sobre su mano. Escuchando. 
 
-Kevin la miró y posó la barbilla sobre su mano. Escuchando. Roble era
+—Nosotros tampoco te hemos descartado a ti, caballero - dijo Tina -
+¡Somos todos un grupito de presuntos asesinos! ¿Nos hacemos un grupo
+de WhatsApp con ese nombre, “Los presuntos de la muerte“?  
+
+Roble era
 bueno escuchando, no sólo por el hecho físico de hacerlo, que eso lo
 hace cualquiera, sino porque transmitía desde su postura, su mirada,
 sus sonidos guturales de continuación del discurso, "Te estoy
 escuchando". En el gremio de escuchadores se habría llevado el premio
 de Escuchador Más Valioso. Si no eso, el que más polvos había
-conseguido escuchando. Que tampoco era mal mérito.
+conseguido escuchando. Que tampoco era mal mérito. Por lo pronto,
+estaba claro que entre todos los presuntos de la muerte, había dos
+personas nerviosas. 
+
+—Kevin tiene unos amigos -, dijo Demelza, y a Tina le dio la risita -
+que nos pueden ayudar. 
+
+Roble miró a Demelza y luego a Kevin, que seguía con la cabeza gacha
+concentrado en lo que fuera, robar un banco central, derribar cerdos
+con pájaros, programar un virus que destruyera las reservas mundiales
+de elixir contra la alopecia. 
 
 —Lo bueno de estos tíos - , "Son buenos", intervino Kevin, con
 brevedad y hablando muy rápido, como esas voces que de repente se
@@ -1793,16 +1812,16 @@ cruzan en la radio y que dicen "estroncio, rubidio y cesio" en medio
 de una retransmisión deportiva, dejándole la impresión de que, aunque
 no parece que haya nadie más ahí, entre tú y el que habla, sí lo hay y
 puede aparecer en el momento más inesperado -, es que son capaces de
-diseñarte un itinerario completo, sin ningún hueco, nada, si cancelan
-un vuelo que tenían en el itinerario lo saben. Cobran caros. En una
+buscarte la información que quieras. Cobran caros. En una
 cosa que se llama bitcoins, ¿lo conocéis? - Todos pusieron cara de
 póker, y Kevin dijo de nuevo, "bitcoins" -, pero son colegas y lo
 hacen así, *pro bono*, aunque les tengo que hacer publicidad, así que
 si conoces a alguien...
 
-—¡Yo misma! -, dijo Tina. -A veces es como, caray, me quiero ir de aquí pero luego,
-joder, es como, para qué, si aquí lo tengo todo, tengo mi... bueno,
-mis cosas, ya sabes...
+—¡Yo misma! -, dijo Tina. -A veces es como, caray, conoces a un tío, y dices
+joder, es un tío guay, y lo miras en Facebook, y es como, esto no
+puede ser verdad, ¿y si es caníbal o le huelen los pies o...? ¿Eso lo
+hacen tus colegas, Kevin? ¿Lo harían por mi?
 
 —A alguien que quiera pagar, quería decir... - aclaró Demelza. 
 
