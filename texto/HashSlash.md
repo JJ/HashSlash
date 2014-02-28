@@ -34,7 +34,7 @@ nublado y la temperatura en el interior del piso era escasamente
 diferente de la que hacía al final de la carretera de la Sierra. En
 ninguno de los dos casos tenía más de una cifra significativa. 
 
-—Bueno, en realidad... -, dijo Roble, levantando la cara del móvil y
+—Realmente... - Dijo Roble, levantando la cara del móvil y
 poniendo una expresión similar a esta :-) - ¿Qué cuchillo? 
 
 —El de la muerta. - Hizo una pausa e intentó levantarse de nuevo,
@@ -57,7 +57,10 @@ crimen. No encontró nada. El propio Roble, que vaya tela marinera de
 nombre, Roble, había estado en la academia hacía menos. Así que él
 sabría. 
 
-En ese pequeño intervalo de tiempo, dedos de todo el mundo habían hecho *me gusta*; Roble vio que llevaba veinticinco ya. Y en Twitter casi los mismos, con el doble de RTs. 
+En ese pequeño intervalo de tiempo, dedos de todo el mundo habían
+golpeado dos veces sobre sus pantallas, hecho *me gusta* sobre las
+fotos que el avatar virtual de Roble había subido; Roble vio que llevaba veinticinco ya. Y en Twitter
+casi los mismos, con el doble de RTs.  
 
 —Lo que te decía, el cuchillo. De Ikea. - retomó el tema Ciriaco, haciendo que el ritmo de tecleo
 de Roble variara.
@@ -79,7 +82,8 @@ también con chafarrinones negros, marrones y rojos oscuros. Rojo
 sangre, pensó Roble. La chica muerta, a la que no había querido
 acercarse. 
 
-—Coño, ¿qué te has creído, Robles, que para darle a un botoncico hay
+—Coño, ¿qué te has creído, Robles, que para darle golpecitos con el
+dedo a un dibujico hay
 que hacer arquitectura? Por cierto, que ha saltado un mensaje de
 alguien que quería comprar no sé qué. 
 
@@ -94,14 +98,18 @@ acercarse a la chica. O que Ciriaco lo siguiera haciendo.
 tonta -, dijo, riéndose de su propia gracia. - Tú verás lo que haces,
 pero si te cae un paquete a mi no me líes. 
 
-Roble seguía manipulando el teléfono.
+Roble seguía moviendo los dedos y golpeando la pantalla el teléfono.
 
 —El app de Ikea. No funciona -,
 dijo Roble, que seguía pegado al teléfono.- Normal. 
 
-Normal que no funcionara cuando la prístina forma de un cuchillo diseñado por ingenieros industriales suecos estaba cubierto por todo tipo de sustancias orgánicas. 
+Normal que no funcionara cuando la prístina forma de un cuchillo
+diseñado por ingenieros industriales suecos estaba cubierto por todo
+tipo de sustancias orgánicas.  A los algoritmos de análisis de imagen
+les daba un pequeño ataque.
 
-—¿Hay un app para eso? - Preguntó Ciriaco, curioso.
+—¿Hay un app para eso? - Preguntó Ciriaco, curioso. - ¿Para saber qué
+cosa de Ikea es?
 
 —Hay apps para *todo* -, señaló al mueble que sostenía la televisión
 - [Byaaas](http://www.ikea.com/es/es/catalog/products/80227797/). -
