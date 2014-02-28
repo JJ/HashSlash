@@ -46,11 +46,7 @@ diferente de la que hacía al final de la carretera de la Sierra. En
 ninguno de los dos casos tenía más de una cifra significativa. 
 
 —Bueno, en realidad... -, dijo Roble, levantando la cara del móvil y
-<<<<<<< HEAD
-poniendo una cara similar a esta :-) - ¿Qué cuchillo? 
-=======
 poniendo una expresión similar a esta :-) - ¿Qué cuchillo? 
->>>>>>> 9df9aaa827dd16371ec119f49523724cad8e1dde
 
 —El de la muerta. - Hizo una pausa e intentó levantarse de nuevo,
 sin lograrlo. - Espera, ¿qué coño has puesto? Afú, qué tropa.  
@@ -1479,11 +1475,7 @@ ella algo si se lo permitía. Le mandó un mensaje de vuelta.
 ## Mientras tanto, en un lugar de la periferia granadina
 
 Ciriaco llegó a su casa e hizo inventario de los miembros de su
-<<<<<<< HEAD
 familia, visitando los lugares donde se encontraban
-=======
-familia, visitando las habitaciones donde se encontraban
->>>>>>> 9df9aaa827dd16371ec119f49523724cad8e1dde
 uno por uno. En el salón, su
 mujer leía un bestseller. Su hijo mayor, en su cuarto, escuchaba
 música y hablaba por el móvil. En el cuarto de al lado, Su hijo pequeño jugaba con la consola
@@ -1496,7 +1488,6 @@ su cuarto. Se puso la serie policíaca que estuvieran echando en ese
 momento, una serie coreana titulada “Mala gente“. Se durmió antes de que apareciera en el episodio el
 informe del forense.
 
-<<<<<<< HEAD
 ## Escribir es como soñar
 
 No tengo mucha imaginación, ya os lo he dicho. Por eso, para mi
@@ -1530,9 +1521,6 @@ gracias.
 Así que a escribir. Quizás debería usar hoy la palabra tumefacción. Por
 la ausencia de la misma. Que rima con frustración.
 
-
-=======
->>>>>>> 9df9aaa827dd16371ec119f49523724cad8e1dde
 ## Nuboso, con posibilidad de polvo
 
 Roble se puso los auriculares para que el móvil le leyera al completo
@@ -1678,7 +1666,6 @@ brevemente la cabeza de su móvil, sin llegar a saludar y sin llegar realmente a
 
 —¡Hola! - dijo Demelza. 
 
-<<<<<<< HEAD
 ## Interludio con café
 
 Recogí a Kevin poco después de recibir en mi móvil los mensajes que
@@ -1703,8 +1690,6 @@ yo lo hago. El termo, su olor metálico y a la vez cálido, me ayuda a
 rememorar y a imaginar. Sí, es un símbolo fálico. Pero también lleva
 café. Y si lo acaricio a nadie le importa. Sólo en este café, claro.
 
-=======
->>>>>>> 9df9aaa827dd16371ec119f49523724cad8e1dde
 
 ## Interrogatorios a varias bandas
 
@@ -2013,7 +1998,6 @@ Cabezada, tenía que ser cabezada. No, lomo. ¿O lomo y cabezada?
 Código bla bla bla artículo bla bla bla caso bla bla bla sentencia bla
 bla bla.
 
-<<<<<<< HEAD
 ## La vida fácil
 
 Tina se había alquilado una suite en el Nazaríes. Por las buenas. Allí
@@ -2046,51 +2030,6 @@ Pasaba que faltaba un uno, y listando los procesos del sistema me di cuenta. Est
 que saber buscarlo. 
 
 Un momento... 
-=======
-
-## Escribir es sufrir
-
-Sufra usted primero, le dijo algún famoso escritor ruso a un no tan
-famoso escritor en ciernes. Cretino.
-
-Pero cierto. 
-
-Sufrir para volver a encontrar el tema, seguirlo, perseguirlo y,
-finalmente, atenazarlo y terminarlo. Pero el sufrimiento se exacerba
-si el tema te elude. Mucho más si se ha ido a Lituania. Allí es donde
-se ha ido la chica. Eso es lo que dice en su perfil en Facebook y sus
-tweets están geolocalizados por Vilna y alrededores. Cualquier día la
-vemos aparecer por Minsk. ¿Cómo puede haber llegado allí tan
-rápidamente? 
-
-Escribe, conocerás mundo. No lo dijo nadie, pero podía haberlo dicho
-Paul Theroux.
-
-Lituania está jodidamente lejos. Espera, eso es poco
-literario. Lituania está la hostia de lejos. 
-Tampoco es literario, pero es la pura verdad. Lo peor de los sitios
-que están lejos no es que lo estén. Sino que para llegar a ellos hay
-que pasar forzosamente por alguna etapa en la que hay una línea de
-bajo coste. O pagar varios miles de euros.
-
-Sin contrato editorial y con prisa. Vámonos a Lituania.
-
-Aunque los grandes escritores también lo son porque tienen grandes
-escritores a su
-sombra. [Escritores fantasma](http://es.wikipedia.org/wiki/Escritor_fantasma),
-los llaman. Ya los usaba para escribir las novelas que se publicaban
-bajo su nombre. ¿Por qué no usarlo para esto, esta obra literaria
-escrita sobre el papel en blanco de la realidad y con sangre? Lituania
-y asesinos a sueldo, si es que prácticamente una idea llevaba a la
-otra. 
-
-Envió desde el móvil un mensaje a sus contactos en México y Filipinas
-pidiéndoles nombres, “para documentación“. A los pocos minutos tenía
-los teléfonos de un par de ellos en Lituania. Y otros dos en
-Birmania. Nunca se sabía cuando podía venir bien un asesino a sueldo
-en Birmania.
-
->>>>>>> 9df9aaa827dd16371ec119f49523724cad8e1dde
 
 ## El vecino
 
@@ -2483,42 +2422,6 @@ para sí.
 
 —Significa que ya tenemos al asesino.
 
-## Tradiciones acendradas
-
-Tengo un gran respeto por el gremio de los asesinos. Tradicionalmente,
-nos han inspirado a nuestro gremio, el de los escritores y, con ello,
-proporcionado un flujo de caja saneado. El gremio de los escritores,
-si no fuera por el gremio de los asesinos, tendría que convertirse, él
-mismo, en asesino. Ja ja. Eso ha tenido gracia. 
-
-Pero ese respeto por el gremio no se tiene, necesariamente, que
-trasladar individualmente a todos y cada uno de sus
-componentes. Vengan con referencias o no, los asesinos son
-avariciosos, descuidados y poco profesionales. A veces, de lo primero
-se deducía lo segundo y también lo tercero. O de lo primero lo segundo
-y lo tercero. Por eso me enervó que el primer contacto lo quisieran
-hacer en un número fijo de lo más corriente que una búsqueda en
-Internet me encontró en unos minutos. 
-
-Volví a contactar con los que me los habían recomendado y me
-aseguraron que eran buenos en lo que hacían y, sobre todo,
-discretos. No hay cualidad más encomiable que la discreción. Por eso
-finalmente me avine a llamar, usando la frase que me habían indicado,
-“¿Puedo hablar con Billy el Báltico Balístico?“. En ruso, claro. Sí,
-hablo ruso. Lo aprendí para poder leer a Tolstoi en su versión
-original. Es lo que todo escritor debe hacer.
-
-Es mentira. Lo aprendí para que me poder acceder a contratos de los servicios de seguridad rusos en mi fase de mercenario.  Mercenario profesional.
-
-Y eso sí es verdad. Fui mercenario, sí. “¿Quiere usted escribir? Viva
-usted primero“, ¿no os lo he dicho antes? ¿Es que no leéis? No, no
-debéis leer mucho, porque si no no compraríais la bazofia que me
-escriben mis amanuenses fantasmas y residentes en países
-hispanohablantes. 
-
-¿Que por qué no escribo sobre mis hazañas mercenarias? Sí, a ti te las
-voy a contar, gilipollas.
-
 ## Kevin, el asesino
 
 —¿Quién es el asesino? ¿El Kevin? - preguntó, Ciriaco.
@@ -2561,38 +2464,6 @@ siguió. Aunque cuando vieron desde la sala contigua a la de
 interrogatorios al detenido, preguntó al agente
 
 —¿Quién es ese tío?
-
-## Leyendo
-
-Uno de los aspectos desagradables de ser escritor es la cantidad de
-bazofia que tiene uno la obligación de leer. No me refiero a lo que escriben mis
-dilectos colegas. No es que no sea bazofia, es que no tiene uno
-ninguna obligación de leerlo. Si acaso, para adoptar y adaptar alguna
-idea que parezca interesante y que ellos hayan sido incapaces de
-desarrollar en toda sus posibilidades. 
-
-No, me refiero en general a lo que uno quiere que aparezca con su
-nombre. El flujo de trabajo hace que la escritura de mis novelas funciona como una factoría de ficción. Qué
-bien suena eso. Todo parte del impulso creador del autor, de mi. El
-*auteur*, uno no se siente autor, escritor, hasta que no lo han
-llamado de esa forma en francés. O 著 en japonés. ¿Que cómo se
-pronuncia? Lo acabo de hacer.
-
-Esquema general de la trama, personajes, ritmo, tono,
-ambientación... esas son las claves de una novela. Luego, se le envía
-a unos cuantos escritores fantasmas. Tacha escritores. Producefrases fantasmas. Porque
-o son escritores. No son *auteurs*. El *auteur* soy yo. Y ellos me
-mandan una propuesta, unos cuantos capítulos. Cada uno una versión
-diferente. Luego, vuelve a ellos, pero ninguno recibe su propia
-versión para editar y ampliar. Y al final de todo el camino, antes del
-The End y de la firma del contrato que se me está escapando por
-momento si no hago lo que tengo que hacer, reviso, pulo. 
-
-Cuando recibo las primeras regalías pago. Siempre pago, siempre
-tarde. Para escribir hay que sufrir. 
-
-Así que a sufrir leyendo las frases producidas por los
-producefrases. Más tarde tengo una llamada a Lituania. 
 
 ## Preguntas frecuentemente preguntadas
 
@@ -2913,11 +2784,7 @@ A [Marcos Taracido](http://twitter.com/marcostaracido) por su buen
 humor y haber descubierto un error que a mi se me había pasado (lo que
 debería de ser obvio, porque si no se me hubiera pasado no habría sido un
 error). También a [Jose María](http://blog.unlugarenelmundo.es/), por
-<<<<<<< HEAD
-contestar a mis continuas dudas y preguntas. 
-
-=======
 contestar a mis continuas dudas y preguntas y a
 [Manuel Cogolludo](http://twitter.com/makova65) por sus correcciones y
 su ayuda. 
->>>>>>> 9df9aaa827dd16371ec119f49523724cad8e1dde
+
