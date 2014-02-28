@@ -2334,12 +2334,17 @@ sitios en ese país y alrededores. Yo no he tenido más que escribir
 unas frases para indicar que me voy de viaje, de Erasmus nada menos,
 allí. 
 
+Los tíos son buenos, porque te garantizan que si un vuelo se ha
+cancelado o ha sucedido cualquier otra cosa, que haya alterado los
+planes de viaje, te lo incluyen también. Por el mismo precio. Que es
+ninguno. Para mi, precio de amigos y familia. Por Kevin.
+
 Me da un poco de pena, porque Vilna parecía bonito. Me han prometido
 sacarme tremenda en las fotos manipuladas que van a poner desde esos
 países. Que, por otro lado no deben de ser nada hospitalarios en esta
 época del año. Como sí lo es la suite que Tina me ha dejado para mi
 uso y disfrute hasta que se encuentre al asesino. O me asesine. Lo que
-suceda antes me ha dicho Tina. 
+suceda antes, me ha dicho Tina. 
 
 Es que me parto el pecho con ella, de verdad.
 
