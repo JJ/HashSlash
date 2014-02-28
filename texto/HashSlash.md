@@ -2293,6 +2293,57 @@ muerta. Pero también del mismo Ignacio Salido.
 Bajó las escaleras procurando no hacer ruido para buscar a Torres. Por
 lo pronto, se lo llevaban al calabozo. 
 
+## Huyendo virtualmente
+
+Me jode por los exámenes. Bueno, y por casi todo, Llevaba todas las
+prácticas al día, la asistencia no tanto, bueno, casi nada, pero había
+una probabilidad alta de que sacara una o dos o tres
+asignaturas. Mierda.
+
+Pero cuando desapareces virtualmente, andar por ahí por el mundo real
+no es demasiado compatible. Y más asistencias a exámenes que luego
+quedan reflejados en ficheros en la red. Que puede consultar
+cualquiera y especialmente quien te quiere asesinar.
+
+Porque hay que partir de la hipótesis de que era a mi a quien querían
+asesinar. Bueno, también de que no soy yo la asesina. Ni Kevin. Con
+esto no le estoy faltando al respeto a Kevin. Él es muy capaz de
+asesinar a quien haga falta. Tendría que hacer antes un MOOC para uso
+del arma del crimen y posteriormente otro de análisis de escenas del
+crimen y quizás uno de huidas precipitadas pero que no lo
+parezcan. Pero por lo pronto no los ha hecho, así que no creo que haya
+intentado asesinar a nadie. Tampoco Tina. No es su estilo. Tina habría
+preparado algo en su laboratorio que te habría matado de forma rápida
+y eficiente y además, habría parecido que era culpa tuya por una
+sobredosis de aliño en los macarrones. O similar.
+
+Si era a mi a quien querían asesinar, y no a la pobre desgraciada de
+Ainhoa, el asesino sabía dónde vivía, que había una fiesta y hasta
+cuanta gente podía ir a la fiesta. Todo esto debía saberlo por lo que
+voy poniendo en las redes sociales.
+
+Porque me gusta poner cosas, no voy a negarlo. Hay que mantenerse en
+contacto con los fans, perdón, con los lectores, perdón, con los
+fans. Adoro que me adoren. 
+
+Espero no tener demasiados fans en Lituania, porque se van a sentir
+decepcionados. Los amables amigos anónimos de Kevin han creado una
+serie de aplicaciones que van poniendo, por mi, historias en las redes
+sociales colocándome, geoposicionándome dicen ellos, por diferentes
+sitios en ese país y alrededores. Yo no he tenido más que escribir
+unas frases para indicar que me voy de viaje, de Erasmus nada menos,
+allí. 
+
+Me da un poco de pena, porque Vilna parecía bonito. Me han prometido
+sacarme tremenda en las fotos manipuladas que van a poner desde esos
+países. Que, por otro lado no deben de ser nada hospitalarios en esta
+época del año. Como sí lo es la suite que Tina me ha dejado para mi
+uso y disfrute hasta que se encuentre al asesino. O me asesine. Lo que
+suceda antes me ha dicho Tina. 
+
+Es que me parto el pecho con ella, de verdad.
+
+
 ## La hora del vermú
 
 A  las una de la tarde, Ciriaco estaba harto de alumnos displicentes, de
