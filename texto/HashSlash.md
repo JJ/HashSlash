@@ -12,7 +12,7 @@ layout: index
 
 —Tengo un cuchillo como ese -, dijo Ciriaco.
 
-—¿Como cuál? - le contestó Roble, sin dejar de teclear con los dos
+—¿Cuál? - le contestó Roble, sin dejar de teclear con los dos
 pulgares en su móvil.
 
 —Como, ya sabes -, hizo una pequeña pausa. Roble siguió tecleando.
@@ -32,19 +32,21 @@ encontraba sentado.
 
 —Ah. Vayamos a pollas-, volvió a sentarse Ciriaco, el mayor de los
 dos. Una vez hundido en el sillón, se cerró el abrigo sobre las
-rodillas. Eran las diez de la mañana de un día de enero, estaba
+rodillas. Eran cerca de las diez de la mañana de un día de enero, estaba
 nublado y la temperatura en el interior del piso era escasamente
 diferente de la que hacía al final de la carretera de la Sierra. En
 ninguno de los dos casos tenía más de una cifra significativa. 
 
-—Bueno, en realidad... -, dijo Roble, levantando la cara del móvil y
-poniendo una cara similar a esta :-) - ¿Qué cuchillo dices? 
+—Realmente... - Dijo Roble, levantando la cara del móvil y
+poniendo una expresión similar a esta :-) - ¿Qué cuchillo? 
 
 —El de la muerta. - Hizo una pausa e intentó levantarse de nuevo,
-sin lograrlo. - Espera, ¿qué coño has puesto? Afú, qué tropa. - Roble aprovechó la pausa para dejar el móvil en su
+sin lograrlo. - Espera, ¿qué coño has puesto? Afú, qué tropa.  
+
+Roble aprovechó la pausa para dejar el móvil en su
 regazo y hacer copa con las manos para calentárselas. 
 
-—Nada,- sólo un poco de #escenadelcrimen en Instagram.  Ya tenía más
+—Nada -, dijo Roble, mientras pensaba "sólo un poco de #escenadelcrimen en Instagram".  Ya tenía más
 de veinte *likes*. Ciriaco hizo un esfuerzo para intentar ver qué era lo que
 había en la pantalla. Se distinguían borrones rojos y figuras
 geométricas de color naranja. Poco más. Ninguna cara, nada
@@ -58,13 +60,16 @@ crimen. No encontró nada. El propio Roble, que vaya tela marinera de
 nombre, Roble, había estado en la academia hacía menos. Así que él
 sabría. 
 
-Roble vio que llevaba veinticinco ya. Y en Twitter casi los mismos. 
+En ese pequeño intervalo de tiempo, dedos de todo el mundo habían
+golpeado dos veces sobre sus pantallas, hecho *me gusta* sobre las
+fotos que el avatar virtual de Roble había subido; Roble vio que llevaba veinticinco ya. Y en Twitter
+casi los mismos, con el doble de RTs.  
 
-—Lo que te decía, el cuchillo. De Ikea. - dijo Ciriaco, haciendo que el ritmo de tecleo
+—Lo que te decía, el cuchillo. De Ikea. - retomó el tema Ciriaco, haciendo que el ritmo de tecleo
 de Roble variara.
 
 —[Gynnsam](http://www.ikea.com/es/es/catalog/products/50134950/)-,
-dijo Roble, mostrándole de nuevo la pantalla del móvil a
+dijo Roble, esforzándose en hacer una n lo suficientemente larga como para que pareciera el doble, mostrándole de nuevo la pantalla del móvil a
 Ciriaco. Ciriaco lo cogió y se alzó las gafas, entornando a la vez un
 poco los ojos.
 
@@ -80,29 +85,36 @@ también con chafarrinones negros, marrones y rojos oscuros. Rojo
 sangre, pensó Roble. La chica muerta, a la que no había querido
 acercarse. 
 
-—Coño, ¿qué te has creído, Robles, que para darle a un botoncico hay
+—Coño, ¿qué te has creído, Robles, que para darle golpecitos con el
+dedo a un dibujico hay
 que hacer arquitectura? Por cierto, que ha saltado un mensaje de
 alguien que quería comprar no sé qué. 
 
 Roble eludió reaccionar a la conversión de su nombre singular en apellido plural para buscar el
 mensaje del que hablaba. Efectivamente, un blog americano de crímenes
 reales le compraba las fotos. Ahora no le quedaría otro remedio que
-acercarse a la chica.
+acercarse a la chica. O que Ciriaco lo siguiera haciendo.
 
-—Ah, sí. Mis novelas -, le dijo a Ciriaco. 
+—Sí. Novelas -, le dijo a Ciriaco. 
 
 —Pues decía no sé qué de fotos. Joder, Robles, que la policía no es
 tonta -, dijo, riéndose de su propia gracia. - Tú verás lo que haces,
-pero si te cae un paquete a mi no me busques. 
+pero si te cae un paquete a mi no me líes. 
 
-Roble seguía manipulando el teléfono.
+Roble seguía moviendo los dedos y golpeando la pantalla el teléfono.
 
-—El app de Ikea. No funciona. -,
+—El app de Ikea. No funciona -,
 dijo Roble, que seguía pegado al teléfono.- Normal. 
 
-—¿Hay un app para eso? - Preguntó Ciriaco, curioso.
+Normal que no funcionara cuando la prístina forma de un cuchillo
+diseñado por ingenieros industriales suecos estaba cubierto por todo
+tipo de sustancias orgánicas.  A los algoritmos de análisis de imagen
+les daba un pequeño ataque.
 
-—Hay un app para *todo* -, señaló al mueble que sostenía la televisión
+—¿Hay un app para eso? - Preguntó Ciriaco, curioso. - ¿Para saber qué
+cosa de Ikea es?
+
+—Hay apps para *todo* -, señaló al mueble que sostenía la televisión
 - [Byaaas](http://www.ikea.com/es/es/catalog/products/80227797/). -
   Señaló a la mesa en la que Ciriaco había estado varias veces a punto
   de extender los pies -
@@ -114,7 +126,7 @@ dijo Roble, que seguía pegado al teléfono.- Normal.
   y él seguía tecleando. - No hay app - dijo aaahhh - para eso,
   ¿verdad? 
   
-  Ciriaco se rió de su propia gracia. 
+  Ciriaco se rió de su propia gracia. Roble volvió al móvil, que acababa de emitir el tono que indicaba, de nuevo, que había llegado un mensaje. 
   
  — Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Ciriaco. 
  
@@ -135,10 +147,10 @@ habitación donde se encontraba el cadáver. Ciriaco le dio una palmada
 en la espalda, lo que casi hizo que se le volviera a salir el vómito. 
 
 —La compañera de piso -, dijo Roble. Seguía durmiendo. Dos chicas en
-un piso de tres dormitorios, que podían permitirse porque estaba lejos
+un piso de tres dormitorios, que podían permitirse, imaginaba Roble, porque estaba lejos
 de cualquier facultad y prácticamente de todo. Aún así, había vislumbrado en las fotos mobiliario que estaba muy por encima de los desechos y muebles montables que había en la zona común. 
 
-—Ahí se puede quedar. Yo paso de despertarla -, dijo Ciriaco. ¿Para darle el mal rato y que le dé un jamacuco?? Yo paso de consolar a niñatas. Al menos, de
+—Ahí se puede quedar. Yo paso de despertarla -, dijo Ciriaco.- ¿Para darle el mal rato y que le dé un jamacuco? Yo paso de consolar a niñatas. Al menos, de
 consolarlas así - le dio un codazo al joven Roble, que le
 volvió a traer la náusea a la garganta - Bastante hemos tenido con el
 novio. Menudo apollardao.
@@ -159,7 +171,7 @@ tal Kevin. Al menos a estas alturas de la investigación.
 
 —¿Inocente? - preguntó Roble. 
 
-—Inocente lo es de por sí. Pero también puede ser, digo yo, que sea un mosquito muerto de los que las mata callando. Dicho esto como figurativamente hablando, vamos, porque el tío bien que chillaba. Vamos, que no tengo ni puta idea, Roble. Pero me extrañaría. Cuando salga del
+—Inocente lo es de por sí. Pero también puede ser, digo yo, que sea un mosquito muerto de los que las mata callando. Dicho esto como figurativamente hablando, vamos, porque el tío bien que chillaba cuando llamó y mientras nos abría la puerta. Vamos, que no tengo ni puta idea, Roble. Pero me extrañaría. Cuando salga del
 Clínico le preguntaremos. Pero vamos, que no.   
 
 —¿Por? - preguntó Roble, de nuevo. 
@@ -1362,50 +1374,48 @@ ella algo si se lo permitía. Le mandó un mensaje de vuelta.
 ## Mientras tanto, en un lugar de la periferia granadina
 
 Ciriaco llegó a su casa e hizo inventario de los miembros de su
-familia, visitándolos
+familia, visitando las habitaciones donde se encontraban
 uno por uno. En el salón, su
 mujer leía un bestseller. Su hijo mayor, en su cuarto, escuchaba
-música y hablaba por el móvil. Su hijo pequeño jugaba con la consola
-portátil. Cómo ha ido el día, bien, bien. sonrisas con arrugas, besos
+música y hablaba por el móvil. En el cuarto de al lado, Su hijo pequeño jugaba con la consola
+portátil. Cómo ha ido el día, bien, bien, sonrisas con arrugas, besos
 secos, cariños unilaterales. 
 
 Se fue a la cocina, se hizo un bocadillo de jamón y se lo tomó con una
 Alhambra. Cuando terminó, tiró la cerveza que le sobraba por el fregadero, puso el cubierto en el lavavajillas y se fue a
 su cuarto. Se puso la serie policíaca que estuvieran echando en ese
-momento, una serie coreana titulada “Mala gente“. Se durmió antes del
+momento, una serie coreana titulada “Mala gente“. Se durmió antes de que apareciera en el episodio el
 informe del forense.
 
 ## Nuboso, con posibilidad de polvo
 
 Roble se puso los auriculares para que el móvil le leyera al completo
-el informa del forense según bajaba la cuesta para encontrarse con
-Tina. Nada de tóxicos más allá de lo esperable tras una fiesta, nada
-de signos de violación, ni rastros de maltrato habitual excepto una
-fractura soldada tiempo atrás. No había restos de piel bajo las uñas,
+el informe inicial del forense a la vez que bajaba la cuesta en la cima de la cual se encontraba su casa para encontrarse con
+Tina. La muerte se había producido, efectivamente, por una sola puñalada asestada desde la espalda y que había interesado corazón y pulmones, produciendo la muerte en segundos. No había signos de violación, ni rastros de maltrato habitual excepto una
+fractura soldada tiempo atrás, que podía ser un accidente deportivo o de cualquier otro tipo. No había restos de piel bajo las uñas,
 saliva en ningún sitio. El asesino, o quizás la asesina, había
-llegado, la había apuñalado por la espalda sin que ella reaccionara y se había largado. O se
+llegado, la había apuñalado por la espalda sin que ella tuviera tiempo de reaccionar y se había largado. O se
 había quedado a verla desangrarse, lentamente, contemplando  cómo el charco
-de sangre se expandía hasta que el corazón dejaba de latir y ya dejaba
-de expandirse con cada latido, simplemente fluía mansamente fuera del
+de sangre se expandía hasta que el corazón dejaba de latir y el charco cesaba su expansión con cada latido, simplemente fluía mansamente fuera del
 cuerpo. 
 
 Nada de eso estaba en la autopsia, claro. Pero era una imagen que le
 gustaba insertar, con diferentes variaciones, en las fantasías de las
-víctimas que eran los protagonistas de sus novelas. 
+víctimas que eran los protagonistas de sus novelas, que terminaban la narración así, viéndose a sí mismos desde fuera del cuerpo, camino de la nada. De hecho, ya estaban en la nada, pero esa metáfora añadía un cierre a sus narraciones y no era cuestión de dejar que sus creencias materialistas le estropearan un buen final de novela.
 
-La autopsia decía que había sido una sola cuchillada la que había
+No había cortes en los brazos ni pinchazos en ninguna otra parte del cuerpo. Una sola cuchillada la que había
 causado la muerte. Lo que decía mucho de la calidad de los cuchillos
 del Ikea, aunque no era posible que lo incluyeran en su
 publicidad. ¿Qué nos decía todo esto del asesino?
 
 Roble tenía un app que perfilaba a los posibles sospechosos a partir
 de los datos conocidos del crimen. También había hecho
-[algún curso online sobre análisis de escena del crimen](http://www.strath.ac.uk/press/newsreleases/headline_746589_en.html). Pero
+[algún curso online sobre análisis de escena del crimen](http://www.strath.ac.uk/press/newsreleases/headline_746589_en.html). Buscó brevemente en sus recuerdos algún perfil que incluyera "personas que son capaces de matar con un solo golpe". Sus recuerdos le sirvieron de poco e inició una búsqueda en su *lifestream* que le daría el resultado en poco tiempo. Pero
 aquí se podía aplicar el sentido común. Que podía ser un ejercicio vano, porque el
 libro sobre el sentido común de los asesinos todavía no estaba
 escrito. Pero, ante la falta de experiencia de Roble en la
 investigación de asesinatos, era lo único a lo que podía recurrir. Así
-que decidió fijarse especialmente en el Erasmus esloveno, el colectivo
+que decidió que el Erasmus esloveno era quien encajaba más con ese perfil de asesino-de-una-sola-puñalada; el colectivo
 de las animadoras de discoteca y azafatas de congresos no se suele
 caracterizar por sus instintos asesinos. Y los eslovenos... bueno, son
 eslovenos. Tendría que entrevistarlo. Mañana,
@@ -1414,7 +1424,7 @@ claro.
 Llegaba ya al Jaraiz, atravesando calles vacías con ventanas cerradas,
 callejones que olían a humedad y a meados con carteles que, desde sus
 paredes, recibían pulsos de su móvil y excitaban a sus chips NFC, que
-le enviaban mensajes publicitarios que el veía aparecer, brevemente,
+le enviaban mensajes publicitarios que él veía aparecer, brevemente,
 en su pulsera. “Compra“. “Alquila“. “Comparte“. Entró en el Jaraiz, donde
 grupos animados de personas lenguaraces sostenían cañas y frágiles copas de vino en sus
 manos. Tina no estaba allí; giró a la izquierda desde la barra y entró
@@ -1431,8 +1441,8 @@ Dio la vuelta para salir y se encontró con Tina, sonriendo.
 Roble abrió la boca, pero no dijo nada. Se le acercó y le dio un beso
 en una mejilla. 
 
-—Estaba en el cuarto de baño. - Le señaló una mesa vacía en la que
-había un vaso relleno de algo rosado, casi vacío. A su alrededor,
+—Estaba en el cuarto de baño - le dijo Tina, señalando una mesa vacía en la que
+había un vaso relleno de algo rosado, casi vacío. Alrededor de la copa,
 escombros de mesa de bar: migas de pan, gotas de grasa, bolitas de servilletas,
 palillos de dientes partidos. La escena del crimen tras el asesinato
 de una tapa. 
@@ -1453,29 +1463,28 @@ despierto durante unos diez minutos recordando el material que tenía
 que preparar para las clases del día siguiente en la academia. 
 
 Luego estuvo despierto otros diez minutos esperando que su mujer
-dejara de roncar. Al final consiguió que cambiara de postura y dejó de
-hacerlo. Se volvió a dormir.
+dejara de roncar. Al final consiguió que cambiara de postura y dejara de
+hacerlo. Ciriaco estuvo un momento tratando de recordar un artículo del código Penal, pero se volvió a dormir sin conseguirlo. 
 
 ## Camino de la cama
 
 Roble creía en escuchar.
 
-Quizás no, pensó Roble. Creía en oír. Primero, en oír. 
+Quizás no, pensó Roble. Creía en oír. Antes que en escuchar, en oír. 
 
 Quizás tampoco. Creía en la presencia física mientras otra persona
 hablaba con un cierto grado de atención prestado para insertar frases,
 gestos y palabras clave que encaminaran a la persona escuchada a donde
 él quería que fuera. Su cama. O la de ella. 
 
-Por el camino, pescaba alguna idea. Ella estudiaba algo relacionado
-con la química. Y con los cerdos. Dijo en algún momento algo de dormir a los cerdos, pero Roble no estaba seguro de que no lo hubiera hecho en sentido figurado. O quería estudiarlo. O trabajaba en algo relacionado
-con la química, aunque cuando apuntó a esto último en una frase
+Por el camino, su mente iba pescando alguna idea. Ella estudiaba algo relacionado
+con la química. Y con los cerdos. Porque dijo en algún momento algo de dormir a los cerdos, pero Roble no estaba seguro de que no lo hubiera hecho en sentido figurado. O como un deseo. O trabajaba en algo relacionado
+con la química, aunque cuando apuntó esto último en una frase
 pareció arrepentirse de decirlo rápidamente. O quería escribir algo
 relacionado con ello. Echó de menos no tener en ese momento las gafas de Google; tendría que mirar más adelante sus perfiles en LinkedIn a ver qué hacía exactamente. 
 
-Aparte del fin último de la conversación, también le relajaba
-escuchar. Por eso creía en escuchar, porque no tenía que concentrarse
-en contestar algo ingenioso y, a la vez, halagador o en elaborar
+Aparte de que escuchar le acercaba a alcanzar el fin último por el que formaba parte de esta conversación, también le relajaba. Por eso creía en hacerlo, porque no tenía que concentrarse
+en contestar algo ingenioso y, a la vez, halagador. Ni esforzarse en elaborar
 historias de seducción. Había mujeres que se dejaban seducir por la
 palabra, por los gestos. Pero en muchas, la primera y por tanto única
 impresión era la que contaba. La conversación era, por tanto, sólo un
@@ -1637,11 +1646,11 @@ si conoces a alguien...
 joder, es como, para qué, si aquí lo tengo todo, tengo mi... bueno,
 mis cosas, ya sabes...
 
-—A alguien que quiera pagar... - aclaró Demelza. 
+—A alguien que quiera pagar, quería decir... - aclaró Demelza. 
 
 Tina sólo se rió, pero inmediatamente empezó a hablarle a Roble de
 algo llamado nanomateriales, lo que no tardó en provocar bostezos a
-Demelza que se propagaron inmediatamente a Kevin, en una frecuencia creciente, como el parto inminente de una partida. Se levantaron para irse unos minutos  
+Demelza que se propagaron inmediatamente a Kevin, en una frecuencia creciente, como el parto inminente de una marcha. Se levantaron para irse unos minutos  
  más tarde, y en el momento que Demelza le dio dos besos a Roble le dijo,
 cuando sus labios estaban todavía cerca de su oreja:
 
@@ -1800,8 +1809,6 @@ Demelza y la Demelza propiamente dicha. Fue inmediatamente a su móvil
 en la mesita de noche y empezó a actualizar todo lo que pudiera.
 
 —Nos veremos pronto. - oyó que decía según salía. 
-
-
 
 ## El camino hacia la policía
 
