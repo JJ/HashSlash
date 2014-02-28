@@ -240,7 +240,7 @@ encontraba el cadáver. Los dos giraron la cabeza en esa
 dirección. Luego se miraron el uno al otro y finalmente siguieron uno
 escribiendo en el móvil y otro en el bloc.
 
-Despertar
+Durmiendo con un cadáver y despertando luego
 ---
 
 Tina avanzó por el pasillo con una mano en la cabeza, tratando de
@@ -1337,7 +1337,7 @@ Roble se sentó.
 
 Exacto, pensó Roble. Y precisamente por ese orden.
 
-## Despertar
+## Interludio en el tálamo de Ciriaco
 
 Ciriaco se despertó cuando su mujer entró en la cama. Se dio la vuelta
 y siguió durmiendo. 
@@ -2437,7 +2437,7 @@ Los agentes habían interrogado, sobre la marcha, a más de treinta
 personas. Algunas personas habían escuchado un disparo, otras siete y
 otras ninguno. Para algunos Julia calló al suelo tras la primera
 campanada, para otras después de la séptima. Muchos pensaron que era
-parte de la historia. 
+parte de la narración. Pero no lo era. El cuento, verdaderamente, se había acabado para Julia.  
 
 ## Agradecimientos
 
