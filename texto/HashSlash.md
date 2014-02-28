@@ -1389,7 +1389,8 @@ Y, a estas alturas, tampoco tenía ganas de ponerse a averiguarlo.
 
 ## Buscando la ayuda de profesionales
 
-Hay profesionales-profesionales. También aficionados-profesionales. Y
+Hay profesionales-profesionales, como los amigos de Kevin. También
+aficionados-profesionales, como Tina. Y
 luego está Kevin. 
 
 En serio, Kevin es un amor. Siempre queriendo complacerme. También
@@ -1845,7 +1846,8 @@ daría el bajón después de? No creo. Espero que no. No, no creo.
 Al otro lado del ring, el poli guapetón se dejaba querer. De pocas palabras. Más complicado sacarle
 algo. Pero no hace falta hablar para saber por dónde va. Kevin me
 ayudará a entrar en su casa. No, borra eso. Kevin, esta vez, no tiene
-que enterarse de nada. Los amigos de Kevin, esta vez. 
+que enterarse de nada. Los amigos de Kevin, solamente. A discretos no
+les gana nadie. Y a profesionales. 
 
 ## Sexo
 
