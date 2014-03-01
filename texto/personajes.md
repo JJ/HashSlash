@@ -9,7 +9,7 @@ La madera
 
 Nombre | Nacido - cuando | dónde |  Puesto | Otros
 --- |--- |--- |--- | ---
-Ciriaco | 1967 | | Inspector | Prepara oposiciones. Vive en la periferia granadina, Huétor. Escribe temarios de oposiciones y otro material para prepararse para la policía. 
+Ciriaco | 1967 | Granada | Inspector | Preparador de oposiciones al cuerpo de Policía. Vive en la periferia granadina, Huétor. Escribe temarios de oposiciones y otro material para prepararse para la policía. 
 Roble Sáenz | 1986 | | Subinspector | Escribe novelas de asesinatos narradas en primera persona por las víctimas.
 
 Otras fuerzas del orden

@@ -2362,6 +2362,21 @@ Tendría que hablar de nuevo con Demelza. Más que hablar, si
 podía. Pero, a pesar de la clarividencia de las apuestas en la web
 profunda, el MXE apuntaba, de nuevo, a Tina. 
 
+
+## Un tipo normal
+
+Ciriaco era un tío normal. De puro normal, era extraordinario. Cuando
+hablaban de que el español medio compraba un coche cada 10 años, el
+echaba cuentas y había cambiado cada nueve años y medio. Si iba de
+vacaciones a la costa más cercana a su ciudad, él iba de vacaciones a
+Almuñécar y, excepcionalmente, a la Rábida pero no pensaba volver. Si
+los inspectores tardaban dos años en lograr aprobar las oposiciones,
+él había empezado en septiembre de 91, el mismo día 1 de septiembre,
+todavía con el moreno pillado en Almuñécar, y terminado en julio del
+93. Nunca sacaba notas que se desviaban mucho de la media, y cuando lo
+hacía, unas veces por encima y otras veces por debajo. Era esa persona
+inexistente que se llama el español medio, y único por ello. 
+
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
 
@@ -2381,7 +2396,7 @@ cuentas, Miguel. - le dijo el forense
 Sol. 
 
 El forense miró al policía municipal. Eran casi las una de la mañana,
-y de la pastelería Mallorca, de la calle Preciados, llegaban voces
+y de la pastelería Mallorca, de la calle Preciados, de la Calle Montera, llegaban voces
 destempladas, canciones a coro y, por supuesto, palmas. El reloj,
 justo detrás del policía, comenzó a tocar los cuartos. Alguien dijo
 “Esperad, no os comáis todavía las uvas.“
