@@ -2450,6 +2450,9 @@ Tardó unos minutos. El turno todavía no había terminado, así que hizo unas c
 
 Y entonces sí terminó el turno. Una tarde bien aprovechada. Mientras tanto, ¿qué diablos habría estado haciendo Roble?
 
+## Lo que Roble había estado haciendo
+
+Roble había tenido la intención de volver a la comisaría. 
 
 
 
