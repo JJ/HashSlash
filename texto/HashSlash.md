@@ -2432,6 +2432,26 @@ Ciriaco se rió. Brevemente.
 
 —Que no lo sé, Ciri, de veras, todavía no nos ha tocado nadie que se haya metido de eso, ¿no te digo que es nueva?
 
+—Hombre, por si habías oído...
+
+—Qué cansino te puedes llegar a poner, Ciri, de verdad, ya se me había olvidado. Vamos a hacer una cosa -, dijo e hizo una pausa -, tú me mandas lo que tengas de la mandanga esta y yo pregunto por aquí o pido a los de la UDYCO información y te la paso, ¿de acuerdo? Mientras tanto, busca por la Internet, coño, que no te va a pasar nada...
+
+—Venga, quedamos en eso.
+
+—Y el café -, contestó Marisol.
+
+—Y el café. Venga, un saludo, Marisol.
+
+—Y un beso, Ciri. Mándame eso ya.
+
+Colgó y se puso a buscar el correo electrónico que tenía Marisol para enviarle el informe. Antes de enviárselo, lo corrigió, añadiendo dos comas, quitando dos puntos y coma y corrigiendo alguna falta de ortografía que le había pasado desapercibida. 
+
+Tardó unos minutos. El turno todavía no había terminado, así que hizo unas cuantas llamadas más a la lista de Tina, dejando mensajes en contestador y concertando citas para el día siguiente. 
+
+Y entonces sí terminó el turno. Una tarde bien aprovechada. Mientras tanto, ¿qué diablos habría estado haciendo Roble?
+
+
+
 
 
 
