@@ -2377,13 +2377,63 @@ todavía con el moreno pillado en Almuñécar, y terminado en julio del
 hacía, unas veces por encima y otras veces por debajo. Era esa persona
 inexistente que se llama el español medio, y único por ello. 
 
-Y una persona normal hace su trabajo con normalidad. Hace lo que tiene que hacer, ni más ni menos. Es decir, ni un poco más de lo debido ni demasiado poco como para que le caiga un paquete o simplemente sea el hazmerreír de la comisaría. O, en concreto, del Yimi. Así que mientras Roble se hacía lo que quiera que estuviera haciendo en ese momento, o nada, Ciriaco se dedicó a hacer el resumen del interrogatorio y de los informes forenses para la jueza, tecleando con dos dedos y pulgar sobre barra espaciadora y gafas sobre el puente de la nariz. Un montón de palabras, dos mil trescientas veinticinco, como informó Word fielmente, para decir que no sabían mucho y que en realidad tampoc habían descartado a nadie. "Todas las vías de investigación permanecen abiertas". Y la muerta sigue muerta, y su asesino suelto.
+Y una persona normal hace su trabajo con normalidad. Hace lo que tiene que hacer, ni más ni menos. Es decir, ni un poco más de lo debido ni demasiado poco como para que le caiga un paquete o simplemente sea el hazmerreír de la comisaría. O, en concreto, del Yimi. Así que mientras Roble se hacía lo que quiera que estuviera haciendo en ese momento, o nada, Ciriaco se dedicó a hacer el resumen del interrogatorio y de los informes forenses para la jueza, tecleando con dos dedos y pulgar sobre barra espaciadora y gafas sobre el puente de la nariz. Un montón de palabras, dos mil trescientas veinticinco, como informó Word fielmente, para decir que no sabían mucho y que en realidad tampoco habían descartado a nadie. "Todas las vías de investigación permanecen abiertas". Y la muerta sigue muerta, y su asesino suelto.
 
 Una vez enviado el informe a la jueza, que decidiría registros, imputaciones o lo que tuviera que decidir, ¿qué tocaba ahora? Lo normal. Ciriaco siempre hacía lo normal. Familia, amigos. La lista que había proporcionado Tina de los que habían asistido a la fiesta, con algunos teléfonos. Un montón de niñatos y niñatas a los que tuvo que llamar, uno por uno, para pedirles que pasaran por comisaría cuando lo tuvieran a bien, y si tenían el teléfono de un tal este o de una tal aquella. Y luego una segunda ronda para los que no habían contestado, los nuevos teléfonos, teléfonos equivocados, "Buenas tardes, soy el inspector Ciriaco Martín, ¿estoy hablando con Vicente Pérez", "Yo no he sido, no he hecho nada", "Qué me hace si no voy", "Uf, con lo liado que estoy", así toda la tarde, el turno avanzando hasta su conclusión.
 
 Y entonces, el MXE. Los informes de tóxicos se hacen por algo. Pueden haber sido un factor coadyuvante, "ayudante", decía uno de sus alumnos tutorizados, en el crimen. ¿La habían intoxicado para que no gritara o se defendiera? 
 
-No tenía ni idea de MXE. A él le sacabas del jaco y del porro y nada. Tendría que llamar a alguien de narcóticos. Buscó en el directorio de la comisaría y encontró el teléfono de Marisol, con la que había coincidido en su época de subinspector, antes de sacar las oposiciones a la escala ejecutiva. 
+No tenía ni idea de MXE. A él le sacabas del jaco y del porro y nada. Tendría que llamar a alguien de narcóticos. Buscó en el directorio de la comisaría y encontró el teléfono de Marisol, con la que había coincidido en su época de subinspector en la brigada de seguridad ciudadana, antes de sacar las oposiciones a la escala ejecutiva. 
+
+
+—González -, le contestaron desde el otro lado del teléfono.
+
+—¿Marisol? Soy el Ciri, no sé si te acordarás...
+
+—Coño, Ciri, no me voy a acordar, con la que me diste... - contestó Marisol
+
+—Nooo, que yo noooo -, replicó Ciriaco.
+
+—Coñazo con los informes que había que poner todo, los puntos y las comas. Ya los hacíamos, ¿qué más te daba que estuvieran más pallá o pacá?
+
+—Bueno, que yo...
+
+—Que es broma, Ciri, coño, que hacías bien. ¿La familia?
+
+—Más grandes ya los chavales, tendrías que verlos, y la señora... no mucho más grande, pero algo sí - respondió Ciriaco.
+
+Marisol soltó una carcajada.
+
+—Pensaba que estarías ya divorciado. A tu edad y en la madera, es lo normal.
+
+Ciriaco reflexionó sobre esto. Sería una de las pocas cosas que lo apartaba de la normalidad. También en eso era normal, porque es normal diferenciarse algo del resto de los normales. Sí es que existían.
+
+—¿Y tú? - preguntó. No había tenido excesiva confianza en aquella época y si la había tenido, no se acordaba. Así que hizo una pregunta poco comprometida, para no equivocarse.
+
+—Casada. Con un gato. Por lo civil. - Y volvió a carcajearse. - Él sanísimo, y yo, contenta de no tener que aguantar a nadie más. Ni de que me tengan que aguantar a mi. Bastante tengo con aguantaros a vosotros...
+
+Ciriaco se rió. Brevemente.
+
+—Bueno, ¿qué es lo que quieres? Porque no me habrás llamado para invitarme a un café, ¿no? ¿O también?
+
+—Je, je, cuando quieras, sí, cuando quieras. Pero te llamo por otra cosa. ¿Qué es lo que es el eme equis e?
+
+—Mandanga de la buena. Con eme, eme lo llaman. De las que llaman *emergentes*, porque están empezando ahora mismo a introducirse en el mercado. Dime más. ¿Aquí en Granada?
+
+—Sí, una chica muerta aquí, nos ha llegado el informe hoy mismo.
+
+—Chungo. No sabíamos que la estuvieran vendiendo por aquí. Pásame lo que tengas, cuando puedas. Con los puntos y las comas puestos. 
+
+—Je, je, claro. Pero, ¿qué hace?
+
+—Te coloca -, dijo Marisol, y se volvió a reír. 
+
+—Pero...
+
+—Que no lo sé, Ciri, de veras, todavía no nos ha tocado nadie que se haya metido de eso, ¿no te digo que es nueva?
+
+
+
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
