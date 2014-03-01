@@ -2073,7 +2073,7 @@ leyera y que escribiera el informe.
 
 —Porque el notas que habéis detenido no tiene cojones para matar ni a
 esa ni a nadie. Te lo dijo yo. Ese no mata más que a sí mismo a
-pajas - dijo Yimi, con su coro acompañándole con carcajadas in
+pajas -, dijo Yimi, con su coro acompañándole con carcajadas in
 crescendo. Pero, al menos, de la frase, coligió que ya tenían un
 detenido. Y fuera de turno. Y el Roble sabría algo, así que habría que
 preguntarle.
@@ -2082,9 +2082,9 @@ Se acercó, bordeando la barra y dando apretones de mano y palmadas en
 la espalda a los conocidos y colegas que se encontraba por allí, hasta
 llegar a Roble. 
 
- Roble, directamente, le acercó el móvil a la cara. Ciriaco
+Roble, directamente, le acercó el móvil a la cara. Ciriaco
 echó hacia atrás la cabeza, para poder distinguir lo que le estaba
-enseñando. Leía MXE y veía una bonita escultura de bolas dando
+enseñando. Leía MXE y veía una bonita escultura de varas y bolas dando
 vueltas, con un par de bolitas rojas y otras grises. Como un mecano,
 pero de bolas.
 
@@ -2109,17 +2109,17 @@ minuto...
 —Pero... 
 
 Roble se terminó la tónica de origen eslovaco que se estaba bebiendo
-de un trago y eructó quedamente, emitiendo un pequeño gas y tapándose
-la boca pudorosamente. Era de la misma marca que adornaba los carteles
+de un trago y eructó quedamente, emitiendo una pequeña y prácticamente invisible nube gas y tapándose
+la boca pudorosamente. La tónica era de la misma marca que adornaba los carteles
 del bar y que se presentaba, en una botella saliendo de un baño de
 burbujas de metacrilato, a los lados de los grifos de los barriles de
 Alhambra. Ciriaco nunca entendería esas ganas por probar lo nuevo,
 siempre. Lo nuevo *nunca* es mejor. Ciriaco estuvo varios años sin
 probar la
 [milnoh](http://misterbackstage.wordpress.com/2012/07/17/grxperience-blogtrip-2012-la-memoria-definitiva-granada-sensacion-experiencia-emocion-engagement/alhambra-1925/). Tuvo
-que leerlo, y escucharlo, y probar buchitos, varias veces, para
+que leer la cifra, y escucharla, y probar buchitos, varias veces, para
 convencerse de que, bueno, vale, de vez en cuando, la pediría en vez
-de una caña. Por extensión, se sentía incapaz de entender a Roble. Iba
+de la caña de Alhambra de toda la vida. Por extensión, se sentía incapaz de entender a Roble, que después de unos años seguía siendo "el nuevo". Iba
 a volverse con sus colegas, los de siempre, los que llaman al pan,
 pan, al vino, vino y a la cerveza, Alhambra, cuando Roble le dijo:
 
@@ -2376,6 +2376,14 @@ todavía con el moreno pillado en Almuñécar, y terminado en julio del
 93. Nunca sacaba notas que se desviaban mucho de la media, y cuando lo
 hacía, unas veces por encima y otras veces por debajo. Era esa persona
 inexistente que se llama el español medio, y único por ello. 
+
+Y una persona normal hace su trabajo con normalidad. Hace lo que tiene que hacer, ni más ni menos. Es decir, ni un poco más de lo debido ni demasiado poco como para que le caiga un paquete o simplemente sea el hazmerreír de la comisaría. O, en concreto, del Yimi. Así que mientras Roble se hacía lo que quiera que estuviera haciendo en ese momento, o nada, Ciriaco se dedicó a hacer el resumen del interrogatorio y de los informes forenses para la jueza, tecleando con dos dedos y pulgar sobre barra espaciadora y gafas sobre el puente de la nariz. Un montón de palabras, dos mil trescientas veinticinco, como informó Word fielmente, para decir que no sabían mucho y que en realidad tampoc habían descartado a nadie. "Todas las vías de investigación permanecen abiertas". Y la muerta sigue muerta, y su asesino suelto.
+
+Una vez enviado el informe a la jueza, que decidiría registros, imputaciones o lo que tuviera que decidir, ¿qué tocaba ahora? Lo normal. Ciriaco siempre hacía lo normal. Familia, amigos. La lista que había proporcionado Tina de los que habían asistido a la fiesta, con algunos teléfonos. Un montón de niñatos y niñatas a los que tuvo que llamar, uno por uno, para pedirles que pasaran por comisaría cuando lo tuvieran a bien, y si tenían el teléfono de un tal este o de una tal aquella. Y luego una segunda ronda para los que no habían contestado, los nuevos teléfonos, teléfonos equivocados, "Buenas tardes, soy el inspector Ciriaco Martín, ¿estoy hablando con Vicente Pérez", "Yo no he sido, no he hecho nada", "Qué me hace si no voy", "Uf, con lo liado que estoy", así toda la tarde, el turno avanzando hasta su conclusión.
+
+Y entonces, el MXE. Los informes de tóxicos se hacen por algo. Pueden haber sido un factor coadyuvante, "ayudante", decía uno de sus alumnos tutorizados, en el crimen. ¿La habían intoxicado para que no gritara o se defendiera? 
+
+No tenía ni idea de MXE. A él le sacabas del jaco y del porro y nada. Tendría que llamar a alguien de narcóticos. Buscó en el directorio de la comisaría y encontró el teléfono de Marisol, con la que había coincidido en su época de subinspector, antes de sacar las oposiciones a la escala ejecutiva. 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
