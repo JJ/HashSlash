@@ -2452,7 +2452,9 @@ Y entonces sí terminó el turno. Una tarde bien aprovechada. Mientras tanto, ¿
 
 ## Lo que Roble había estado haciendo
 
-Roble había tenido la intención de volver a la comisaría. 
+Roble había tenido la intención de volver a la comisaría. Tras conseguir encontrar a Jože el Erasmus esloveno. Pero tampoco había tenido la intención de pegarse una carrera hasta atraparlo, que fue lo que tuvo que hacer.
+
+Había conseguido de la universidad su dirección, en el barrio de Pajaritos, cerca de la estación del tren. 
 
 
 
