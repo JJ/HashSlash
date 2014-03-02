@@ -2458,8 +2458,19 @@ Había conseguido de la universidad su dirección, en el barrio de Pajaritos, ce
 
 —Está echando un café en la cafetería de la esquina. ¿No lo has visto?
 
-Dio las gracias y se fue hacia la cafetería de la esquina. Roble tenía en la mente las fotos de Jože y se había puesto una de ellas en la pulsera, para comprobaciones rápidas. Pero no habría sido difícil reconocerlo de todas formas: sólo había un par de pintores con monos llenos de parches de colores en una mesa, un grupo de tres chicas en otra mesa en la esquina, dos de ellas hablando en voz baja y una tercera tecleando en el móvil, y él solo en la barra, de alumnio, formando una escuadra. El olor a café estaba sólo una nota por encima del olor de los residuos del mismo, la zurrapa, que en ese momento el camarero vertía en un cajón debajo de la cafetera. En las paredes había carteles de olvidados partidos de fútbol de barrio, estrellas de Radio Olé y corridas de toros de antaño. Un cartel escrito en Comic Sans decía "Se prohibe el cante". 
+Dio las gracias y se fue hacia la cafetería de la esquina. Roble tenía en la mente las fotos de Jože y se había puesto una de ellas en la pulsera, para comprobaciones rápidas. Pero no habría sido difícil reconocerlo de todas formas: sólo había un par de pintores con monos llenos de parches de colores en una mesa, un grupo de tres chicas en otra mesa en la esquina, dos de ellas hablando en voz baja y una tercera tecleando en el móvil, y él solo en la barra, de aluminio, formando una escuadra. El olor a café estaba sólo una nota por encima del olor de los residuos del mismo, la zurrapa, que en ese momento el camarero vertía en un cajón debajo de la cafetera. En las paredes había carteles de olvidados partidos de fútbol de barrio, estrellas de Radio Olé y corridas de toros de antaño. Un cartel escrito en Comic Sans decía "Se proibe el cante". Roble fue hacia la barra, evitando ir directamente hacia su objetivo. Se sentó dos taburetes más allá de él y lo miró. El camarero siguió jarrucheando entre vasos de café y lo que fuera que estuviera haciendo en la cocina.
 
+—Iotsí -, se decidió Roble -, tengo que hablar contigo.
+
+Jože le miró. 
+
+—¿Quién eres? - le preguntó.
+
+—Roble Sanz, policía. 
+
+Ya había incumplido el protocolo, pero no creía que esa fuera razón suficiente como para que saliera corriendo hacia su izquierda. 
+
+Diablos, pensó Roble. Vamos a correr ahora. Conectó el app NoFlab para que tuviera en cuenta el esfuerzo realizado. 
 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
@@ -2471,7 +2482,7 @@ Dio las gracias y se fue hacia la cafetería de la esquina. Roble tenía en la m
 
 —Bueno, justo, justo... media hora arriba o abajo. - le contestó el
 forense.
-
+—
 —¿Y por qué a las doce? - contestó el agente
 
 —¿Porque más tarde se habría convertido en calabaza? A mi qué me
