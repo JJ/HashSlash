@@ -2478,7 +2478,29 @@ Lo alcanzó a la altura de los comedores universitarios, cuando trató de esquiv
 
 —Sólo hablar. ¿Hablamos?
 
-Se sentaron a descansar en los escalones de los comedores universitarios. 
+Se sentaron a descansar en los escalones de los comedores universitarios. Jože encendió un cigarro. Exhaló el humo y se quedó mirando a Roble.
+
+—Ainhoa -, dijo Roble.
+
+—Mi amiga. La han matado -, contestó.
+
+—¿Tu amiga? ¿Quién?
+
+—Tío, no sé, de verdad, no sé. Yo estuve en la fiesta, desapareció, me fui. Al día siguiente, muerta como la otra. Muchas muertas, yo no quiero saber nada, me voy a mi casa -, contestó Jože.
+
+—¿Por qué fuiste? No conocías a nadie - le preguntó Roble, recordando el mapa de conexiones entre los asistentes a la fiesta que había encontrado. 
+
+—¿Qué dices? Tú no sabes. No sabes, tíó. Conocía a Ainhoa -, contestó, chupando otra vez el cigarro y echando el humo, esta vez a la cara de Roble. Roble se tuvo que recordar a sí mismo que no todo está en la red. Uno añade la conexión, o comenta, si le apetece, si le da la gana, y si es de los que va aireando sus relaciones con otra gente. La sorpresa teñida de frustración se reflejó en su cara, así que siguió.
+
+
+
+
+
+
+
+
+
+
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
@@ -2489,7 +2511,7 @@ Se sentaron a descansar en los escalones de los comedores universitarios.
 
 —Bueno, justo, justo... media hora arriba o abajo. - le contestó el
 forense.
-—
+
 —¿Y por qué a las doce? - contestó el agente
 
 —¿Porque más tarde se habría convertido en calabaza? A mi qué me
