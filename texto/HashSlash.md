@@ -2492,7 +2492,7 @@ Se sentaron a descansar en los escalones de los comedores universitarios. Jože 
 
 —¿Por qué fuiste? No conocías a nadie - le preguntó Roble, recordando el mapa de conexiones entre los asistentes a la fiesta que había encontrado. 
 
-—¿Qué dices? Tú no sabes. No sabes, tíó. Conocía a Ainhoa -, contestó, chupando otra vez el cigarro y echando el humo, esta vez a la cara de Roble. Roble se tuvo que recordar a sí mismo que no todo está en la red. Uno añade la conexión, o comenta, si le apetece, si le da la gana, y si es de los que va aireando sus relaciones con otra gente. La sorpresa teñida de frustración se reflejó en su cara. Jože se dio cuenta, así que se explicó.
+—¿Qué dices? Tú no sabes. No sabes, tío. Conocía a Ainhoa -, contestó, chupando otra vez el cigarro y echando el humo, esta vez a la cara de Roble. Roble se tuvo que recordar a sí mismo que no todo está en la red. Uno añade la conexión, o comenta, si le apetece, si le da la gana, y si es de los que va aireando sus relaciones con otra gente. La sorpresa teñida de frustración se reflejó en su cara. Jože se dio cuenta, así que se explicó.
 
 
 —Ainhoa quería algo de allí. - dijo Jože, y Roble alzó la ceja - Sí, quería algo, ahora es muerta, ¿qué más da? Muertos no están delincuentes, ¿no es? 
