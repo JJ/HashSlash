@@ -2466,12 +2466,19 @@ Jože le miró.
 
 —¿Quién eres? - le preguntó.
 
-—Roble Sanz, policía. 
+—Roble Sáenz. Policía. 
 
 Ya había incumplido el protocolo, pero no creía que esa fuera razón suficiente como para que saliera corriendo hacia su izquierda. 
 
 Diablos, pensó Roble. Vamos a correr ahora. Conectó el app NoFlab para que tuviera en cuenta el esfuerzo realizado. 
 
+Lo alcanzó a la altura de los comedores universitarios, cuando trató de esquivar a la gente que estaba delante de ellos, esperando a los autobuses del área metropolitana, tras unos minutos. Lo agarró del cuello del abrigo y el perseguido estuvo a punto de caerse, pero recuperó y amagó un puñetazo hacia Roble. Roble lo esquivó e hizo el gesto, con el dedo índice, de "No, no, no".
+
+—¿Qué quieres? ¿Qué quierres? - preguntó Jože.
+
+—Sólo hablar. ¿Hablamos?
+
+Se sentaron a descansar en los escalones de los comedores universitarios. 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
