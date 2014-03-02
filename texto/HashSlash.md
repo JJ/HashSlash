@@ -21,7 +21,7 @@ pulgares en su móvil.
 víctima - dijo, chasqueando la lengua.
 Roble puso la boca en posición de "Ah", pero no dijo nada.
 
-—No estarás poniendo nada de esto - hizo un gesto señalando a su
+—No estarás poniendo nada de esto -, dijo, haciendo un gesto señalando a su
 alrededor con la mano - en la Internet esa.
 
 Ciriaco hizo un
@@ -46,8 +46,9 @@ sin lograrlo. - Espera, ¿qué coño has puesto? Afú, qué tropa.
 Roble aprovechó la pausa para dejar el móvil en su
 regazo y hacer copa con las manos para calentárselas. 
 
-—Nada -, dijo Roble, mientras pensaba "sólo un poco de #escenadelcrimen en Instagram".  Ya tenía más
-de veinte *likes*. Ciriaco hizo un esfuerzo para intentar ver qué era lo que
+—Nada -, dijo Roble, mientras pensaba "sólo un poco de
+#escenadelcrimen en Instagram".  Ya tenía más 
+de veinte *me gusta*. Ciriaco hizo un esfuerzo para intentar ver qué era lo que
 había en la pantalla. Se distinguían borrones rojos y figuras
 geométricas de color naranja. Poco más. Ninguna cara, nada
 distintivo que permitiera reconocer ni al sitio, ni a la
@@ -103,10 +104,10 @@ pero si te cae un paquete a mi no me líes.
 
 Roble seguía moviendo los dedos y golpeando la pantalla el teléfono.
 
-—El app de Ikea. No funciona -,
-dijo Roble, que seguía pegado al teléfono.- Normal. 
+—El app de Ikea. No funciona -, dijo Roble, que seguía pegado al
+teléfono.- Normal.  
 
-Normal que no funcionara cuando la prístina forma de un cuchillo
+Era normal que no funcionara cuando la prístina forma de un cuchillo
 diseñado por ingenieros industriales suecos estaba cubierto por todo
 tipo de sustancias orgánicas.  A los algoritmos de análisis de imagen
 les daba un pequeño ataque.
@@ -114,8 +115,8 @@ les daba un pequeño ataque.
 —¿Hay un app para eso? - Preguntó Ciriaco, curioso. - ¿Para saber qué
 cosa de Ikea es?
 
-—Hay apps para *todo* -, señaló al mueble que sostenía la televisión
-- [Byaaas](http://www.ikea.com/es/es/catalog/products/80227797/). -
+—Hay apps para *todo* -, señaló al mueble que sostenía la televisión -
+  [Byaaas](http://www.ikea.com/es/es/catalog/products/80227797/). - 
   Señaló a la mesa en la que Ciriaco había estado varias veces a punto
   de extender los pies -
   [Klingsbo](http://www.ikea.com/es/es/catalog/products/90128565/) -,
@@ -126,7 +127,7 @@ cosa de Ikea es?
   y él seguía tecleando. - No hay app - dijo aaahhh - para eso,
   ¿verdad? 
   
-  Ciriaco se rió de su propia gracia. Roble volvió al móvil, que acababa de emitir el tono que indicaba, de nuevo, que había llegado un mensaje. 
+Ciriaco se rió de su propia gracia. Roble volvió al móvil, que acababa de emitir el tono que indicaba, de nuevo, que había llegado un mensaje. 
   
  — Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Ciriaco. 
  
@@ -167,7 +168,8 @@ Roble miró en la
 pantalla. [Apollardao](http://www.frikipedia.es/friki/Diccionario_granadino). Vale. No
 tiene nada que ver con el tamaño del miembro. Con el que, en todo
 caso, no tenía por qué estar familiarizado Ciriaco en el caso de este
-tal Kevin. Al menos a estas alturas de la investigación.
+tal Kevin. Al menos diez minutos después de habérselo encontrado por
+primera vez.
 
 —¿Inocente? - preguntó Roble. 
 
@@ -203,10 +205,10 @@ miran, Ángulo, altura, este es culpable, ese no.
 
 —Vaya -, dijo Roble.
 
-—Qué.
+—Qué. - contestó Ciriaco, apoyando el puño sobre su muslo. 
 
-—Quique. El periodista. - Quique había  visto que Roble había hecho check-in en
-FourSquare en el barrio y me acaba de poner un like en él. - Viene.
+—Quique. El periodista. - Aparentemente, Quique había visto que Roble había hecho check-in en
+FourSquare en el barrio y me acaba de poner un *me gusta* en él. - Viene.
 
 —Cuidao con la polla y con el chismecico. Porque se ha enterado por el
 chismecico, ¿no? - Roble puso cara de póker. - Un día nos vas a traer
@@ -224,14 +226,14 @@ ocasional uña la pantalla de su móvil, cambiando de aplicación.
 
 —Mira, dicen que... - movió el
 pulgar verticalmente, pasando algo por la pantalla - el color de la
-sangre - movió pulgar y corazón, ampliando algo - indica que... es de
-verdad. 
+sangre - movió pulgar y corazón, ampliando algo - indica que... es auténtica.
 
 Dijo esto último bajando la voz, consciente del #fail y #vayanovedad
-implícito en sus palabras. Pero los comentaristas de la imagen no sólo
+que eran la respuesta obvia a sus palabras. Pero los comentaristas de la imagen no sólo
 habían hecho eso. También se quejaban del tratamiento Lomo de
 la foto. Poco más. Los seguidores de Dexter parecían no estar muy
-espabilados a estas horas de la mañana. Todo eso no había impedido que el número de *likes* siguiera creciendo.
+espabilados a estas horas de la mañana. Todo eso no había impedido que
+el número de *me gustas* siguiera creciendo, por otro lado.
 
 Ciriaco se volvió a sentar en el
 sillón, diciendo
@@ -243,19 +245,13 @@ encontraba el cadáver. Los dos giraron la cabeza en esa
 dirección. Luego se miraron el uno al otro y finalmente siguieron uno
 escribiendo en el móvil y otro en el bloc.
 
-Huir tampoco es fácil
+Durmiendo con un cadáver. Y luego despertando.
 ---
 
-En realidad sí lo es. Y mancha mucho menos que cualquier
-cosa que uno haya hecho para necesitar embarcarse en tal huida.
-
-Despertar
----
-
-Tina avanzó por el pasillo con una mano en la cabeza, tratando de
-contener el dolor que le latía ahí dentro y que amenazaba por expulsarle los
+Tina avanzó por el pasillo con una mano sobre la cabeza, tratando de
+contener el dolor que le latía en su interior y que amenazaba por expulsarle los
 globos oculares fuera del cráneo. Ahora mismo parecía que le había
-tomado una manía especial al ojo derecho,  así que lo mantenía cerrado
+tomado una manía especial al ojo derecho, así que lo mantenía cerrado
 y, en ocasiones, tapado con la mano derecha para mayor seguridad.
 
 Habría querido seguir en la cama. Pero había llegado un momento en que la resistencia a levantarse no había
@@ -268,7 +264,7 @@ si no, quien quiera que anduviera por la casa, que llevaba oyendo el
 chirrido de los muebles del salón durante un rato. Efectivamente, allí
 había dos personas. 
 
-Uno de ellos sí podría haber estado en la fiesta de lanzamiento del día anterior. Incluso lo
+Serían amigos de Demelza. O restos de la fiesta. Uno de ellos sí podría haber estado en la fiesta de lanzamiento del día anterior. Incluso lo
 recordaba, junto con unas trescientas caras y unos cuantos culitos preciosos. Tenía el pelo
 castaño rizado y peinado de forma que huyera de los laterales de la
 cabeza. Llevaba una
@@ -287,18 +283,23 @@ trajo Berta anoche y lo había dejado ahí. ¿Y Berta estaría en...?
 Su cerebro le estaba avisando a base de latidos dolorosos que no era
 ni momento de chequear gente ni de pensar, de hecho, nada. Así que se
 dirigió al otro, que no podría haber estado de ninguna de las maneras
-en la fiesta y cuya ropa valdría tanto como uno de los zapatos del
- *hipster*.
+en la fiesta y cuya ropa, a la hora de comprarla, valdría tanto como uno de los zapatos del
+ *hipster*. Sería amigo de un amigo. O vendedor de alguna compañía de
+ telecomunicaciones. 
 
-— ¿Tenéis un ibuprofeno? - , les preguntó. Hipster mono la miró
+— ¿Tenéis un ibuprofeno? -, les preguntó. Hipster mono la miró
 durante una fracción de segundo. El otro trató de levantarse del
 sillón, sin conseguirlo. Comenzó a cruzar el salón donde se encontraban- Da igual, ya voy a pedirle a la
-compi. 
+compi -, dijo, señalando hacia la habitación donde se el
+cadáver, silencioso, seguía esperando ser levantado. 
 
-— ¡No! - dijo el viejuno, consiguiendo finalmente levantarse y
+— ¡No! - dijo el tipo viejuno, consiguiendo finalmente levantarse y
 abriendo mucho los ojos. El otro, mientras tanto, la miraba con esas
 gafas de hipster mientras se llevaba los dedos a una de las patillas,
-la derecha, que era un poco más gorda. Para hacerle una foto, claro, a estas alturas todo el mundo sabía cómo funcionaban esas gafas de Google. Sin saber por qué, no le hizo maldita la gracia ser fotografiada. O no le habría hecho tratándose
+la derecha, que era un poco más gorda. Para hacerle una foto, claro, a
+estas alturas todo el mundo sabía cómo funcionaban esas gafas de
+Google. Sin saber por qué, no le hizo maldita la gracia ser
+fotografiada. O no le habría hecho tratándose 
 de otra persona, pero qué diablos, las fotos la amaban. Estaba mona hasta con resaca. 
 
 — Vale, vale, vale. Ya está. Cuando salga el novio, o ella, o los dos, me avisáis. Y otra
@@ -338,35 +339,6 @@ que parecía no haber sido consciente hasta ese momento de que llevaba
 sólo una camiseta, miró hacia el sur y se ruborizó. Viejo verde. Joven
 inconsciente. Qué frío hacía, caray. 
 
-
-Consejos para una huida
------
-
-La gente piensa que lo más importante a la hora de huir es moverse muy
-rápidamente. No tienen ni idea. Lo más parecido a una huida que conocen es
-cuando han escapado de un ex cambiándose de acera.
-
-Lo más importante es no mearse. 
-
-Tener ganas de mear significa no poder estar centrado en el asunto entre manos
-para concentrarse en el asunto entre piernas. Significa que tienes que
-pararte. O significa que tienes que llevar un pañal.
-
-¿Qué pasa? La gente lleva pañal. Es un inconveniente, pero no tanto
-como mearse encima. Es la diferencia entre ser un hediondo y no
-serlo. 
-
-Pero lo mejor es no tener que hacérselo ni encima ni en el pañal.
-
-Ergo: nada de café. Nada de agua. Nada de colas ni bebidas energéticas
-ni diuréticos endulzados.
-
-—¿Desea tomar algo más?
-
-—Sí, un vasito de agua para después del café, si es tan amable.
-
-Porque ¿quién está  huyendo?. Yo no. Sólo soy un escritor.
-
 Café para dos
 -----
 
@@ -395,9 +367,11 @@ o no, pero si los molestas llaman a los maderos y te cortan el rollo.
 Pero, oye, contéstame, ¿lo probaste? ¿Te gustó?
 
 Roble no sabía a qué se refería. Hizo un gesto ambiguo alzando los
-hombros y haciendo una mueca con los labios. A la vez, pensó que era una chica totalmente aceptable, aunque no el tipo de
+hombros y haciendo una mueca con los labios. A la vez, pensó que era
+una chica totalmente aceptable, aunque no el tipo de 
 chica por el que se haría algo épico, como, por ejemplo, dejar a otra
-chica. O incluso cancelar una cita. En ese momento del día, el pelo no era su fuerte. El que
+chica. O incluso cancelar una cita con amigo o amiga. En ese momento
+del día, el pelo no era su fuerte. El que 
 hubiera salido a la calle sin dedicarle cierto tiempo más allá de un
 cepillado sin vigor tampoco le había favorecido. Pero era cóncava
 donde la evolución había hecho a las mujeres cóncavas y convexa en los
@@ -515,36 +489,6 @@ sus pulseras intercambiaran los datos de contacto; Roble dejó
 su mano entrelazada unos segundos más de lo estrictamente necesario. Tina no hizo ademán
 de soltarse. 
 
-Matar
----
-
-—¿Haciendo sudokus? 
-
-No me gusta hablar con la gente. Corrijo. No me gusta hacer nada con
-la gente. Lo mío es hacerle *a* la gente. Pero a veces es inevitable
-que *la gente* te hable o te haga cosas.
-
-—No, escribiendo. 
-
-A veces contesto, si pienso que puedo darle una lección a alguien. Era
-un camarero joven, de mirada ilusa, que servilmente se esforzaba por
-satisfacer a la gente que pasaba por el café de carretera para nunca
-más volver. Del este, quizás. 
-
-—¿Escribe? ¿Novelas? - la *s*, un poco sibilante. - ¿Hay... ha publicado
-algo? 
-
-—Sí -, un sí para tres preguntas. Estaba empezando a cargarme. Me
-levanté para irme, dirigiéndome hacia la barra y dejándolo atrás.
-
-—Yo  escribo también. Y mataría por publicar. - dijo, suspirando y
-dejando de barrer por un momento.
-
-—A veces uno tiene que hacer lo que tiene que hacer -, le contesté.
-Sin mirarle. Dejé el dinero del café sobre la barra y me
-largué. Todavía me quedaba más de una hora para llegar al puerto y
-tomar el ferry.
-
 Fiambres y bocadillos
 ---
 
@@ -648,34 +592,6 @@ Quique había aprovechado para tirar unas cuantas fotos con el móvil.
 —Cuando me acuerde te la digo. Venga, puedes subir y echar unas
 fotos y cuando se le pase el berrinche te dejo cinco minutos con
 ella. Pero déjame a mi primero, hombre.
-
-Volver
----
-
-Casa es donde dejas el sombrero, ¿no? 
-
-Pero nadie usa sombrero hoy en día,
-así que tampoco existen los hogares de verdad. Pero sí hay un sitio a
-donde retornar, donde tienes unas pantuflas y dónde hay un sillón que,
-a base de ser utilizado para sentarte, se ha adaptado perfectamente a
-los contornos de tus nalgas. Y viceversa.
-
-A veces, el sillón es una persona.
-
-Cuando llego al puerto de Algeciras, a veces se ve el país que llamo,
-por lo pronto, mi casa. A veces no. Hoy es de esos días. Hay
-nubarrones negros sobre el estrecho. De esos que los escritores suelen
-usar para reflejar un temperamento sombrío o un estado de ánimo
-tormentoso en los personajes. Pero sólo son nubes. Y yo me siento
-estupendamente. 
-
-De repente, un rayo de sol abre las nubes y crea una isla de luz muy
-cerca de mi coche, donde espero para subir al ferry.
-
-Es mentira. Sigue nublado. ¿Por qué diablos iba a salir un rayo de luz
-para nadie? Pero os he hecho creer que sí, ¿verdad? 
-
-Así somos los escritores.
 
 Asuntos propios
 ----
@@ -852,7 +768,8 @@ estaba avisando de que era hora de un sueño reparador si se quería mantener
 saludable y con la piel tersa. Además, su vigilia no tenía visos de aportar nada a la investigación. Arma oportunista,
 persona sin grandes enemistades ni, aparentemente, amistades,
 categorías 
-ambas que podían pasar a la de asesinos fácilmente. Así que hacerle caso a TuSalud parecía una opción razonable, por el momento. 
+ambas que podían pasar a la de asesinos fácilmente. Así que hacerle
+caso a TuSalud parecía una opción razonable, por el momento.  
 
 Mientras pensaba esto, escuchaba la conversación que se desarrollaba en el asiento de
 atrás.  Escucha oportunista que, pensó Roble, las redes sociales nunca podrían
@@ -1081,11 +998,12 @@ relativamente novata que Roble veía por primera vez. Venían cargados
 con una bolsa reutilizable del Mercadona en la que ponía PRUEBAS
 escrito en rotulador. 
 
-—Ya avisamos nosotros a los de la furgoneta de los fiambres, - dijo el
+—Ya avisamos nosotros a los de la furgoneta de los fiambres para que suban- dijo el
 agente. 
 
 Salieron en un momento era espacial, con los trajes de papel, que
-Roble se moría por fotografiar pero que en esta ocasión no había
+Roble se moría por fotografiar pero que en esta ocasión se quedaría
+inédito al no haber
 estado suficientemente rápido como para hacerlo. Sus neuronas le
 estaban fallando, malditas. 
 
@@ -1098,9 +1016,29 @@ quedarse. Eran jóvenes, desahogadas, agradables, bien alimentadas y
 vestidas. No les importaba un carajo la muerte. Ahí había alguien, de
 cuerpo presente, que podían conocer o no, y ahí estaban las dos que
 sólo les faltaba limarse las uñas para ofrecer la imagen más completa
-de la despreocupación. En una serie americana o coreana de las que veía habrían sido dos sicópatas, que habrían una atraído a la chica a su habitación y otra asido velozmente el cuchillo del Ikea de la cocina y asestado certera puñalada en el tercer, o cuarto, o quinto, espacio intercostal.
+de la despreocupación. En una serie americana o coreana de las que
+veía habrían sido dos sicópatas;  una habría atraído a la chica a
+su habitación y la otra, avisada, habría asido velozmente el cuchillo del Ikea de la
+cocina y asestado certera puñalada en el tercer, o cuarto, o quinto,
+espacio intercostal. 
 
-En una realidad española habrían sido simplemente dos niñatas a las que les importaba poco, o nada, lo que no fuera un problema propio o algo que les pudiera proporcionar entretenimiento o diversión inmediata. En lo que no se diferenciaban tanto del propio Ciriaco, que en ese momento pensaba en el problema inmediato: lo que tendría que escribir en el informe a la jueza sobre la actitud de las dos inquilinas, no, tacha eso, sospechosas, no, tacha eso, ¿testigos? ¿Extraña? ¿Serena? ¿Sospechosa? Pero ¿sospechosa de qué? ¿De mostrarse indiferentes ante la muerte de una desconocida, o quizás no tanto, con un cierto matiz de molestia por haber sucedido todo eso en su propia habitación? El horror de la página en blanco era una nadería al lado del horror de un informe en blanco. Pero, finalmente, decidió simplemente poner "No hay ningún indicio ni actitud que ligue a *nombre completo de las chicas* a los hechos". Si la jueza decidía otra cosa, que se buscar la vida, que para eso se había sacado las oposiciones y ganaba un sueldo bastante superior al que ganaba él. 
+En una realidad española habrían sido simplemente dos niñatas a las
+que les importaba poco, o nada, lo que no fuera un problema propio o
+algo que les pudiera proporcionar entretenimiento o diversión
+inmediata. En lo que no se diferenciaban tanto del propio Ciriaco, que
+en ese momento pensaba en el problema inmediato: lo que tendría que
+escribir en el informe a la jueza sobre la actitud de las dos
+inquilinas. No, tacha eso, sospechosas. No, tacha eso, ¿testigos?
+¿Extraña? ¿Serena? ¿Sospechosa? Pero ¿sospechosa de qué? ¿De mostrarse
+indiferentes ante la muerte de una desconocida, o quizás no tanto, con
+un cierto matiz de molestia por haber sucedido todo eso en su propia
+habitación? El horror de la página en blanco era una nadería al lado
+del horror de un informe en blanco, pero afortunadamente, a base de
+oficio, era algo que Ciriaco había dejado atrás. Pero, finalmente, decidió
+simplemente poner "No hay ningún indicio ni actitud que ligue a
+*nombre completo de las chicas* a los hechos". Si la jueza decidía
+otra cosa, que se buscar la vida, que para eso se había sacado las
+oposiciones y ganaba un sueldo bastante superior al que ganaba él.  
 
 Al momento salieron de la habitación del crimen la jueza Blanco y el secretario. 
 
@@ -1146,33 +1084,6 @@ el viaje hacia su casa, acompañando en su salida a Puri y al secretario.
 Iba por la mitad de la cuesta cuando su pulsera vibró y en ella
 apareció un mensaje informándole de que se había encontrado una conexión
 entre las dos muertas. La real y la putativa. 
-
-<h2>#FAIL</h2>
-
-Los escritores debemos tener nuestras herramientas dispuestas. Como
-los cazadores, vigilamos un tema, colocamos trampas, circulamos
-alrededor del mismo, inquirimos, cavamos.
-
-Todo eso son metáforas. Pero a los escritores nos gustan las metáforas. 
-
-En realidad, usamos alertas de Google, avisos de Twitter, seguimos por
-Facebook. A mi me gusta llevar también libreta: cuando algo sucede,
-móvil en mano, boli en la otra, apunto, resumo, esquematizo. 
-
-Todo eso no son metáforas. 
-
-En medio del mar, que todavía no era bravío y no parecía tener la
-intención de serlo, a pesar de los nubarrones, vibró brevemente el
-reloj. Alguna trampa había saltado, algo le había sucedido en torno a
-mi tema. Tema que se había quedado cerrado en Granada. Que debía de
-haberse quedado cerrado en Granada.
-
-Estalla un trueno en la lontananza, cae un rayo, el mar se encrespa.
-
-Un par de palabras en un tweet de `@demechza`: “Sigo viva”. 
-
-El MF Zabaleta continúa su travesía hacia Tánger. Mi mente vuelve y mi
-cuerpo también lo hará en cuanto que pueda.
 
 ## Interludios y preludios
 
@@ -1262,26 +1173,6 @@ mecapenes ya en el segundo párrafo. Y, al parecer, no dejaba de
 hacerlo. Ni de cometer errores gramaticales. Y faltas de ortografía.
 
 Realmente, era para matarla.
-
-## La página en blanco
-
-Cualquier escritor te hablará de ese momento angustioso en el que
-tienes que enfrentarte a una página y las teclas repelen las yemas de
-tus dedos como tu cerebro repele las ideas.
-
-Comenzar. Quizás no es problema de repulsión cerebral de ideas. Antes
-al contrario, las ideas se agolpan, se aglomeran, se enredan unas con
-otras, se pelean, pero, en una victoria pírrica, todas acaban vencidas
-y ninguna te arroja el artículo que seguido de un sustantivo y más
-adelante un verbo acabarían, de por sí, constituyendo una frase.
-
-Peor es recomenzar. Cuando, una vez terminado el trabajo, el editor, los
-primeros lectores, el querido y despreciado público, lo arrojan a la
-basura y hay que empezar de nuevo.
-
-La chica no ha muerto. No la he matado, corrijo. Volvemos al principio. 
-
-Y ahora es algo personal.
 
 ## En otro mundo
 
@@ -1447,13 +1338,17 @@ escombros de mesa de bar: migas de pan, gotas de grasa, bolitas de servilletas,
 palillos de dientes partidos. La escena del crimen tras el asesinato
 de una tapa. 
 
-Roble se sentó.
+Roble se sentó, dejando [su parka de
+camuflaje de Bathing Ape](http://www.bape.com/webstore/#/1A30-140-017)
+en el perchero de la pared. Se quedó mirándola un momento, para
+prevenir posibles deslizamientos. Tina también. Ese era el otro
+objetivo del gesto. 
 
 —Así que policía, ¿no? Eso mola. ¿Eso mola?
 
 Exacto, pensó Roble. Y precisamente por ese orden.
 
-## Despertar
+## Interludio en el tálamo de Ciriaco
 
 Ciriaco se despertó cuando su mujer entró en la cama. Se dio la vuelta
 y siguió durmiendo. 
@@ -1492,25 +1387,26 @@ juego en el que los dos sabían qué iba a ocurrir y los dos sabían que
 los dos sabían qué iba a ocurrir. Importaba poco que fuera uni o
 multilateral.
 
-—Muy chulo tu chaleco, por cierto. ¿Es de...? - preguntó Tina.
+—Muy *hardcore* tu chaleco también, por cierto. ¿Es de...? - preguntó Tina.
 
-—A medida. De Liverpool. - contestó Roble.
+—A medida. De Liverpool -, contestó Roble.
 
 —Y cuesta...
 
 —Cuesta. Sí - sonrió.
 
-Medio bitcoin, sí. Le había costado casi todo lo que había obtenido
+Medio bitcoin, sí, en aquel momento. Le había costado casi todo lo que había obtenido
 con las fotos de un asesinato-suicidio particularmente escatológico. Y
 eso que las había tomado desde el umbral de la puerta, sin asomarse
 más que para ver, en general, dónde se situaban los cadáveres. Luego
 había tenido que verlas en pantalla para seleccionar las más
-enfocadas, claro, pero no sentía las mismas náuseas si no las veía en
-directo. Ni olores. 
+enfocadas, claro, pero no sentía las mismas náuseas si no lo veía, y olía, en
+directo. 
 
 Tina tampoco se vestía de baratillo. La e-pulsera que llevaba, el
 perfume, los zapatos, todo era caro. Sobre todo los zapatos. No algo
-fuera de lo habitual para una estudiante. Pero sí lo suficiente para
+fuera de lo habitual para una estudiante, y más para una estudiante de
+farmacia. Pero sí lo suficiente para
 llamar la atención de un policía. 
 
 —Y tu ropa... - introdujo Roble en la conversación. Tina contó qué le
@@ -1531,7 +1427,6 @@ de Demelza y la propia Tina. Al lado de Demelza, Kevin levantó
 brevemente la cabeza de su móvil, sin llegar a saludar y sin llegar realmente a despegar los ojos de él.
 
 —¡Hola! - dijo Demelza. 
-
 
 ## Interrogatorios a varias bandas
 
@@ -1666,44 +1561,6 @@ Demelza que se propagaron inmediatamente a Kevin, en una frecuencia creciente, c
 cuando sus labios estaban todavía cerca de su oreja:
 
 —Nos veremos pronto. 
-
-## Los trabajos y los días
-
-En realidad, no soy escritor durante todas mis horas de vigilia. Nadie
-lo es. “¿Quieres usted escribir? Viva usted primero“, le dijo un
-periclitado escritor ruso a alguien que no pasó a la historia ni como
-escritor ni como vividor. Pero yo sí he seguido ese consejo. Vivo
-antes, durante y después de escribir. Y en vez de escribir, de hecho. 
-
-Por eso, en vista de la batida en retirada de Demelza la muerta
-putativa y la necesidad de replantear esa trama, me vuelvo a Larache,
-que es donde vivo una parte de esa vida. Toda la que puedo, de hecho. 
-
-Porque los escritores, en realidad, son gente aburrida que sólo sabe
-escribir sobre la escritura. Sus personajes son escritores que tienen
-problemas de escritores y fornican con otros escritores. Y todo esto
-sucede porque no hay gente como yo que les dice sobre qué tienen que
-escribir, les dan tres o cuatro directrices, personajes, escenas, que
-ellos interpretan y muchas veces reinterpretan y vuelven a
-reinterpretar cuando no lo hacen suficientemente bien. 
-
-¿Qué pasa? ¿Está mal? ¿Es que Gaudí puso todos los ladrillos de la
-Sagrada Familia? ¿Norman Foster acristaló ese supositorio gigante de
-la City de Londres? 
-
-Ese es, precisamente, el error de los escritores, de casi todos
-ellos. Mi propio error al principio, cuando era joven, acababa de
-salir de la cárcel y pensaba que había que escribir desde las tripas y
-desde el corazón. Iluso. Hay que escribir desde el bolsillo. Y Gastón,
-Mauro, Yadiel, Yarianis, Brígida, Salvador, todos esos chicos y chicas
-que escriben lo que yo les digo y se editan y corrigen unos a otros
-hasta que yo coloco esa piedra angular, esa coma o esa frase que da el
-toque final a todo el edificio, no se engañan. Escriben porque yo les
-pago. Y yo les pago porque La Editorial me paga a mi.
-
-Pero sólo si hay contrato. Que no habrá hasta que haya esa muerte. Que
-me está resultando más difícil que las anteriores. Escribir es
-sufrir. 
 
 ## Sexo
 
@@ -1846,50 +1703,6 @@ Cabezada, tenía que ser cabezada. No, lomo. ¿O lomo y cabezada?
 Código bla bla bla artículo bla bla bla caso bla bla bla sentencia bla
 bla bla.
 
-
-## Escribir es sufrir
-
-Sufra usted primero, le dijo algún famoso escritor ruso a un no tan
-famoso escritor en ciernes. Cretino.
-
-Pero cierto. 
-
-Sufrir para volver a encontrar el tema, seguirlo, perseguirlo y,
-finalmente, atenazarlo y terminarlo. Pero el sufrimiento se exacerba
-si el tema te elude. Mucho más si se ha ido a Lituania. Allí es donde
-se ha ido la chica. Eso es lo que dice en su perfil en Facebook y sus
-tweets están geolocalizados por Vilna y alrededores. Cualquier día la
-vemos aparecer por Minsk. ¿Cómo puede haber llegado allí tan
-rápidamente? 
-
-Escribe, conocerás mundo. No lo dijo nadie, pero podía haberlo dicho
-Paul Theroux.
-
-Lituania está jodidamente lejos. Espera, eso es poco
-literario. Lituania está la hostia de lejos. 
-Tampoco es literario, pero es la pura verdad. Lo peor de los sitios
-que están lejos no es que lo estén. Sino que para llegar a ellos hay
-que pasar forzosamente por alguna etapa en la que hay una línea de
-bajo coste. O pagar varios miles de euros.
-
-Sin contrato editorial y con prisa. Vámonos a Lituania.
-
-Aunque los grandes escritores también lo son porque tienen grandes
-escritores a su
-sombra. [Escritores fantasma](http://es.wikipedia.org/wiki/Escritor_fantasma),
-los llaman. Ya los usaba para escribir las novelas que se publicaban
-bajo su nombre. ¿Por qué no usarlo para esto, esta obra literaria
-escrita sobre el papel en blanco de la realidad y con sangre? Lituania
-y asesinos a sueldo, si es que prácticamente una idea llevaba a la
-otra. 
-
-Envió desde el móvil un mensaje a sus contactos en México y Filipinas
-pidiéndoles nombres, “para documentación“. A los pocos minutos tenía
-los teléfonos de un par de ellos en Lituania. Y otros dos en
-Birmania. Nunca se sabía cuando podía venir bien un asesino a sueldo
-en Birmania.
-
-
 ## El vecino
 
 Las ventanas del cuarto de Roble estaban orientadas al este y desde
@@ -1974,7 +1787,8 @@ ahí. Cuando no era su turno, o cuando era su turno y tenía su mente en
 alguna clase o en algún otro manual para preparar oposiciones. Que
 era probablemente lo que estaba haciendo ahora.
 
-Había una cosa que le preocupaba. En la web profunda, las apuestas en `whodunnit.onion` pagaban 3 a 1 el que eventualmente fuera Demelza la
+Había una cosa que le preocupaba. En la web profunda, las apuestas en
+`whodunnit.onion` pagaban 3 a 1 el que eventualmente fuera Demelza la 
 asesina. Tina iba 25 a 1, y otros asistentes a la baja. Jože el
 esloveno estaba escalando desde el 30 a uno, y ya se pagaba 29 a
 2. Lola no aparecía. Tampoco aparecían ni él ni Ciriaco, lo que era
@@ -2041,7 +1855,13 @@ a este pillado, coño, Torres, joder, que es un momento...
 —Joder, y yo de niñera mientras, me cago en diez. ¡Torres! ¿Me miras
 los antecedentes, joder?
 
-Roble salió de la comisaría y se fue andando hacia el final de la Carretera de la Sierra, o el principio, según se mirara. Se arrebujó en su Barbour y se adentró en el día claro, luminoso y por tanto, espantosamente frío que hacía en Granada. Tan pronto el sol calentaba animosamente los centímetros cuadrados de su cara expuestos a la intemperie, como una ráfaga de aire frío le hacía arrepentirse incluso de esos pocos centímetros. 
+Roble salió de la comisaría y se fue andando hacia el final de la
+carretera de la Sierra, o el principio, según se mirara. Se arrebujó
+en su Barbour y se adentró en el día claro, luminoso y por tanto,
+espantosamente frío que hacía en Granada. Tan pronto el sol calentaba
+animosamente los centímetros cuadrados de su cara expuestos a la
+intemperie, como una ráfaga de aire frío le hacía arrepentirse incluso
+de esos pocos centímetros.  
 
 El tiempo parecía darles pistas de cómo se estaba acercando a la solución del caso: frío, frío. Era posible que este nuevo elemento diera alguna pista. Pero también era posible y más que probable que no tuviera ni idea, que fuera simplemente el vecino que se les metía en la casa a tomarse la cerveza y a lo que cayera.
 
@@ -2259,7 +2079,7 @@ leyera y que escribiera el informe.
 
 —Porque el notas que habéis detenido no tiene cojones para matar ni a
 esa ni a nadie. Te lo dijo yo. Ese no mata más que a sí mismo a
-pajas - dijo Yimi, con su coro acompañándole con carcajadas in
+pajas -, dijo Yimi, con su coro acompañándole con carcajadas in
 crescendo. Pero, al menos, de la frase, coligió que ya tenían un
 detenido. Y fuera de turno. Y el Roble sabría algo, así que habría que
 preguntarle.
@@ -2268,9 +2088,9 @@ Se acercó, bordeando la barra y dando apretones de mano y palmadas en
 la espalda a los conocidos y colegas que se encontraba por allí, hasta
 llegar a Roble. 
 
- Roble, directamente, le acercó el móvil a la cara. Ciriaco
+Roble, directamente, le acercó el móvil a la cara. Ciriaco
 echó hacia atrás la cabeza, para poder distinguir lo que le estaba
-enseñando. Leía MXE y veía una bonita escultura de bolas dando
+enseñando. Leía MXE y veía una bonita escultura de varas y bolas dando
 vueltas, con un par de bolitas rojas y otras grises. Como un mecano,
 pero de bolas.
 
@@ -2280,42 +2100,6 @@ para sí.
 —¿Y eso, qué significa?
 
 —Significa que ya tenemos al asesino.
-
-## Tradiciones acendradas
-
-Tengo un gran respeto por el gremio de los asesinos. Tradicionalmente,
-nos han inspirado a nuestro gremio, el de los escritores y, con ello,
-proporcionado un flujo de caja saneado. El gremio de los escritores,
-si no fuera por el gremio de los asesinos, tendría que convertirse, él
-mismo, en asesino. Ja ja. Eso ha tenido gracia. 
-
-Pero ese respeto por el gremio no se tiene, necesariamente, que
-trasladar individualmente a todos y cada uno de sus
-componentes. Vengan con referencias o no, los asesinos son
-avariciosos, descuidados y poco profesionales. A veces, de lo primero
-se deducía lo segundo y también lo tercero. O de lo primero lo segundo
-y lo tercero. Por eso me enervó que el primer contacto lo quisieran
-hacer en un número fijo de lo más corriente que una búsqueda en
-Internet me encontró en unos minutos. 
-
-Volví a contactar con los que me los habían recomendado y me
-aseguraron que eran buenos en lo que hacían y, sobre todo,
-discretos. No hay cualidad más encomiable que la discreción. Por eso
-finalmente me avine a llamar, usando la frase que me habían indicado,
-“¿Puedo hablar con Billy el Báltico Balístico?“. En ruso, claro. Sí,
-hablo ruso. Lo aprendí para poder leer a Tolstoi en su versión
-original. Es lo que todo escritor debe hacer.
-
-Es mentira. Lo aprendí para que me poder acceder a contratos de los servicios de seguridad rusos en mi fase de mercenario.  Mercenario profesional.
-
-Y eso sí es verdad. Fui mercenario, sí. “¿Quiere usted escribir? Viva
-usted primero“, ¿no os lo he dicho antes? ¿Es que no leéis? No, no
-debéis leer mucho, porque si no no compraríais la bazofia que me
-escriben mis amanuenses fantasmas y residentes en países
-hispanohablantes. 
-
-¿Que por qué no escribo sobre mis hazañas mercenarias? Sí, a ti te las
-voy a contar, gilipollas.
 
 ## Kevin, el asesino
 
@@ -2331,17 +2115,17 @@ minuto...
 —Pero... 
 
 Roble se terminó la tónica de origen eslovaco que se estaba bebiendo
-de un trago y eructó quedamente, emitiendo un pequeño gas y tapándose
-la boca pudorosamente. Era de la misma marca que adornaba los carteles
+de un trago y eructó quedamente, emitiendo una pequeña y prácticamente invisible nube gas y tapándose
+la boca pudorosamente. La tónica era de la misma marca que adornaba los carteles
 del bar y que se presentaba, en una botella saliendo de un baño de
 burbujas de metacrilato, a los lados de los grifos de los barriles de
 Alhambra. Ciriaco nunca entendería esas ganas por probar lo nuevo,
 siempre. Lo nuevo *nunca* es mejor. Ciriaco estuvo varios años sin
 probar la
 [milnoh](http://misterbackstage.wordpress.com/2012/07/17/grxperience-blogtrip-2012-la-memoria-definitiva-granada-sensacion-experiencia-emocion-engagement/alhambra-1925/). Tuvo
-que leerlo, y escucharlo, y probar buchitos, varias veces, para
+que leer la cifra, y escucharla, y probar buchitos, varias veces, para
 convencerse de que, bueno, vale, de vez en cuando, la pediría en vez
-de una caña. Por extensión, se sentía incapaz de entender a Roble. Iba
+de la caña de Alhambra de toda la vida. Por extensión, se sentía incapaz de entender a Roble, que después de unos años seguía siendo "el nuevo". Iba
 a volverse con sus colegas, los de siempre, los que llaman al pan,
 pan, al vino, vino y a la cerveza, Alhambra, cuando Roble le dijo:
 
@@ -2359,38 +2143,6 @@ siguió. Aunque cuando vieron desde la sala contigua a la de
 interrogatorios al detenido, preguntó al agente
 
 —¿Quién es ese tío?
-
-## Leyendo
-
-Uno de los aspectos desagradables de ser escritor es la cantidad de
-bazofia que tiene uno la obligación de leer. No me refiero a lo que escriben mis
-dilectos colegas. No es que no sea bazofia, es que no tiene uno
-ninguna obligación de leerlo. Si acaso, para adoptar y adaptar alguna
-idea que parezca interesante y que ellos hayan sido incapaces de
-desarrollar en toda sus posibilidades. 
-
-No, me refiero en general a lo que uno quiere que aparezca con su
-nombre. El flujo de trabajo hace que la escritura de mis novelas funciona como una factoría de ficción. Qué
-bien suena eso. Todo parte del impulso creador del autor, de mi. El
-*auteur*, uno no se siente autor, escritor, hasta que no lo han
-llamado de esa forma en francés. O 著 en japonés. ¿Que cómo se
-pronuncia? Lo acabo de hacer.
-
-Esquema general de la trama, personajes, ritmo, tono,
-ambientación... esas son las claves de una novela. Luego, se le envía
-a unos cuantos escritores fantasmas. Tacha escritores. Producefrases fantasmas. Porque
-o son escritores. No son *auteurs*. El *auteur* soy yo. Y ellos me
-mandan una propuesta, unos cuantos capítulos. Cada uno una versión
-diferente. Luego, vuelve a ellos, pero ninguno recibe su propia
-versión para editar y ampliar. Y al final de todo el camino, antes del
-The End y de la firma del contrato que se me está escapando por
-momento si no hago lo que tengo que hacer, reviso, pulo. 
-
-Cuando recibo las primeras regalías pago. Siempre pago, siempre
-tarde. Para escribir hay que sufrir. 
-
-Así que a sufrir leyendo las frases producidas por los
-producefrases. Más tarde tengo una llamada a Lituania. 
 
 ## Preguntas frecuentemente preguntadas
 
@@ -2595,33 +2347,229 @@ bueno, nuestra queli, pero yo enfrente.
 Pero vi al vampiro. El vampiro se la cargó. Fue un vampiro. No fui
 yo. 
 
-## Profesional
-
-No soy un avaro. Me gusta pagar a los profesionales por lo que hacen, sobre todo si yo no soy capaz de hacerlo. O, simplemente, no me apetece. Pero no soporto a la gente poco profesional. 
-
-Todo esto os puede parecer un arenque rojo. El cĺásico arenque que se le da al lector para despistarlo y apartarlo del final último. La ejecución. El objetivo. 
-
-¿Sabéis qué? A mi también. Porque la primera vez que llamé al teléfono me contestaron en lo que debía ser lituano y, cuando les pregunté por el tal Billy, me colgaron inmediatamente. Un arenque rojo debió coger el teléfono. Para apartarme del fin que quería conseguir. Los profesionales. Que quizás no lo eran tanto, si dejaban que cogiera el teléfono uno cualquiera.
-
-Pero hay que dar una segunda oportunidad. Hasta una tercera, si los hados te sonríen. A la segunda Billy el Báltico Balístico me contestó con el convenido "Nyet, pero sé por dónde pasea a su perro". Elegante, el detalle del can. A partir de ahí había que acercar el móvil al aparato para que transmitieran la información de contacto, claves de cifrado, horas de disponibilidad, como un chirrido que, como cuando los hace un grillo, tiene más información de la que uno pueda sospechar. Un detalle profesional, el del chirrido. 
-
-Nada de arenque rojo, pues. Directos al objetivo. Un paquete cifrado con fotos y coordenadas últimas. Y el dinero, claro. En una cuenta en las Caimán. Otro animal que, en estos ambientes, denota profesionalidad. Yo mismo lo uso. 
-
-Vuelta a mis galeradas. Vuelta a la escritura. Vuelta a vivir. Sólo me
-hacía falta que me proporcionaran un final para cerrar ese libro, el
-de "Demelza morirá porque a mis editores les molesta". 
-
-
 ## Esperando el turno
 
 Cuando acabaron el interrogatorio todavía no era hora de que empezaran
-el turno. Ciriaco se quedó a rellenar el informe. Roble se fue a su
-casa. Había encontrado unos cuantos expedientes con unas fotos que
+el turno. Ciriaco se quedó a rellenar el informe. A Ignacio le abrieron la puerta y le dieron la mano y una palmada en la espalda por las molestias, se alejó rezongando.
+
+Roble salió de la comisaría en dirección a su
+casa.Había encontrado unos cuantos expedientes con unas fotos que
 harían las delicias de sus clientes americanos y prefería ir a su casa
 a subirlas; no se sabía los controles que podía haber de la red,
 incluso de los que no estaban conectados a través de la propia red de
 la comisaría. Además, la red de su casa era más rápida, así que echó
-las carpetas en su Crumpler y anduvo hasta su casa. 
+las carpetas en su Crumpler y se fue andando hacia su casa. 
+
+Por el camino, volvió a comprobar las apuestas. Demelza iba a la baja,
+7 a 2 ya. Tina al alza, pero todavía nada por lo que preocuparse, ni
+ella ni, tampoco, él, 20 a 1. El esloveno había subido, pero muy
+ligeramente, 14 a 1. Ignacio había aparecido, de repente, pero no
+parecía que fuera a pasar del 30 a 1. 
+
+Tendría que hablar de nuevo con Demelza. Más que hablar, si
+podía. Pero, a pesar de la clarividencia de las apuestas en la web
+profunda, el MXE apuntaba, de nuevo, a Tina. 
+
+
+## Un tipo normal
+
+Ciriaco era un tío normal. De puro normal, era extraordinario. Cuando
+hablaban de que el español medio compraba un coche cada 10 años, el
+echaba cuentas y había cambiado cada nueve años y medio. Si iba de
+vacaciones a la costa más cercana a su ciudad, él iba de vacaciones a
+Almuñécar y, excepcionalmente, a la Rábida pero no pensaba volver. Si
+los inspectores tardaban dos años en lograr aprobar las oposiciones,
+él había empezado en septiembre de 91, el mismo día 1 de septiembre,
+todavía con el moreno pillado en Almuñécar, y terminado en julio del
+93. Nunca sacaba notas que se desviaban mucho de la media, y cuando lo
+hacía, unas veces por encima y otras veces por debajo. Era esa persona
+inexistente que se llama el español medio, y único por ello. 
+
+Y una persona normal hace su trabajo con normalidad. Hace lo que tiene que hacer, ni más ni menos. Es decir, ni un poco más de lo debido ni demasiado poco como para que le caiga un paquete o simplemente sea el hazmerreír de la comisaría. O, en concreto, del Yimi. Así que mientras Roble se hacía lo que quiera que estuviera haciendo en ese momento, o nada, Ciriaco se dedicó a hacer el resumen del interrogatorio y de los informes forenses para la jueza, tecleando con dos dedos y pulgar sobre barra espaciadora y gafas sobre el puente de la nariz. Un montón de palabras, dos mil trescientas veinticinco, como informó Word fielmente, para decir que no sabían mucho y que en realidad tampoco habían descartado a nadie. "Todas las vías de investigación permanecen abiertas". Y la muerta sigue muerta, y su asesino suelto.
+
+Una vez enviado el informe a la jueza, que decidiría registros, imputaciones o lo que tuviera que decidir, ¿qué tocaba ahora? Lo normal. Ciriaco siempre hacía lo normal. Familia, amigos. La lista que había proporcionado Tina de los que habían asistido a la fiesta, con algunos teléfonos. Un montón de niñatos y niñatas a los que tuvo que llamar, uno por uno, para pedirles que pasaran por comisaría cuando lo tuvieran a bien, y si tenían el teléfono de un tal este o de una tal aquella. Y luego una segunda ronda para los que no habían contestado, los nuevos teléfonos, teléfonos equivocados, "Buenas tardes, soy el inspector Ciriaco Martín, ¿estoy hablando con Vicente Pérez", "Yo no he sido, no he hecho nada", "Qué me hace si no voy", "Uf, con lo liado que estoy", así toda la tarde, el turno avanzando hasta su conclusión.
+
+Y entonces, el MXE. Los informes de tóxicos se hacen por algo. Pueden haber sido un factor coadyuvante, "ayudante", decía uno de sus alumnos tutorizados, en el crimen. ¿La habían intoxicado para que no gritara o se defendiera? 
+
+No tenía ni idea de MXE. A él le sacabas del jaco y del porro y nada. Tendría que llamar a alguien de narcóticos. Buscó en el directorio de la comisaría y encontró el teléfono de Marisol, con la que había coincidido en su época de subinspector en la brigada de seguridad ciudadana, antes de sacar las oposiciones a la escala ejecutiva. 
+
+
+—González -, le contestaron desde el otro lado del teléfono.
+
+—¿Marisol? Soy el Ciri, no sé si te acordarás...
+
+—Coño, Ciri, no me voy a acordar, con la que me diste... - contestó Marisol
+
+—Nooo, que yo noooo -, replicó Ciriaco.
+
+—Coñazo con los informes que había que poner todo, los puntos y las comas. Ya los hacíamos, ¿qué más te daba que estuvieran más pallá o pacá?
+
+—Bueno, que yo...
+
+—Que es broma, Ciri, coño, que hacías bien. ¿La familia?
+
+—Más grandes ya los chavales, tendrías que verlos, y la señora... no mucho más grande, pero algo sí - respondió Ciriaco.
+
+Marisol soltó una carcajada.
+
+—Pensaba que estarías ya divorciado. A tu edad y en la madera, es lo normal.
+
+Ciriaco reflexionó sobre esto. Sería una de las pocas cosas que lo apartaba de la normalidad. También en eso era normal, porque es normal diferenciarse algo del resto de los normales. Sí es que existían.
+
+—¿Y tú? - preguntó. No había tenido excesiva confianza en aquella época y si la había tenido, no se acordaba. Así que hizo una pregunta poco comprometida, para no equivocarse.
+
+—Casada. Con un gato. Por lo civil. - Y volvió a carcajearse. - Él sanísimo, y yo, contenta de no tener que aguantar a nadie más. Ni de que me tengan que aguantar a mi. Bastante tengo con aguantaros a vosotros...
+
+Ciriaco se rió. Brevemente.
+
+—Bueno, ¿qué es lo que quieres? Porque no me habrás llamado para invitarme a un café, ¿no? ¿O también?
+
+—Je, je, cuando quieras, sí, cuando quieras. Pero te llamo por otra cosa. ¿Qué es lo que es el eme equis e?
+
+—Mandanga de la buena. Con eme, eme lo llaman. De las que llaman *emergentes*, porque están empezando ahora mismo a introducirse en el mercado. Dime más. ¿Aquí en Granada?
+
+—Sí, una chica muerta aquí, nos ha llegado el informe hoy mismo.
+
+—Chungo. No sabíamos que la estuvieran vendiendo por aquí. Pásame lo que tengas, cuando puedas. Con los puntos y las comas puestos. 
+
+—Je, je, claro. Pero, ¿qué hace?
+
+—Te coloca -, dijo Marisol, y se volvió a reír. 
+
+—Pero...
+
+—Que no lo sé, Ciri, de veras, todavía no nos ha tocado nadie que se haya metido de eso, ¿no te digo que es nueva?
+
+—Hombre, por si habías oído...
+
+—Qué cansino te puedes llegar a poner, Ciri, de verdad, ya se me había olvidado. Vamos a hacer una cosa -, dijo e hizo una pausa -, tú me mandas lo que tengas de la mandanga esta y yo pregunto por aquí o pido a los de la UDYCO información y te la paso, ¿de acuerdo? Mientras tanto, busca por la Internet, coño, que no te va a pasar nada...
+
+—Venga, quedamos en eso.
+
+—Y el café -, contestó Marisol.
+
+—Y el café. Venga, un saludo, Marisol.
+
+—Y un beso, Ciri. Mándame eso ya.
+
+Colgó y se puso a buscar el correo electrónico que tenía Marisol para enviarle el informe. Antes de enviárselo, lo corrigió, añadiendo dos comas, quitando dos puntos y coma y corrigiendo alguna falta de ortografía que le había pasado desapercibida. 
+
+Tardó unos minutos. El turno todavía no había terminado, así que hizo unas cuantas llamadas más a la lista de Tina, dejando mensajes en contestador y concertando citas para el día siguiente. 
+
+Y entonces sí terminó el turno. Una tarde bien aprovechada. Mientras tanto, ¿qué diablos habría estado haciendo Roble?
+
+## Lo que Roble había estado haciendo
+
+Roble había tenido la intención de volver a la comisaría. Tras conseguir encontrar a Jože el Erasmus esloveno. Pero tampoco había tenido la intención de pegarse una carrera hasta atraparlo, que fue lo que tuvo que hacer.
+
+Había conseguido de la universidad su dirección, en el barrio de Pajaritos, cerca de la estación del tren. Eran las cuatro de la tarde, un día nublado y ventoso. Desagradable, pensó Roble, subiéndose las solapas de la parka y la cremallera hasta arriba. Las calles estaban prácticamente vacías, algún perro callejero husmeando las esquinas y parroquianos acunando un café con toda la leche caliente en las manos. Llamó al portero del piso de Jože y preguntó por él. Lo pronunció "Jocé", aunque es posible que se pronunciara "Iotsí" o algo más complicado. 
+
+—Está echando un café en la cafetería de la esquina. ¿No lo has visto?
+
+Dio las gracias y se fue hacia la cafetería de la esquina. Roble tenía en la mente las fotos de Jože y se había puesto una de ellas en la pulsera, para comprobaciones rápidas. Pero no habría sido difícil reconocerlo de todas formas: sólo había un par de pintores con monos llenos de parches de colores en una mesa, un grupo de tres chicas en otra mesa en la esquina, dos de ellas hablando en voz baja y una tercera tecleando en el móvil, y él solo en la barra, de aluminio, formando una escuadra. El olor a café estaba sólo una nota por encima del olor de los residuos del mismo, la zurrapa, que en ese momento el camarero vertía en un cajón debajo de la cafetera. En las paredes había carteles de olvidados partidos de fútbol de barrio, estrellas de Radio Olé y corridas de toros de antaño. Un cartel escrito en Comic Sans decía "Se proibe el cante". Roble fue hacia la barra, evitando ir directamente hacia su objetivo. Se sentó dos taburetes más allá de él y lo miró. El camarero siguió jarrucheando entre vasos de café y lo que fuera que estuviera haciendo en la cocina.
+
+—Iotsí -, se decidió Roble -, tengo que hablar contigo.
+
+Jože le miró. 
+
+—¿Quién eres? - le preguntó.
+
+—Roble Sáenz. Policía. 
+
+Ya había incumplido el protocolo, pero no creía que esa fuera razón suficiente como para que saliera corriendo hacia su izquierda. 
+
+Diablos, pensó Roble. Vamos a correr ahora. Conectó el app NoFlab para que tuviera en cuenta el esfuerzo realizado. 
+
+Lo alcanzó a la altura de los comedores universitarios, cuando trató de esquivar a la gente que estaba delante de ellos, esperando a los autobuses del área metropolitana, tras unos minutos. Lo agarró del cuello del abrigo y el perseguido estuvo a punto de caerse, pero recuperó y amagó un puñetazo hacia Roble. Roble lo esquivó e hizo el gesto, con el dedo índice, de "No, no, no".
+
+—¿Qué quieres? ¿Qué quierres? - preguntó Jože.
+
+—Sólo hablar. ¿Hablamos?
+
+Se sentaron a descansar en los escalones de los comedores universitarios. Jože encendió un cigarro. Exhaló el humo y se quedó mirando a Roble.
+
+—Ainhoa -, dijo Roble.
+
+—Mi amiga. La han matado -, contestó.
+
+—¿Tu amiga? ¿Quién?
+
+—Tío, no sé, de verdad, no sé. Yo estuve en la fiesta, desapareció, me fui. Al día siguiente, muerta como la otra. Muchas muertas, yo no quiero saber nada, me voy a mi casa -, contestó Jože.
+
+—¿Por qué fuiste? No conocías a nadie - le preguntó Roble, recordando el mapa de conexiones entre los asistentes a la fiesta que había encontrado. 
+
+—¿Qué dices? Tú no sabes. No sabes, tío. Conocía a Ainhoa -, contestó, chupando otra vez el cigarro y echando el humo, esta vez a la cara de Roble. Roble se tuvo que recordar a sí mismo que no todo está en la red. Uno añade la conexión, o comenta, si le apetece, si le da la gana, y si es de los que va aireando sus relaciones con otra gente. La sorpresa teñida de frustración se reflejó en su cara. Jože se dio cuenta, así que se explicó.
+
+
+—Ainhoa quería algo de allí. - dijo Jože, y Roble alzó la ceja - Sí, quería algo, ahora es muerta, ¿qué más da? Muertos no están delincuentes, ¿no es? 
+
+—La invitaron -, dijo Roble. 
+
+—Conoció de la fiesta por Facebook. Demelza invitaba a todos
+amigos. Ainhoa dice que ella es amiga. 
+
+Ainhoa, pensó Roble, era capaz de atraer a una cantidad de amigos
+considerable. Tenía amigos por encima de sus posibilidades. Y
+novios. Al pensar esto último, sintió la zona de su escroto expandirse
+y contraerse, esto último más lentamente, como el parpadeo de un
+indicador que te avisa de algo.
+
+—Y... - dijo Roble.
+
+—¿Y? ¿Y nada? Y bebimos y hablamos y...
+
+—Y... - 
+
+—¿Y qué? ¿Y está muerta? - dio una larga chupada al cigarro y
+entrecerró los ojos, pensando quién sabe en Ainhoa, a quien podía
+conocer desde hacía dos días o dos años, o en el futuro de su pequeño
+país. 
+
+Roble no acababa de entenderlo. Era todo muy normal. Te cuelas en la
+fiesta, te llevas a un amigo, el amigo te deja muerta y se va, tan
+tranquilo. Roble lo miró. No creía que le sacara mucho más. Aunque
+quizás...
+
+—Muerta por tu culpa, - dijo Roble. Era una apuesta arriesgada, pero
+tenía que intentarlo. Jugar la carta de la culpa con un eslavo no
+podía fallar. - Tú la abandonaste.
+
+Jože lo miró, se levantó y empezó a agitar los brazos, gritándole. Su
+acento a veces hacía el español indistinguible de su idioma nativo.
+
+—Tú qué sabes coño. Había mucha gente. Yo vigilaba, todo el tiempo,
+ nadie entraba, nadie salía de habitación. Ella desapareció y no la
+ veía, estaba con puerta cerrada quizás, había salido, no sabía
+ nada. Luego abrió puerta cocina y salió ella, cantaba, dijo “José, tú
+ pequeño“, miraba mano, “Te cojo con esta mano grande, te cojo“ y
+ hacía así, ella loca, loca y luego fue a habitación, a la habitación
+ que, a la habitación, y yo decía, vamos, nos verán, y ella loca, “El
+ pendrive es graaaaande y ordenador pequeñooooo“, decía, “cómo copio,
+ copio, cómo copio“, y se reía, loca, loca y se quedó allí, en la
+ cama, miraba sus manos, yo me fui, nos iban a ver, no quiero
+ problemas, yo estudio, no quiero problemas, locas dan problemas, eso
+ pensé, locas dan problemas. 
+ 
+ –Problemas... - dijo Roble. Problemas mortales. 
+
+—Era amiga, buena amiga. Pero... No quiero problemas. 
+
+Problemas iba a tener. Ya no era Ignacio el último que la había visto
+con vida. Ahora era él. De las declaraciones en el juzgado no se iba a
+librar. 
+
+Roble lo dejó allí. Estaba anocheciendo y varios apps le avisaban de
+que no estaba haciendo suficiente de algo o estaba haciendo demasiado
+de otra cosa. Tenía que escribir, No había hecho suficiente
+ejercicio. No había tomado suficiente comida sana. Y había inspirado
+demasiado humo. Ninguna de esas cosas se iba a solucionar en la
+comisaría, así que empezó a andar en dirección a su casa. 
+
+
+
+
+
+
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
@@ -2642,7 +2590,7 @@ cuentas, Miguel. - le dijo el forense
 Sol. 
 
 El forense miró al policía municipal. Eran casi las una de la mañana,
-y de la pastelería Mallorca, de la calle Preciados, llegaban voces
+y de la pastelería Mallorca, de la calle Preciados, de la Calle Montera, llegaban voces
 destempladas, canciones a coro y, por supuesto, palmas. El reloj,
 justo detrás del policía, comenzó a tocar los cuartos. Alguien dijo
 “Esperad, no os comáis todavía las uvas.“
@@ -2720,101 +2668,7 @@ Los agentes habían interrogado, sobre la marcha, a más de treinta
 personas. Algunas personas habían escuchado un disparo, otras siete y
 otras ninguno. Para algunos Julia calló al suelo tras la primera
 campanada, para otras después de la séptima. Muchos pensaron que era
-parte de la historia. 
-
-## Encontrando el camino
-
-La labor de un escritor es hacer que sus personajes encuentren su
-propio camino en el mundo que ha creado para ellos. Ese es el
-problema. Estos lituanos tenían ya el mundo creado y han sido
-incapaces de encontrar el camino que los lleve a una chica española,
-con pinta de chica española, que habla español y que va dejando todo
-tipo de pistas de por dónde anda por Vilna y las excursiones que hace
-a Riga e incluso cuando se acercó a Kiev a hacer a saber qué.  
-
-"Que no la encontramos, jefe", insisten, mientras simultáneamente piden dinero, más dinero, siempre dinero. Dinero que no tengo y que no tendré si no consigo el contrato. Porque uno escribe para que le quieran, pero yo no escribo, lo hacen por mi mis Ivanes y Alexis y Yaivan allende el Atlántico y además, lo hago por el dinero. Y la fama. Y el dinero. Para hacer una gran novela, hace falta una gran muerte.
-
-Y estos lituanos son incapaces de proporcionármela. Lo tendré que hacer yo solo.
-
-Y volando en bajo coste. 
-
-
-## Volando voy, volando vengo
-
-Hay personas en el mundo cuyo único propósito en la vida parece ser banalizar todo lo que pueda tener glamour u ofrecer algo de lujo a las grises y uniformes vidas de los mortales. Crear diamantes en una fábrica, en vez de en las entrañas de la Tierra. Cruceros con bufé libre, en vez del oropel de las comidas a mesa y mantel con el capitán y los hundimientos por colisión con iceberg. 
-
-Y volar. 
-
-Volar puede ser lujoso, cómodo, una experiencia guardada en los
-anaqueles de ese sitio feliz al que uno va cuando su entorno o
-circunstancias se lo aconsejan. Pues el señor Ryan, el señor Easy y
-algunos otros señores se han dedicado a extraer de ellos cualquier
-brizna de comodidad, de tranquilidad. 
-
-De pudor.
-
-El viaje a Lituania pasaba por muchos países que no conocía y que
-nunca, si las circunstancias hubieran sido otras, habría querido
-visitar. Me ofrecía cierto consuelo el hecho que, de ese país, iba a
-conocer sólo el hecho de que los guardias de fronteras, si es que
-todavía tenían, usaran gorras perfectamente circulares u
-ovoides. Algunos países lo más que pueden ofrecerte es una estancia
-breve y aislada en un aeropuerto breve y aislado de los que suele
-frecuentar Ryanair.
-
-Cuando los frecuenta, claro, y no cancela sin ningún pudor el vuelo
-alegando escasez de pasaje. Cosa, por otro lado, totalmente
-natural. ¿Quién va a querer volar al lago Balatón en pleno mes de
-enero? Uno se lo imagina azotado por las ventiscas, con el esqueleto grisáceo
-de un navío gangrenado deshaciéndose en sus orillas, y sombras
-oscilantes que, en la distancia, pueden ser icebergs o algún
-francotirador soviético buscando capitalistas que matar por desconocer
-que la guerra fría terminó, empezó y al parecer terminó de nuevo.
-
-Impúdico es volar allí, impúdico es impedir hacerlo. "Le devolvemos el
-dinero". Me dijeron. "Lo verá en su tarjeta de crédito el mes que
-viene". 
-
-Lo que me dejaba aún con menos dinero. No es que me quedara poco. Es
-que, eventualmente, el retorno de inversión y las molestias
-ocasionadas por este trabajo literario podían ser demasiado escasas
-para seguir con él. 
-
-Pero todavía no habíamos llegado a ese punto. Así que me dirigí a la
-agencia de viajes que siempre suele haber, o solía haber, en los
-aeropuertos para evitar a gente que valora su tiempo y su salud, como yo,
-deterioro de la vista por el uso de aparatos electrónicos y paseos
-diversos por mostradores que sólo son capaces de ofrecer, como en los
-grandes almacenes, lo que está a la vista.
-
-"Puede ir en tren a París. Desde allí toma un vuelo hacia su
-destino". Le pregunté cuanto se tardaba, y me dijo que unas 12 horas,
-incluyendo el transbordo en Barcelona.Eso me situaba, como muy pronto,
-al día siguiente por la mañana en Lituania. Ya había pasado una
-quincena y un día más... un día más era un día más. Tenía que llegar
-hoy, esta tarde.
-
-"Puede intentarlo por Mallorca. De ahí, a Alemania hay decenas de
-vuelo diarios y a partir de ahí llega fácilmente a Lituania" Me dijo,
-exponiéndome una verdadera *blitzkrieg* turística,
-contenta de poder ser útil y de que hubiera alguien que la sacara de
-su tedio y le encargara un verdadero reto. "Es más barato que por
-París, además". Mencionada la palabra mágica, cerramos el trato aunque
-pareció algo renuente de que le pagara toda la cantidad en metálico. Y
-que no cerrara también el billete de vuelta. "Quién sabe lo que puedo
-tardar allí. Es un negocio complicado" Cuando existía el glamour, se
-podían sacar billetes con vuelta abierta. Alguien se lo había cargado
-junto con la posibilidad de elegir asiento y de recibir unos
-cacahuetes rancios, pero útiles para iniciar conversación con el
-compañero de asiento. Ya nadie habla. Porque no dan cacahuetes. Todo
-el mundo vuela como si fuera un trámite que hay que pasar, como el
-acné de la adolescencia que es el tránsito hacia la flor de la
-juventud. Y todo es culpa del señor Ryan y el señor Easy. Pronto
-descubriría que el señor Berlín también tenía culpa. Y mucha. 
-
-Salí de la agencia con tarjetas de embarque que me colocaban, o
-colocarían, o podían colocarme, más cerca de Demelza. Y a la tal
-Demelza, más cerca de su destino final. 
+parte de la narración. Pero no lo era. El cuento, verdaderamente, se había acabado para Julia.  
 
 ## Agradecimientos
 
