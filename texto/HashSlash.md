@@ -2542,7 +2542,7 @@ acento a veces hacía el español indistinguible de su idioma nativo.
  hacía así, ella loca, loca y luego fue a habitación, a la habitación
  que, a la habitación, y yo decía, vamos, nos verán, y ella loca, “El
  pendrive es graaaaande y ordenador pequeñooooo“, decía, “cómo copio,
- copio, cómo copio“, y se reía, loca, loca y se quedó allí, en la
+ copio, cómo copio, no puedo, no entra, como copio“, y se reía, loca, loca y se quedó allí, en la
  cama, miraba sus manos, yo me fui, nos iban a ver, no quiero
  problemas, yo estudio, no quiero problemas, locas dan problemas, eso
  pensé, locas dan problemas. 
