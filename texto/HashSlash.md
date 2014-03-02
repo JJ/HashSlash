@@ -43,7 +43,8 @@ sin lograrlo. - Espera, ¿qué coño has puesto? Afú, qué tropa.
 Roble aprovechó la pausa para dejar el móvil en su
 regazo y hacer copa con las manos para calentárselas. 
 
-—Nada -, dijo Roble, mientras pensaba "sólo un poco de #escenadelcrimen en Instagram".  Ya tenía más
+—Nada -, dijo Roble, mientras pensaba "sólo un poco de
+#escenadelcrimen en Instagram".  Ya tenía más 
 de veinte *me gusta*. Ciriaco hizo un esfuerzo para intentar ver qué era lo que
 había en la pantalla. Se distinguían borrones rojos y figuras
 geométricas de color naranja. Poco más. Ninguna cara, nada
@@ -260,7 +261,7 @@ si no, quien quiera que anduviera por la casa, que llevaba oyendo el
 chirrido de los muebles del salón durante un rato. Efectivamente, allí
 había dos personas. 
 
-Uno de ellos sí podría haber estado en la fiesta de lanzamiento del día anterior. Incluso lo
+Serían amigos de Demelza. O restos de la fiesta. Uno de ellos sí podría haber estado en la fiesta de lanzamiento del día anterior. Incluso lo
 recordaba, junto con unas trescientas caras y unos cuantos culitos preciosos. Tenía el pelo
 castaño rizado y peinado de forma que huyera de los laterales de la
 cabeza. Llevaba una
@@ -280,17 +281,22 @@ Su cerebro le estaba avisando a base de latidos dolorosos que no era
 ni momento de chequear gente ni de pensar, de hecho, nada. Así que se
 dirigió al otro, que no podría haber estado de ninguna de las maneras
 en la fiesta y cuya ropa, a la hora de comprarla, valdría tanto como uno de los zapatos del
- *hipster*.
+ *hipster*. Sería amigo de un amigo. O vendedor de alguna compañía de
+ telecomunicaciones. 
 
 — ¿Tenéis un ibuprofeno? -, les preguntó. Hipster mono la miró
 durante una fracción de segundo. El otro trató de levantarse del
 sillón, sin conseguirlo. Comenzó a cruzar el salón donde se encontraban- Da igual, ya voy a pedirle a la
-compi. 
+compi -, dijo, señalando hacia la habitación donde se el
+cadáver, silencioso, seguía esperando ser levantado. 
 
-— ¡No! - dijo el viejuno, consiguiendo finalmente levantarse y
+— ¡No! - dijo el tipo viejuno, consiguiendo finalmente levantarse y
 abriendo mucho los ojos. El otro, mientras tanto, la miraba con esas
 gafas de hipster mientras se llevaba los dedos a una de las patillas,
-la derecha, que era un poco más gorda. Para hacerle una foto, claro, a estas alturas todo el mundo sabía cómo funcionaban esas gafas de Google. Sin saber por qué, no le hizo maldita la gracia ser fotografiada. O no le habría hecho tratándose
+la derecha, que era un poco más gorda. Para hacerle una foto, claro, a
+estas alturas todo el mundo sabía cómo funcionaban esas gafas de
+Google. Sin saber por qué, no le hizo maldita la gracia ser
+fotografiada. O no le habría hecho tratándose 
 de otra persona, pero qué diablos, las fotos la amaban. Estaba mona hasta con resaca. 
 
 — Vale, vale, vale. Ya está. Cuando salga el novio, o ella, o los dos, me avisáis. Y otra
@@ -358,9 +364,11 @@ o no, pero si los molestas llaman a los maderos y te cortan el rollo.
 Pero, oye, contéstame, ¿lo probaste? ¿Te gustó?
 
 Roble no sabía a qué se refería. Hizo un gesto ambiguo alzando los
-hombros y haciendo una mueca con los labios. A la vez, pensó que era una chica totalmente aceptable, aunque no el tipo de
+hombros y haciendo una mueca con los labios. A la vez, pensó que era
+una chica totalmente aceptable, aunque no el tipo de 
 chica por el que se haría algo épico, como, por ejemplo, dejar a otra
-chica. O incluso cancelar una cita. En ese momento del día, el pelo no era su fuerte. El que
+chica. O incluso cancelar una cita con amigo o amiga. En ese momento
+del día, el pelo no era su fuerte. El que 
 hubiera salido a la calle sin dedicarle cierto tiempo más allá de un
 cepillado sin vigor tampoco le había favorecido. Pero era cóncava
 donde la evolución había hecho a las mujeres cóncavas y convexa en los
@@ -757,7 +765,8 @@ estaba avisando de que era hora de un sueño reparador si se quería mantener
 saludable y con la piel tersa. Además, su vigilia no tenía visos de aportar nada a la investigación. Arma oportunista,
 persona sin grandes enemistades ni, aparentemente, amistades,
 categorías 
-ambas que podían pasar a la de asesinos fácilmente. Así que hacerle caso a TuSalud parecía una opción razonable, por el momento. 
+ambas que podían pasar a la de asesinos fácilmente. Así que hacerle
+caso a TuSalud parecía una opción razonable, por el momento.  
 
 Mientras pensaba esto, escuchaba la conversación que se desarrollaba en el asiento de
 atrás.  Escucha oportunista que, pensó Roble, las redes sociales nunca podrían
@@ -986,11 +995,12 @@ relativamente novata que Roble veía por primera vez. Venían cargados
 con una bolsa reutilizable del Mercadona en la que ponía PRUEBAS
 escrito en rotulador. 
 
-—Ya avisamos nosotros a los de la furgoneta de los fiambres, - dijo el
+—Ya avisamos nosotros a los de la furgoneta de los fiambres para que suban- dijo el
 agente. 
 
 Salieron en un momento era espacial, con los trajes de papel, que
-Roble se moría por fotografiar pero que en esta ocasión no había
+Roble se moría por fotografiar pero que en esta ocasión se quedaría
+inédito al no haber
 estado suficientemente rápido como para hacerlo. Sus neuronas le
 estaban fallando, malditas. 
 
@@ -1003,9 +1013,29 @@ quedarse. Eran jóvenes, desahogadas, agradables, bien alimentadas y
 vestidas. No les importaba un carajo la muerte. Ahí había alguien, de
 cuerpo presente, que podían conocer o no, y ahí estaban las dos que
 sólo les faltaba limarse las uñas para ofrecer la imagen más completa
-de la despreocupación. En una serie americana o coreana de las que veía habrían sido dos sicópatas, que habrían una atraído a la chica a su habitación y otra asido velozmente el cuchillo del Ikea de la cocina y asestado certera puñalada en el tercer, o cuarto, o quinto, espacio intercostal.
+de la despreocupación. En una serie americana o coreana de las que
+veía habrían sido dos sicópatas;  una habría atraído a la chica a
+su habitación y la otra, avisada, habría asido velozmente el cuchillo del Ikea de la
+cocina y asestado certera puñalada en el tercer, o cuarto, o quinto,
+espacio intercostal. 
 
-En una realidad española habrían sido simplemente dos niñatas a las que les importaba poco, o nada, lo que no fuera un problema propio o algo que les pudiera proporcionar entretenimiento o diversión inmediata. En lo que no se diferenciaban tanto del propio Ciriaco, que en ese momento pensaba en el problema inmediato: lo que tendría que escribir en el informe a la jueza sobre la actitud de las dos inquilinas, no, tacha eso, sospechosas, no, tacha eso, ¿testigos? ¿Extraña? ¿Serena? ¿Sospechosa? Pero ¿sospechosa de qué? ¿De mostrarse indiferentes ante la muerte de una desconocida, o quizás no tanto, con un cierto matiz de molestia por haber sucedido todo eso en su propia habitación? El horror de la página en blanco era una nadería al lado del horror de un informe en blanco. Pero, finalmente, decidió simplemente poner "No hay ningún indicio ni actitud que ligue a *nombre completo de las chicas* a los hechos". Si la jueza decidía otra cosa, que se buscar la vida, que para eso se había sacado las oposiciones y ganaba un sueldo bastante superior al que ganaba él. 
+En una realidad española habrían sido simplemente dos niñatas a las
+que les importaba poco, o nada, lo que no fuera un problema propio o
+algo que les pudiera proporcionar entretenimiento o diversión
+inmediata. En lo que no se diferenciaban tanto del propio Ciriaco, que
+en ese momento pensaba en el problema inmediato: lo que tendría que
+escribir en el informe a la jueza sobre la actitud de las dos
+inquilinas. No, tacha eso, sospechosas. No, tacha eso, ¿testigos?
+¿Extraña? ¿Serena? ¿Sospechosa? Pero ¿sospechosa de qué? ¿De mostrarse
+indiferentes ante la muerte de una desconocida, o quizás no tanto, con
+un cierto matiz de molestia por haber sucedido todo eso en su propia
+habitación? El horror de la página en blanco era una nadería al lado
+del horror de un informe en blanco, pero afortunadamente, a base de
+oficio, era algo que Ciriaco había dejado atrás. Pero, finalmente, decidió
+simplemente poner "No hay ningún indicio ni actitud que ligue a
+*nombre completo de las chicas* a los hechos". Si la jueza decidía
+otra cosa, que se buscar la vida, que para eso se había sacado las
+oposiciones y ganaba un sueldo bastante superior al que ganaba él.  
 
 Al momento salieron de la habitación del crimen la jueza Blanco y el secretario. 
 
@@ -1051,33 +1081,6 @@ el viaje hacia su casa, acompañando en su salida a Puri y al secretario.
 Iba por la mitad de la cuesta cuando su pulsera vibró y en ella
 apareció un mensaje informándole de que se había encontrado una conexión
 entre las dos muertas. La real y la putativa. 
-
-<h2>#FAIL</h2>
-
-Los escritores debemos tener nuestras herramientas dispuestas. Como
-los cazadores, vigilamos un tema, colocamos trampas, circulamos
-alrededor del mismo, inquirimos, cavamos.
-
-Todo eso son metáforas. Pero a los escritores nos gustan las metáforas. 
-
-En realidad, usamos alertas de Google, avisos de Twitter, seguimos por
-Facebook. A mi me gusta llevar también libreta: cuando algo sucede,
-móvil en mano, boli en la otra, apunto, resumo, esquematizo. 
-
-Todo eso no son metáforas. 
-
-En medio del mar, que todavía no era bravío y no parecía tener la
-intención de serlo, a pesar de los nubarrones, vibró brevemente el
-reloj. Alguna trampa había saltado, algo le había sucedido en torno a
-mi tema. Tema que se había quedado cerrado en Granada. Que debía de
-haberse quedado cerrado en Granada.
-
-Estalla un trueno en la lontananza, cae un rayo, el mar se encrespa.
-
-Un par de palabras en un tweet de `@demechza`: “Sigo viva”. 
-
-El MF Zabaleta continúa su travesía hacia Tánger. Mi mente vuelve y mi
-cuerpo también lo hará en cuanto que pueda.
 
 ## Interludios y preludios
 
@@ -2499,9 +2502,65 @@ Se sentaron a descansar en los escalones de los comedores universitarios. Jože 
 
 —La invitaron -, dijo Roble. 
 
-—Conoció de la fiesta por Facebook
+—Conoció de la fiesta por Facebook. Demelza invitaba a todos
+amigos. Ainhoa dice que ella es amiga. 
 
+Ainhoa, pensó Roble, era capaz de atraer a una cantidad de amigos
+considerable. Tenía amigos por encima de sus posibilidades. Y
+novios. Al pensar esto último, sintió la zona de su escroto expandirse
+y contraerse, esto último más lentamente, como el parpadeo de un
+indicador que te avisa de algo.
 
+—Y... - dijo Roble.
+
+—¿Y? ¿Y nada? Y bebimos y hablamos y...
+
+—Y... - 
+
+—¿Y qué? ¿Y está muerta? - dio una larga chupada al cigarro y
+entrecerró los ojos, pensando quién sabe en Ainhoa, a quien podía
+conocer desde hacía dos días o dos años, o en el futuro de su pequeño
+país. 
+
+Roble no acababa de entenderlo. Era todo muy normal. Te cuelas en la
+fiesta, te llevas a un amigo, el amigo te deja muerta y se va, tan
+tranquilo. Roble lo miró. No creía que le sacara mucho más. Aunque
+quizás...
+
+—Muerta por tu culpa, - dijo Roble. Era una apuesta arriesgada, pero
+tenía que intentarlo. Jugar la carta de la culpa con un eslavo no
+podía fallar. - Tú la abandonaste.
+
+Jože lo miró, se levantó y empezó a agitar los brazos, gritándole. Su
+acento a veces hacía el español indistinguible de su idioma nativo.
+
+—Tú qué sabes coño. Había mucha gente. Yo vigilaba, todo el tiempo,
+ nadie entraba, nadie salía de habitación. Ella desapareció y no la
+ veía, estaba con puerta cerrada quizás, había salido, no sabía
+ nada. Luego abrió puerta cocina y salió ella, cantaba, dijo “José, tú
+ pequeño“, miraba mano, “Te cojo con esta mano grande, te cojo“ y
+ hacía así, ella loca, loca y luego fue a habitación, a la habitación
+ que, a la habitación, y yo decía, vamos, nos verán, y ella loca, “El
+ pendrive es graaaaande y ordenador pequeñooooo“, decía, “cómo copio,
+ copio, cómo copio“, y se reía, loca, loca y se quedó allí, en la
+ cama, miraba sus manos, yo me fui, nos iban a ver, no quiero
+ problemas, yo estudio, no quiero problemas, locas dan problemas, eso
+ pensé, locas dan problemas. 
+ 
+ –Problemas... - dijo Roble. Problemas mortales. 
+
+—Era amiga, buena amiga. Pero... No quiero problemas. 
+
+Problemas iba a tener. Ya no era Ignacio el último que la había visto
+con vida. Ahora era él. De las declaraciones en el juzgado no se iba a
+librar. 
+
+Roble lo dejó allí. Estaba anocheciendo y varios apps le avisaban de
+que no estaba haciendo suficiente de algo o estaba haciendo demasiado
+de otra cosa. Tenía que escribir, No había hecho suficiente
+ejercicio. No había tomado suficiente comida sana. Y había inspirado
+demasiado humo. Ninguna de esas cosas se iba a solucionar en la
+comisaría, así que empezó a andar en dirección a su casa. 
 
 
 
