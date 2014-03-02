@@ -2344,8 +2344,10 @@ yo.
 ## Esperando el turno
 
 Cuando acabaron el interrogatorio todavía no era hora de que empezaran
-el turno. Ciriaco se quedó a rellenar el informe. Roble se fue a su
-casa. Había encontrado unos cuantos expedientes con unas fotos que
+el turno. Ciriaco se quedó a rellenar el informe. A Ignacio le abrieron la puerta y le dieron la mano y una palmada en la espalda por las molestias, se alejó rezongando.
+
+Roble salió de la comisaría en dirección a su
+casa.Había encontrado unos cuantos expedientes con unas fotos que
 harían las delicias de sus clientes americanos y prefería ir a su casa
 a subirlas; no se sabía los controles que podía haber de la red,
 incluso de los que no estaban conectados a través de la propia red de
@@ -2490,9 +2492,14 @@ Se sentaron a descansar en los escalones de los comedores universitarios. Jože 
 
 —¿Por qué fuiste? No conocías a nadie - le preguntó Roble, recordando el mapa de conexiones entre los asistentes a la fiesta que había encontrado. 
 
-—¿Qué dices? Tú no sabes. No sabes, tíó. Conocía a Ainhoa -, contestó, chupando otra vez el cigarro y echando el humo, esta vez a la cara de Roble. Roble se tuvo que recordar a sí mismo que no todo está en la red. Uno añade la conexión, o comenta, si le apetece, si le da la gana, y si es de los que va aireando sus relaciones con otra gente. La sorpresa teñida de frustración se reflejó en su cara, así que siguió.
+—¿Qué dices? Tú no sabes. No sabes, tíó. Conocía a Ainhoa -, contestó, chupando otra vez el cigarro y echando el humo, esta vez a la cara de Roble. Roble se tuvo que recordar a sí mismo que no todo está en la red. Uno añade la conexión, o comenta, si le apetece, si le da la gana, y si es de los que va aireando sus relaciones con otra gente. La sorpresa teñida de frustración se reflejó en su cara. Jože se dio cuenta, así que se explicó.
 
 
+—Ainhoa quería algo de allí. - dijo Jože, y Roble alzó la ceja - Sí, quería algo, ahora es muerta, ¿qué más da? Muertos no están delincuentes, ¿no es? 
+
+—La invitaron -, dijo Roble. 
+
+—Conoció de la fiesta por Facebook
 
 
 
