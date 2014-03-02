@@ -2454,9 +2454,11 @@ Y entonces sí terminó el turno. Una tarde bien aprovechada. Mientras tanto, ¿
 
 Roble había tenido la intención de volver a la comisaría. Tras conseguir encontrar a Jože el Erasmus esloveno. Pero tampoco había tenido la intención de pegarse una carrera hasta atraparlo, que fue lo que tuvo que hacer.
 
-Había conseguido de la universidad su dirección, en el barrio de Pajaritos, cerca de la estación del tren. 
+Había conseguido de la universidad su dirección, en el barrio de Pajaritos, cerca de la estación del tren. Eran las cuatro de la tarde, un día nublado y ventoso. Desagradable, pensó Roble, subiéndose las solapas de la parka y la cremallera hasta arriba. Las calles estaban prácticamente vacías, algún perro callejero husmeando las esquinas y parroquianos acunando un café con toda la leche caliente en las manos. Llamó al portero del piso de Jože y preguntó por él. Lo pronunció "Jocé", aunque es posible que se pronunciara "Iotsí" o algo más complicado. 
 
+—Está echando un café en la cafetería de la esquina. ¿No lo has visto?
 
+Dio las gracias y se fue hacia la cafetería de la esquina. Roble tenía en la mente las fotos de Jože y se había puesto una de ellas en la pulsera, para comprobaciones rápidas. Pero no habría sido difícil reconocerlo de todas formas: sólo había un par de pintores con monos llenos de parches de colores en una mesa, un grupo de tres chicas en otra mesa en la esquina, dos de ellas hablando en voz baja y una tercera tecleando en el móvil, y él solo en la barra, de alumnio, formando una escuadra. El olor a café estaba sólo una nota por encima del olor de los residuos del mismo, la zurrapa, que en ese momento el camarero vertía en un cajón debajo de la cafetera. En las paredes había carteles de olvidados partidos de fútbol de barrio, estrellas de Radio Olé y corridas de toros de antaño. Un cartel escrito en Comic Sans decía "Se prohibe el cante". 
 
 
 
