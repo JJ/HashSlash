@@ -2627,13 +2627,23 @@ momento zen, y cortando con el cuchillo del Ikea vuelve a pensar en el
 otro cuchillo del Ikea, haciéndole descender por un momento a la
 tierra. 
 
+¿Cómo era la herida? ¿Horizontal o vertical? ¿O diagonal? Y ¿sólo una
+herida? Se paró un momento para tratar de recordar el informe de la
+autopsia, pero más allá de “herida inciso punzante“ no recordaba gran
+cosa. ¿O era inciso contusa?
+
+Le salió una loncha de jamón demasiado pequeña y que dejó ondulaciones
+en el jamón. Dejó de pensar en esas cosas y se concentró en las
+heridas cortantes que le hacía al jamón, a quien, en este momento,
+poco le importaba ya. 
+
 
 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
 
-—Justo a las 12 de la noche - dijo el forense.
+—Justo a las doce de la noche - dijo el forense.
 
 —¿Justo? No me jodas. - le contestó el agente de policía.
 
@@ -2643,20 +2653,25 @@ forense.
 —¿Y por qué a las doce? - contestó el agente
 
 —¿Porque más tarde se habría convertido en calabaza? A mi qué me
-cuentas, Miguel. - le dijo el forense
+cuentas, Miguel -, le dijo el forense. 
 
-—No, lo que yo digo es que quién querría matar a una mujer a las 12 de la noche en la puerta del
+—No, lo que yo digo es que quién querría matar a una mujer a las doce de la noche en la puerta del
 Sol. 
 
 El forense miró al policía municipal. Eran casi las una de la mañana,
-y de la pastelería Mallorca, de la calle Preciados, de la Calle Montera, llegaban voces
+y de la pastelería Mallorca, de la calle Preciados, de la calle
+Montera, de la Carrera de San Jerónimo, llegaban voces
 destempladas, canciones a coro y, por supuesto, palmas. El reloj,
 justo detrás del policía, comenzó a tocar los cuartos. Alguien dijo
-“Esperad, no os comáis todavía las uvas.“
+“Esperad, no os comáis todavía las uvas“.
 
 Alrededor del cadáver de Julia habían tenido que poner vallas
 amarillas para contener a la multitud que se congregó y que sacaba
-decenas de miles de fotos. 
+decenas de miles de fotos, fotos de ambiente, selfies con muerta,
+fotos geoposicionadas, recuerdos indelebles de una medianoche en
+Madrid. 
+
+—Alguien muy puntual. 
 
 ## Fotos con muertas
 
@@ -2666,7 +2681,7 @@ sitio, Sevilla, Barcelona. No era fácil, pero mientras tanto había
 montado una red de contactos por toda España en la que los forenses
 le vendían las fotos que tomaban y él les buscaba comprador. 
 
-La foto que le llegó desde Madrid era una joya. Una mujer joven,
+La foto que le llegó desde Madrid era una joya con un potencial viral termendo. Una mujer joven,
 vestida de rojo, sin ninguna herida aparente, con las luces de la
 Puerta del Sol reflejándose en la sangre todavía fresca. 
 
@@ -2676,7 +2691,7 @@ detalles, detalles morbosos, así que a partir del nombre que le
 proporcionó su contacto, Julia Matesanz Vázquez buscó si había una
 pareja con la que hubiera hecho planes vitales, una madre a la que
 cuidaba, o un hámster al que alimentaba que estuvieran en ese momento
-desconsolados, desconsuelo que en Suecia se compraba al por mayor.
+desconsolados, desconsuelo que en Suecia se compraba al por mayor. 
 
 Encontró inmediatamente su perfil en redes sociales. Julia Matesanz,
 autora de literatura ambulatoria. Roble era lo suficientemente leído
