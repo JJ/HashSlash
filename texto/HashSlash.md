@@ -2563,7 +2563,66 @@ demasiado humo. Ninguna de esas cosas se iba a solucionar en la
 comisaría, así que empezó a andar en dirección a su casa. 
 
 
+## La clave de la felicidad
 
+Ciriaco recibió un mensaje de WhatsApp de Roble a su móvil personal
+según se bajaba del coche y abría la puerta del garaje. “Jose el
+esloveno descartado“. No sabía de quién diablos estaba hablando. Pero
+el hecho de que fueran capaces de descartar a otra persona, de los
+miles de millones que había por el mundo, le hizo feliz.
+
+En realidad, tampoco era difícil hacer feliz a Ciriaco. Siempre era
+feliz por la simple razón de que redefinía *felicidad* como el estado
+en el que se encontraba en cada momento, o, mejor dicho, con haber
+cubierto las necesidades que necesitaba cubrir en cada momento. Que no
+eran muchas, ahí estaba la clave de la necesidad. Era un poco zen. O
+simplemente acomodaticio. Habría querido casarse con la chica más
+guapa de su instituto, pero en vez de eso, redefinió su necesidad como
+alcanzar la chica que fuera alcanzable, sin más exigencias. Habría
+querido entrar en la escala ejecutiva directamente, al acabar la
+carrera. Pero redefinió sus aspiraciones a la escala básica, y ya
+entraría a la ejecutiva por promoción interna, y lo consiguió, y fue
+feliz. Habría querido estudiar medicina, pero cuando no le alcanzó la
+nota optó por Trabajo Social, y fue feliz porque lo porque lo poco que
+se le pegó en esa carrera le había resultado bastante útil para tratar
+con sus compañeros, tan diversos y tan especiales. Como Roble. 
+
+Se acercó primero al salón donde su mujer hojeaba algo en el tablet
+mientras escuchaba, o ignoraba, la televisión encendida. Le dio un
+beso algo más cariñoso que habitualmente y ella se dejó hacer. Viendo
+cancha, atacó
+
+—¿Cenamos algo especial esta noche? ¿Corto jamón?
+
+Su mujer lo miró durante un instante con la clara intención de decirle
+que no. Pero lo vio tan ilusionado con el simple placer de dedicar un
+rato a cortar jamón que le sonrió y le dijo 
+
+—Vale. Saco un poco de vino de ese de Guadix a tomar el aire, ¿vale? 
+
+Su sonrisa se hizo más amplia y ahí seguía cuando fue al dormitorio a
+cambiarse y ponerse el chándal del Decathlon que usaba en casa. Bajaba
+la escalera diciéndole a sus hijos 
+
+—¡Vamos a hartarnos de jamón esta noche!
+
+El jamón formaba parte de su zen, de su totalidad, con la ceremonia
+del corte del jamón un ejercicio de ascenso por la escalera espiritual
+similar a la ceremonia del té, un ritual que comenzaba por la elección
+del delantal adecuado, el afilado del cuchillo del Ikea, no el usado
+en el asesinato, el retirado del paño de color aproximándose al pelo
+de un oso hormiguero, la aspiración del olor, intensificado cuando se
+retira la capa de piel en proceso de secado que tapa el corte del
+jamón y mantiene su aroma, el corte el diagonal, ayudándose por las
+vetas, la cata de la primera loncha que sale, la más seca pero, a la
+vez, la que más apetece, tomándola con dos dedos, y a veces la segunda
+y, si no llega nadie, la tercera, pero llega su esposa y se esfuerza
+en un corte limpio, con poco tocino, que ella separa, ignorando el
+dogma de la degustación del jamón, que tiene que hacerse con el
+tocino, y que él, a su vez, ignora que ha hecho, para no estropear el
+momento zen, y cortando con el cuchillo del Ikea vuelve a pensar en el
+otro cuchillo del Ikea, haciéndole descender por un momento a la
+tierra. 
 
 
 
