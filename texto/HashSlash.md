@@ -2678,7 +2678,7 @@ sitio, Sevilla, Barcelona. No era fácil, pero mientras tanto había
 montado una red de contactos por toda España en la que los forenses
 le vendían las fotos que tomaban y él les buscaba comprador. 
 
-La foto que le llegó desde Madrid era una joya con un potencial viral termendo. Una mujer joven,
+La foto que le llegó desde Madrid era una joya con un potencial viral tremendo. Una mujer joven,
 vestida de rojo, sin ninguna herida aparente, con las luces de la
 Puerta del Sol reflejándose en la sangre todavía fresca. 
 
