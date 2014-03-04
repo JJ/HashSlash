@@ -2666,13 +2666,13 @@ no habían salido del armario. Se había puesto a escribir al llegar a
 su casa. El protagonista empezaba a contarle a todo el mundo menos a
 la policía sus sospechas de lo que sucedía en la casa del vecino,
 contándoselo a un amigo usando un teléfono inalámbrico, usando una
-wifi pirateada de alguien para enviar correos electrónicos a otros
+WiFi pirateada de alguien para enviar correos electrónicos a otros
 amigos y comentarlo en foros abiertos y en general, atrayendo todo
 tipo de atención hacia sí. Además, contaba sus planes de encarar al
 vecino cuando llegara del trabajo esa misma noche. 
 
 Había decidido creer a Jože. Tampoco tenía ninguna razón para matar a
-Ainhoa. Tampoco la tenía Nacho. En realidad, nadie tenía una buera
+Ainhoa. Tampoco la tenía Nacho. En realidad, nadie tenía una buena
 razón para matarla. Si es que querían, efectivamente, matarla a ella. 
 
 Alguien entró por la puerta principal en ese momento. 
@@ -2680,6 +2680,77 @@ Alguien entró por la puerta principal en ese momento.
 —¿Roble? ¿Estás por ahí?
 
 Demelza. Pero no venía sola.
+
+## Buscando alojamiento
+
+—Pero... -, decía Roble.
+
+—Roble, de verdad, que se ha quedado en la calle. Por tu culpa. -
+decía Demelza.
+
+—Pero...-, insistía Roble.
+
+—Mira, tus colegas han avisado al dueño de la casa y ha cambiado las
+cerraduras. Y no se puede quedar en mi casa porque está todavía
+precintada. ¿Cuándo la vais a desprecintar?
+
+—El juzgado...
+
+—Sí, el juzgado, además, lo van a llevar a juicio a este por
+allanamiento. Y en el apartamento de Kevin no cabe. Y...
+
+—Pe... - la resistencia de Roble al asedio estaba debilitándose
+progresivamente. Todo lo que decía era cierto. Y era Demelza quien se
+lo decía, con lo que toda frase llevaba implícitas diferentes
+alternativas si accedía y la contraria si no accedía. Y esas razones
+no explícitas eran las que pesaban más en el cerebro de Roble. Y en su
+escroto.
+
+A Roble le gustaba vivir sólo. La serenidad, el silencio, el seguir
+sus ritmos y sus rutinas sin compromisos ni interrupcines. Pero su
+casa era grande, un platillo volante varado en la ladera del Barranco
+del Abogado que había comprado por mucho menos de lo que valía tras
+lograr, previo soborno, el compromiso de diferentes administraciones
+de desbloquear su terminación. Compromiso que, por supuesto, no había
+mencionado al propietario, y constructor, que estaba encantado de
+deshacerse de una joya arquitectónica, diseñada por él y destinada a
+su familia, pero que no había podido terminar y que había quedado como
+un cenicero dejado caer entre un montón de piedras encaladas hasta que
+Roble lo recuperó del olvido, lo terminó y se instaló a vivir.
+
+La casa era muy grande y Roble ni siquiera usaba la mitad. El salón
+acristalado en el piso superior, al que se podía entrar directamente
+desde la calle que cruzaba por la parte de atrás, era su base y ahí
+dormía, trabajaba y hacía prácticamente todo. En el mismo piso estaba
+la cocina, que no usaba con demasiada frecuencia. En el piso de abajo
+había un garaje con restos de la construcción que habían dejado los
+albañiles, que habían sido lo más complicado de la renovación, porque
+no había ninguna constructora que cobrara en bitcoins, y alguna
+habitación más que tampoco usaba.
+
+—El garaje -, dijo Roble.
+
+—¡Claro! ¡Fenomenal! -, dijo Demelza, y le plantó un beso con gusto a
+anticipo en los labios. Nacho, que no había intervenido en la
+conversación y que a ratos había parecido dormirse, empezó a
+mascullar. 
+
+Bajaron la escalera y le abrió la puerta metálica que daba al
+garaje. Nacho miró y se dirigió directamente a una esquina, de la que
+apartó escombros y piedras sueltas con el pie. Comenzó a mover latas
+de pintura para montar una especie de cubículo, lentamente y
+mascullando a la vez. 
+
+—¿Unas mantas no tendrás? 
+
+—[Saranoni](http://www.saranoni.com/). Pero... -, dijo Roble. Demelza
+puso cara de extrañeza. 
+
+—Da igual, ya le compro yo algunas en un chino. Es que todo, todo, se
+le ha quedado dentro de su casa. ¿Cuando dices que podrá recogerlo?
+
+Nacho parecía satisfecho con el pequeño parapeto que se había
+construido. Se volvió hacia ellos y les sonrió. 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
