@@ -7,7 +7,7 @@
 1: #JustABelieber - 2: #pelisconnata - 3: #nomepises - 4: #masterchef - 5: #slash
 ---
 
-—Tengo un cuchillo como ese -, dijo Ciriaco.
+—Tengo un cuchillo como ese -, dijo Cecilio.
 
 —¿Cuál? - le contestó Roble, sin dejar de teclear con los dos
 pulgares en su móvil.
@@ -21,13 +21,13 @@ Roble puso la boca en posición de "Ah", pero no dijo nada.
 —No estarás poniendo nada de esto -, dijo, haciendo un gesto señalando a su
 alrededor con la mano - en la Internet esa.
 
-Ciriaco hizo un
+Cecilio hizo un
 pequeño esfuerzo para levantarse del sillón desfondado en el que se
 encontraba sentado.
 
 —No -, respondió Roble.
 
-—Ah. Vayamos a pollas-, volvió a sentarse Ciriaco, el mayor de los
+—Ah. Vayamos a pollas-, volvió a sentarse Cecilio, el mayor de los
 dos. Una vez hundido en el sillón, se cerró el abrigo sobre las
 rodillas. Eran cerca de las diez de la mañana de un día de enero, estaba
 nublado y la temperatura en el interior del piso era escasamente
@@ -45,7 +45,7 @@ regazo y hacer copa con las manos para calentárselas.
 
 —Nada -, dijo Roble, mientras pensaba "sólo un poco de
 #escenadelcrimen en Instagram".  Ya tenía más 
-de veinte *me gusta*. Ciriaco hizo un esfuerzo para intentar ver qué era lo que
+de veinte *me gusta*. Cecilio hizo un esfuerzo para intentar ver qué era lo que
 había en la pantalla. Se distinguían borrones rojos y figuras
 geométricas de color naranja. Poco más. Ninguna cara, nada
 distintivo que permitiera reconocer ni al sitio, ni a la
@@ -63,20 +63,20 @@ golpeado dos veces sobre sus pantallas, hecho *me gusta* sobre las
 fotos que el avatar virtual de Roble había subido; Roble vio que llevaba veinticinco ya. Y en Twitter
 casi los mismos, con el doble de RTs.  
 
-—Lo que te decía, el cuchillo. De Ikea. - retomó el tema Ciriaco, haciendo que el ritmo de tecleo
+—Lo que te decía, el cuchillo. De Ikea. - retomó el tema Cecilio, haciendo que el ritmo de tecleo
 de Roble variara.
 
 —[Gynnsam](http://www.ikea.com/es/es/catalog/products/50134950/)-,
 dijo Roble, esforzándose en hacer una n lo suficientemente larga como para que pareciera el doble, mostrándole de nuevo la pantalla del móvil a
-Ciriaco. Ciriaco lo cogió y se alzó las gafas, entornando a la vez un
+Cecilio. Ciriaco lo cogió y se alzó las gafas, entornando a la vez un
 poco los ojos.
 
-—No, el mango es así como triangular, y no tiene las tachuelas -, dijo Ciriaco. Se
+—No, el mango es así como triangular, y no tiene las tachuelas -, dijo Cecilio. Se
 levantó con el móvil en la mano y fue a la habitación donde se encontraba el cadáver. Se oyó el
 chasquido de la aplicación al hacer una foto. Roble arrugó los labios y alzó
 las cejas.
 
-—Has aprendido -, dijo Roble a modo de halago. Ciriaco simplemente
+—Has aprendido -, dijo Roble a modo de halago. Cecilio simplemente
 le mostró la foto en la que aparecía un mango negro con churretes
 marrones, triangular, aparentemente hincado en un montón de tela
 también con chafarrinones negros, marrones y rojos oscuros. Rojo
@@ -91,9 +91,9 @@ alguien que quería comprar no sé qué.
 Roble eludió reaccionar a la conversión de su nombre singular en apellido plural para buscar el
 mensaje del que hablaba. Efectivamente, un blog americano de crímenes
 reales le compraba las fotos. Ahora no le quedaría otro remedio que
-acercarse a la chica. O que Ciriaco lo siguiera haciendo.
+acercarse a la chica. O que Cecilio lo siguiera haciendo.
 
-—Sí. Novelas -, le dijo a Ciriaco. 
+—Sí. Novelas -, le dijo a Cecilio. 
 
 —Pues decía no sé qué de fotos. Joder, Robles, que la policía no es
 tonta -, dijo, riéndose de su propia gracia. - Tú verás lo que haces,
@@ -109,12 +109,12 @@ diseñado por ingenieros industriales suecos estaba cubierto por todo
 tipo de sustancias orgánicas.  A los algoritmos de análisis de imagen
 les daba un pequeño ataque.
 
-—¿Hay un app para eso? - Preguntó Ciriaco, curioso. - ¿Para saber qué
+—¿Hay un app para eso? - Preguntó Cecilio, curioso. - ¿Para saber qué
 cosa de Ikea es?
 
 —Hay apps para *todo* -, señaló al mueble que sostenía la televisión -
   [Byaaas](http://www.ikea.com/es/es/catalog/products/80227797/). - 
-  Señaló a la mesa en la que Ciriaco había estado varias veces a punto
+  Señaló a la mesa en la que Cecilio había estado varias veces a punto
   de extender los pies -
   [Klingsbo](http://www.ikea.com/es/es/catalog/products/90128565/) -,
   dijo en voz alta. 
@@ -124,31 +124,31 @@ cosa de Ikea es?
   y él seguía tecleando. - No hay app - dijo aaahhh - para eso,
   ¿verdad? 
   
-Ciriaco se rió de su propia gracia. Roble volvió al móvil, que acababa de emitir el tono que indicaba, de nuevo, que había llegado un mensaje. 
+Cecilio se rió de su propia gracia. Roble volvió al móvil, que acababa de emitir el tono que indicaba, de nuevo, que había llegado un mensaje. 
   
- — Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Ciriaco. 
+ — Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Cecilio. 
  
- — ¿Y por qué no las echas tú con tu polla? - le contestó Ciriaco,
+ — ¿Y por qué no las echas tú con tu polla? - le contestó Cecilio,
  socarrón,  extendiendo la mano para recibir el
  móvil. Roble también sonrió, asumiendo la respuesta como parte de esa seña de
  identidad llamada *malafollá granaína* que todavía, después de dos
  años de destino, seguía tratando de aprender. 
  
-Ciriaco volvió al cabo de un minuto. Sus pies se pegaban al suelo,
+Cecilio volvió al cabo de un minuto. Sus pies se pegaban al suelo,
 recubierto de una sustancia pegajosa compuesta de capas de mugre y de
 diversos hidratos de carbono. Le pasó el móvil a Roble. Este
 empezó a pasar las fotos, sin pararse demasiado en cada una, y de repente fue consciente del olor a
 carnicería que venía de la habitación donde la muerta,
 irremediablemente, se descomponía. Le vino una náusea pero la combatió
 al recordar que tendría que pasar por el cuarto de baño que estaba, justamente, al lado de la
-habitación donde se encontraba el cadáver. Ciriaco le dio una palmada
+habitación donde se encontraba el cadáver. Cecilio le dio una palmada
 en la espalda, lo que casi hizo que se le volviera a salir el vómito. 
 
 —La compañera de piso -, dijo Roble. Seguía durmiendo. Dos chicas en
 un piso de tres dormitorios, que podían permitirse, imaginaba Roble, porque estaba lejos
 de cualquier facultad y prácticamente de todo. Aún así, había vislumbrado en las fotos mobiliario que estaba muy por encima de los desechos y muebles montables que había en la zona común. 
 
-—Ahí se puede quedar. Yo paso de despertarla -, dijo Ciriaco.- ¿Para darle el mal rato y que le dé un jamacuco? Yo paso de consolar a niñatas. Al menos, de
+—Ahí se puede quedar. Yo paso de despertarla -, dijo Cecilio.- ¿Para darle el mal rato y que le dé un jamacuco? Yo paso de consolar a niñatas. Al menos, de
 consolarlas así - le dio un codazo al joven Roble, que le
 volvió a traer la náusea a la garganta - Bastante hemos tenido con el
 novio. Menudo apollardao.
@@ -158,13 +158,13 @@ buscándolo en el móvil.
 
 —Tontolaba, agilipoyao de la vida, persona que lleva ya dos años
 trabajando en Granada y no sabe lo que significa la palabra
-“apollardao“ -, dijo Ciriaco. - Además, se llama Kevin, ¿qué clase de
+“apollardao“ -, dijo Cecilio. - Además, se llama Kevin, ¿qué clase de
 nombre es ese, cojones? Nombre de apollardao. 
 
 Roble miró en la
 pantalla. [Apollardao](http://www.frikipedia.es/friki/Diccionario_granadino). Vale. No
 tiene nada que ver con el tamaño del miembro. Con el que, en todo
-caso, no tenía por qué estar familiarizado Ciriaco en el caso de este
+caso, no tenía por qué estar familiarizado Cecilio en el caso de este
 tal Kevin. Al menos diez minutos después de habérselo encontrado por
 primera vez.
 
@@ -202,7 +202,7 @@ miran, Ángulo, altura, este es culpable, ese no.
 
 —Vaya -, dijo Roble.
 
-—Qué. - contestó Ciriaco, apoyando el puño sobre su muslo. 
+—Qué. - contestó Cecilio, apoyando el puño sobre su muslo. 
 
 —Quique. El periodista. - Aparentemente, Quique había visto que Roble había hecho check-in en
 FourSquare en el barrio y me acaba de poner un *me gusta* en él. - Viene.
@@ -212,11 +212,11 @@ chismecico, ¿no? - Roble puso cara de póker. - Un día nos vas a traer
 problemas. Verás tú. 
 
 —Será la primera vez... - Roble no siguió,
-consciente de la inutilidad de discutir con Ciriaco y también de la de
-cualquier consejo que Ciriaco le hiciera al respecto.
+consciente de la inutilidad de discutir con Cecilio y también de la de
+cualquier consejo que Cecilio le hiciera al respecto.
 
 —Será la primera vez que te cogen el chisme y te lo estrellan en los
-morros -, le contestó Ciriaco. 
+morros -, le contestó Cecilio. 
 
 Roble no dijo nada y siguió golpeando con la yema de los dedos y la
 ocasional uña la pantalla de su móvil, cambiando de aplicación.
@@ -232,7 +232,7 @@ la foto. Poco más. Los seguidores de Dexter parecían no estar muy
 espabilados a estas horas de la mañana. Todo eso no había impedido que
 el número de *me gustas* siguiera creciendo, por otro lado.
 
-Ciriaco se volvió a sentar en el
+Cecilio se volvió a sentar en el
 sillón, diciendo
 por el camino “Afú” varias veces, y se puso a escribir en un bloc pequeñito, con  portada a
 cuadros y un alambre uniendo las hojas por su parte superior. 
@@ -423,7 +423,7 @@ pedírsela más adelante. No siempre se sube absolutamente todo. De vez
 en cuando lo miraba con los ojos entornados y volvía a mirar al
 móvil. 
 
-Sonó el de Roble con el tono de Ciriaco. Eso no podía significar más
+Sonó el de Roble con el tono de Cecilio. Eso no podía significar más
 que la llegada del juez para levantar el cadáver y el forense. Ya
 había, de hecho, visto pasar la furgoneta del Anatómico-Forense en
 dirección hacia el piso. 
@@ -489,7 +489,7 @@ de soltarse.
 Fiambres y bocadillos
 ---
 
-Ya se había escaqueado el Roble de las narices, pensó Ciriaco. Miró
+Ya se había escaqueado el Roble de las narices, pensó Cecilio. Miró
 en derredor, a los de la furgona del Anatómico fumando apoyados en la
 puerta del conductor, al agente cachas recién salido de la academia que lucía
 músculos y tatuaje a pesar del frío, de pie y de brazos cruzados en la
@@ -518,13 +518,13 @@ preferida por el presidente de la asociación de vecinos o el alcalde pedáneo),
 podía imaginar que le iba a pasar esto”. 
 
 —Anda, Quique, pilla y lárgate, cojones, no des más por culo. - le
-dijo Ciriaco, cogiéndolo por el brazo e indicándole la dirección del
+dijo Cecilio, cogiéndolo por el brazo e indicándole la dirección del
 centro de la ciudad. - Luego te pasas
 por Jefatura y te damos el comunicado de prensa.
 
 —Me largo ya. Si antes me dejas subir a hacer fotos. - le contestó Quique.
 
-—No te dejo subir a hacer fotos -, dijo Ciriaco, haciendo a la vez un
+—No te dejo subir a hacer fotos -, dijo Cecilio, haciendo a la vez un
 gesto con la mano. - El de la poli las hace bien bonicas y enfocás y
 tienen todo lo que tienen que tener o que nosotros queremos que
 tenga. Venga, humo. 
@@ -536,12 +536,12 @@ garantizado como no  trinquéis al asesino esta misma tarde. Esta misma
 mañana. Eso igual no te viene bien para pillarte alumnos de
 oposiciones, ¿eh, Ciri?
 
-Ciriaco le soltó el brazo. No, no le vendría bien como publicidad. Al
+Cecilio le soltó el brazo. No, no le vendría bien como publicidad. Al
 menos de forma inmediata. Pero en dos meses se habrían olvidado y le
 daría igual. Además, estaba ya un poco harto de preparar oposiciones y
 el piso de la costa lo tenían prácticamente pagado. 
 
-—Pero ¿quién se ha muerto ni niño muerto? - dijo Ciriaco, encogiendo
+—Pero ¿quién se ha muerto ni niño muerto? - dijo Cecilio, encogiendo
 los hombros y metiéndose las manos en los bolsillos - Es un registro
 rutinario. Y no me agobies, Quique, que me busco la ruina, de verdad. 
 
@@ -554,7 +554,7 @@ Estos minutos de intercambio de frases los había aprovechado la chica para
 acercarse hasta la puerta del bloque sin dejar de llorar, aunque más
 en silencio. El agente no la
 dejó pasar y tras amagar unos golpes decidió, simplemente, sentarse en
-el suelo y seguir llorando. Quique y Ciriaco se fueron hacia ella,
+el suelo y seguir llorando. Quique y Cecilio se fueron hacia ella,
 pero Ciriaco volvió el brazo con la palma hacia atrás y le impidió
 continuar a Quique.
 
@@ -575,7 +575,7 @@ humo.
 —Joder, Ciri, que está el de marketing del periódico encima nuestro,
 todo lo que huela a sangre son visitas a la web y si tiene imágenes, más, venga, va, joder...
 
-Ciriaco no dijo nada. Tina había vuelto al suelo a llorar y la jueza y el
+Cecilio no dijo nada. Tina había vuelto al suelo a llorar y la jueza y el
 secretario judicial se acercaban ya a la puerta y tenía que
 atenderlos. 
 
@@ -725,7 +725,7 @@ eventualmente, se fue.
 ## Sentido y sensibilidad
  
 Tina no estaba tampoco en condiciones de responder a muchas
-preguntas. Ciriaco le pidió que le hiciera una lista de las personas
+preguntas. Cecilio le pidió que le hiciera una lista de las personas
 que habían asistido a la fiesta más adelante, pero por el momento que tratara de recordar cuando había
 visto a Demelza por última vez. Dejó la pregunta sobre drogas y
 cualquier otra actividad ilegal de la difunta para más adelante. Total, acabaría
@@ -748,15 +748,15 @@ tópicos que contenían. Sin embargo, la respuesta fue
 
 —Pobre... Ahora, ¿cómo voy a poder pagar yo el piso?
 
-Con casi treinta años de policía, Ciriaco pensó que la condición
+Con casi treinta años de policía, Cecilio pensó que la condición
 humana nunca dejaría de sorprenderle.
 
 ## Identidad
 
 Roble estaba de pie en el autobús, camino de vuelta a su casa, cuando recibió
-la llamada de Ciriaco, informándole de lo que Tina le había contestado y
+la llamada de Cecilio, informándole de lo que Tina le había contestado y
 de la llegada de recoge-fiambres, en palabras del propio
-Ciriaco. Inmediatamente le envió un mensaje a Tina quedando para tomar algo esa noche.
+Cecilio. Inmediatamente le envió un mensaje a Tina quedando para tomar algo esa noche.
 
 Sus planes inmediatos incluían dormir unas cuantas horas. Había estado
 de servicio toda la noche, un turno de diez horas que al final parecía
@@ -780,7 +780,7 @@ posibilidades de viralidad, ¿no?
 
 Su compañero o compañera emitió un sonido para indicar continuidad en la
 comunicación. Quien hablaba, una persona que, por la voz, podría tener
-tanto la edad de Ciriaco como la de Roble como una situada entre las dos, continuaba. Las gafas de
+tanto la edad de Cecilio como la de Roble como una situada entre las dos, continuaba. Las gafas de
 Roble habían recolectado las firmas electrónicas de todos los
 pasajeros del autobús y ya
 sabía, al menos, si se había encontrado con ellos alguna vez. Con un
@@ -850,7 +850,7 @@ compañero de asiento en el autobús.
 
 ## Los muertos no hablan, los vivos sí.
 
-El walkie de Ciriaco emitió un sonido. Estaba de nuevo en el salón del
+El walkie de Cecilio emitió un sonido. Estaba de nuevo en el salón del
 piso, evitando sentarse en el sillón caníbal y esperando que salieran
 el secretario judicial y la jueza, que habían entrado hacía unos
 minutos junto con el médico. 
@@ -866,7 +866,7 @@ de los agentes, posiblemente para asegurarse de que no rompían nada y
 después de trastear un rato en su propia habitación, “arreglándose“,
 decía. 
 
-—Aguántala ahí -, dijo Ciriaco por el walkie.
+—Aguántala ahí -, dijo Cecilio por el walkie.
 
 —Jefe, no sé si querrá...
 
@@ -874,7 +874,7 @@ decía.
 
 —Es que...
 
-Ciriaco cortó la comunicación. Le puso una mano en el hombro a Tina
+Cecilio cortó la comunicación. Le puso una mano en el hombro a Tina
 que estaba concentrada jugando en el móvil. Le habían pedido que no
 dijera nada a nadie, pero seguro que ya lo había puesto en tres redes
 sociales diferentes.
@@ -890,15 +890,15 @@ conocido, familiar del dueño? Son tres dormitorios, ¿no?
 —Sí, pero el tercero no lo usamos, bueno, sí lo usamos, pero vamos, no
 vive nadie, vivir, lo que se dice vivir, vamos.
 
-Ciriaco se quedó pensando. 
+Cecilio se quedó pensando. 
 
 —¿Me puedes acompañar un momento?
 
-Bajaron un tramo de escaleras, Ciriaco delante, Tina unos escalones
+Bajaron un tramo de escaleras, Cecilio delante, Tina unos escalones
 por detrás. Tina no dejó el móvil ni un momento, sus pies conocían el
 camino. 
 
-—¡Tinaaa! - Oyó Ciriaco cuando se pusieron a la vista de la puerta. 
+—¡Tinaaa! - Oyó Cecilio cuando se pusieron a la vista de la puerta. 
 
 —¿Demelza? - dijo Tina, metiéndose el móvil en el bolsillo y bajando
 las escaleras de dos en dos.
@@ -906,12 +906,12 @@ las escaleras de dos en dos.
 —¿Te han...? - comenzó a decir Demelza, pero Tina se abalanzó sobre
 ella y le dio un abrazo, chillando a la vez.
 
-El agente de la puerta y Ciriaco se miraron, el primero con una
-sonrisa socarrona. Ciriaco se rascó el círculo depilado
+El agente de la puerta y Cecilio se miraron, el primero con una
+sonrisa socarrona. Cecilio se rascó el círculo depilado
 involuntariamente y en continuo aumento de su cabeza. Quique, que
 estaba por los alrededores, se asomó al portal y le hizo un gesto
 inquisitivo con la cabeza, levantándola, seguido por otro señalando con
-la barbilla a la amalgama de dos chicas. Ciriaco abrió las manos
+la barbilla a la amalgama de dos chicas. Cecilio abrió las manos
 indicándole que no tenía ni idea y le hizo dos gestos simétricos con
 la cabeza indicándole que se largara.
 
@@ -919,16 +919,16 @@ la cabeza indicándole que se largara.
 
 —¿Quién es la muerta? - preguntó Roble.
 
-—Ainhoa González Tovar -, dijo Ciriaco, mirando a cierta distancia el
+—Ainhoa González Tovar -, dijo Cecilio, mirando a cierta distancia el
 DNI que cogía con los guantes.
 
 Roble se frotó los ojos y le dio una palmada a la pulsera, que le
 avisaba insistentemente para que se fuera a dormir. 
 
-La llamada de Ciriaco le había pillado subiendo la cuesta del Barranco
+La llamada de Cecilio le había pillado subiendo la cuesta del Barranco
 del Abogado hacia su
 casa, desde donde una cama confortable y cálida parecía llamarle. Pero
-quien le había llamado había sido Ciriaco o, en plan más general, *el
+quien le había llamado había sido Cecilio o, en plan más general, *el
 deber* y había sustituido su cama por una bebida energética que había
 comprado por el camino en una tienda de inmigrantes orientales
 posiblemente ilegales. 
@@ -939,13 +939,13 @@ las sobreexcitadas que, por la propia excitación, tampoco eran
 precisamente vehículos eficaces de pensamientos complejos. La
 muerta no estaba muerta. Pero había una muerta. 
 
-—Ni Tina ni Demelza, la muerta, -, dijo Ciriaco; Roble hizo una
+—Ni Tina ni Demelza, la muerta, -, dijo Cecilio; Roble hizo una
 mueca -, vale, que no está muerta, es para entendernos, que dicen que
 no, que no la conocen.
 
 —Pero... - dijo Roble.
 
-—Sí, qué pollas hacía en la habitación de la muerta, - dijo Ciriaco.
+—Sí, qué pollas hacía en la habitación de la muerta, - dijo Cecilio.
 
 —Y... - continuó Roble.
 
@@ -957,7 +957,7 @@ atención a la jueza, - dijo, con un gesto de perplejidad. -
 Que es donde hemos encontrado este DNI,
 o sea que era de la muerta.
 
-Roble miró el DNI y le hizo una mueca a Ciriaco. 
+Roble miró el DNI y le hizo una mueca a Cecilio. 
 
 —La de verdad. A partir de ahora, la muerta de verdad será la muerta
 de verdad. La otra, sólo *la muerta*. 
@@ -982,7 +982,7 @@ le escribió hace tiempo, pero podría ser Aitora.
 —Aitora...
 
 —Yo que sé, tío, a mi me sacas de las Ramonas y las Maripuris y no me
-aclaro, - dijo Ciriaco, abriendo los brazos. - Que lo va a buscar a
+aclaro, - dijo Cecilio, abriendo los brazos. - Que lo va a buscar a
 ver. 
 
 Roble fue una vez más a su móvil a ver qué aparecía en las diferentes
@@ -1008,7 +1008,7 @@ Pasaron al lado de las dos chicas diciéndoles, de una forma un tanto
 automática, “Mi pésame“. Tina soltó una risita. Demelza la miró,
 poniendo inmediatamente los ojos en blanco.
 
-Ciriaco las miraba a las dos, sin saber muy bien con qué
+Cecilio las miraba a las dos, sin saber muy bien con qué
 quedarse. Eran jóvenes, desahogadas, agradables, bien alimentadas y
 vestidas. No les importaba un carajo la muerte. Ahí había alguien, de
 cuerpo presente, que podían conocer o no, y ahí estaban las dos que
@@ -1022,7 +1022,7 @@ espacio intercostal.
 En una realidad española habrían sido simplemente dos niñatas a las
 que les importaba poco, o nada, lo que no fuera un problema propio o
 algo que les pudiera proporcionar entretenimiento o diversión
-inmediata. En lo que no se diferenciaban tanto del propio Ciriaco, que
+inmediata. En lo que no se diferenciaban tanto del propio Cecilio, que
 en ese momento pensaba en el problema inmediato: lo que tendría que
 escribir en el informe a la jueza sobre la actitud de las dos
 inquilinas. No, tacha eso, sospechosas. No, tacha eso, ¿testigos?
@@ -1031,7 +1031,7 @@ indiferentes ante la muerte de una desconocida, o quizás no tanto, con
 un cierto matiz de molestia por haber sucedido todo eso en su propia
 habitación? El horror de la página en blanco era una nadería al lado
 del horror de un informe en blanco, pero afortunadamente, a base de
-oficio, era algo que Ciriaco había dejado atrás. Pero, finalmente, decidió
+oficio, era algo que Cecilio había dejado atrás. Pero, finalmente, decidió
 simplemente poner "No hay ningún indicio ni actitud que ligue a
 *nombre completo de las chicas* a los hechos". Si la jueza decidía
 otra cosa, que se buscar la vida, que para eso se había sacado las
@@ -1046,14 +1046,14 @@ pretendiera decir, “está usted Blanco“ o “es usted blanca“. Pero
 recuperó el color rápidamente, dejando al hipotético extranjero con el dilema de
 decir “estar“ donde debería haber dicho “ser“ o al revés. 
 
-—En cuanto que sepáis algo, me llamáis. Ciriaco, ¿no? - Ciriaco
+—En cuanto que sepáis algo, me llamáis. Cecilio, ¿no? - Ciriaco
 asintió. - Pasadme los teléfonos por si os tengo que llamar. ¿Se os
 ocurre qué puede haber sido?
 
-—Asesinato, - dijo Ciriaco sin pensárselo.
+—Asesinato, - dijo Cecilio sin pensárselo.
 
 —No podemos aventurar nada, señoría, - “Puri“, le interrumpió . -
-Puri, - dijo Roble. Ciriaco le guiñó un ojo. - No parece robo. Ellas - dijo, señalando a las chicas - no la conocen. Poco más.  
+Puri, - dijo Roble. Cecilio le guiñó un ojo. - No parece robo. Ellas - dijo, señalando a las chicas - no la conocen. Poco más.  
 
 —Pero ¿qué hacía aquí? - preguntó Puri.
 
@@ -1084,7 +1084,7 @@ entre las dos muertas. La real y la putativa.
 
 ## Interludios y preludios
 
-Volviendo a su casa en Huétor Vega, en la periferia granadina, Ciriaco
+Volviendo a su casa en Huétor Vega, en la periferia granadina, Cecilio
 pilló un segmento corto en el que hablaban, en el informativo local de
 la radio, de una matanza en Granada, dos mujeres muertas sin razón
 aparente. Tardó un rato en darse cuenta de que hablaban de su caso,
@@ -1175,7 +1175,7 @@ Realmente, era para matarla.
 
 Clases. Más clases. El alumno que, al final de la clase, se queda
 preguntar por las claves, las verdaderas claves, para sacar adelante
-las oposiciones. ¿Alguien que conocer? ¿Alguien que sobornar? Ciriaco
+las oposiciones. ¿Alguien que conocer? ¿Alguien que sobornar? Cecilio
 no se cansaba de decirles que las oposiciones, como el trabajo
 policial, eran simplemente cuestión de constancia y de esfuerzo. A
 veces, los jovenzuelos y a veces no tanto que componían el alumnado,
@@ -1183,7 +1183,7 @@ lo miraban y se sonreían como diciendo "Sí, como si nos lo fueras a
 contar en caso de saberlo", o quizás "Infeliz, los años que tiene y
 todavía no sabe cómo funciona el mundo".
 
-Ciriaco, en realidad, pensaba que tenían razón. Si lo supiera, no se
+Cecilio, en realidad, pensaba que tenían razón. Si lo supiera, no se
 lo iba a contar. Pero él entró en la policía de esa forma, muchos años
 de academia y de gimnasio, muchas horas de juventud perdidas. Si había
 otra forma, él no la conocía. Pero no creía que la hubiera.  Por eso
@@ -1261,7 +1261,7 @@ ella algo si se lo permitía. Le mandó un mensaje de vuelta.
 
 ## Mientras tanto, en un lugar de la periferia granadina
 
-Ciriaco llegó a su casa e hizo inventario de los miembros de su
+Cecilio llegó a su casa e hizo inventario de los miembros de su
 familia, visitando las habitaciones donde se encontraban
 uno por uno. En el salón, su
 mujer leía un bestseller. Su hijo mayor, en su cuarto, escuchaba
@@ -1345,7 +1345,7 @@ objetivo del gesto.
 
 Exacto, pensó Roble. Y precisamente por ese orden.
 
-## Interludio en el tálamo de Ciriaco
+## Interludio en el tálamo de Cecilio
 
 Ciriaco se despertó cuando su mujer entró en la cama. Se dio la vuelta
 y siguió durmiendo. 
@@ -1356,7 +1356,7 @@ que preparar para las clases del día siguiente en la academia.
 
 Luego estuvo despierto otros diez minutos esperando que su mujer
 dejara de roncar. Al final consiguió que cambiara de postura y dejara de
-hacerlo. Ciriaco estuvo un momento tratando de recordar un artículo del código Penal, pero se volvió a dormir sin conseguirlo. 
+hacerlo. Cecilio estuvo un momento tratando de recordar un artículo del código Penal, pero se volvió a dormir sin conseguirlo. 
 
 ## Camino de la cama
 
@@ -1612,7 +1612,7 @@ miembro se convirtió en una escultura fálica metálica. Y con LEDs.
 
 ## Despertar
 
-Ciriaco se despertó con unas ingentes ganas de orinar. O eso o un
+Cecilio se despertó con unas ingentes ganas de orinar. O eso o un
 perro especialmente escandaloso habían provocado tal despertar.
 
 Mientras orinaba, pasó un rato repasando las tareas que tendría que
@@ -1677,7 +1677,7 @@ en la mesita de noche y empezó a actualizar todo lo que pudiera.
 
 ## El camino hacia la policía
 
-Ciriaco se aburría con la perorata de uno de sus tutorizados. Ley
+Cecilio se aburría con la perorata de uno de sus tutorizados. Ley
 blablabla código blablabla caso blablabla. Se puso a pensar en sus
 casos. Una agresión por dos encapuchados, uno de ellos posiblemente
 una mujer, a un conductor de la Rober. Un robo en un bufete de
@@ -1777,7 +1777,7 @@ ponía cachondo a Roble era que el mismo perpetrador, y todo el mundo,
 supieran que había sido el propio Roble el que había conseguido las
 pruebas, tirado del hilo, andado el camino que lleva a la condena.
 
-Porque solía ser Roble. Ciriaco... Ciriaco estaba ahí, cumplía su
+Porque solía ser Roble. Cecilio... Ciriaco estaba ahí, cumplía su
 trabajo, también andaba el camino, o al menos movía las piernas, pero nunca había ideas,
 asociaciones, saltos lógicos. De hecho, a veces ni siquiera estaba
 ahí. Cuando no era su turno, o cuando era su turno y tenía su mente en
@@ -1788,7 +1788,7 @@ Había una cosa que le preocupaba. En la web profunda, las apuestas en
 `whodunnit.onion` pagaban 3 a 1 el que eventualmente fuera Demelza la 
 asesina. Tina iba 25 a 1, y otros asistentes a la baja. Jože el
 esloveno estaba escalando desde el 30 a uno, y ya se pagaba 29 a
-2. Lola no aparecía. Tampoco aparecían ni él ni Ciriaco, lo que era
+2. Lola no aparecía. Tampoco aparecían ni él ni Cecilio, lo que era
 todo un alivio.
 
 Que la gente apostara por que Demelza era la asesina tampoco tenía que
@@ -1971,7 +1971,7 @@ lo pronto, se lo llevaban al calabozo.
 
 ## La hora del vermú
 
-A  las una de la tarde, Ciriaco estaba harto de alumnos displicentes, de
+A  las una de la tarde, Cecilio estaba harto de alumnos displicentes, de
 oposiciones y de los chinos que las inventaron hacía mil o un millón
 de años, así que bajó por la calle Navas buscando algún bar en los
 alrededores de la comisaría donde los compañeros, algunos de ellos
@@ -1990,11 +1990,11 @@ tuvieran demasiado trabajo en reducirlo.
  universidad. 
  
  Allí estaban Eladio, el Yimi y, por supuesto, Rosalía; algunos otros
- compañeros más que Ciriaco no conocía y más de un extranjero
+ compañeros más que Cecilio no conocía y más de un extranjero
  cometiendo el sacrilegio de comer
  el jamón con cuchillo y tenedor.
  
- —¿Qué? ¿Qué os contáis? - dijo Ciriaco, a modo de saludo.
+ —¿Qué? ¿Qué os contáis? - dijo Cecilio, a modo de saludo.
  
  —Anda y que te entretenga tu puta madre - le contestó el Yimi. Todos
  se rieron. Siempre lo hacían. Era un viejo chiste granadino que
@@ -2019,15 +2019,15 @@ el levantamiento de los vasos de cerveza y ataques subrepticios al
 plato de las tapas. - tú, ¿qué tal?
 
 —Bueno, no me puedo quejar, tengo ahora bastantes preparantes, aunque
-se me acaba el plazo de entregar un manual de... - contestó Ciriaco.
+se me acaba el plazo de entregar un manual de... - contestó Cecilio.
 
-—No decíamos ese trabajo, Ciriaco. ¡El de verdad! - dijo Yimi, una vez
+—No decíamos ese trabajo, Cecilio. ¡El de verdad! - dijo Yimi, una vez
 más recibido con carcajadas - ¿Es que te hablo yo de cómo me voy a
 arar los olivos cuando me preguntas por el trabajo? 
 
-—Afú, eso. Tenemos una muerta... - dijo Ciriaco, y le pegó un buen
+—Afú, eso. Tenemos una muerta... - dijo Cecilio, y le pegó un buen
 trago a la segunda cerveza que se había materializado en la tangente
-entre la línea recta que unía a Ciriaco con el barril de cerveza y la
+entre la línea recta que unía a Cecilio con el barril de cerveza y la
 barra.
 
 —Entonces tienes dos cosas, - dijo Yimi. - Eso, y ni puta idea de
@@ -2042,7 +2042,7 @@ en el
 [caso de Marta del Castillo](http://es.wikipedia.org/wiki/Marta_del_Castillo). Ayudaba,
 pero los asesinos no dejaban exactamente su DNI en los cadáveres. 
 
-Ciriaco sólo hizo un débil gesto de asentimiento y volvió a
+Cecilio sólo hizo un débil gesto de asentimiento y volvió a
 beber. Yimi continuó en sus acometidas.
 
 —Pero ¿habéis preguntado a la gente que estuvo en la fiesta? Por
@@ -2051,7 +2051,7 @@ estuvo a punto de echarse a reír, pero abortó la operación en cuanto
 que se percató, a dos o tres palabras del comienzo de la frase, de que
 no era de ese tipo.
 
-Ciriaco contestó con todo tipo de excusas para no haber hecho lo
+Cecilio contestó con todo tipo de excusas para no haber hecho lo
 primero y no saber lo segundo. Había mucha gente, algunos habían
 bebido, no se conocían todos, habían acabado el turno poco después del
 levantamiento del cadáver, la jueza de instrucción no tenía ni idea
@@ -2065,7 +2065,7 @@ dijo, señalando con el dedo en gancho un poco más allá de la barra, a
 Roble, que tomaba un líquido transparente con burbujas mientras con la
 otra mano sostenía el móvil.
 
-Es que el Roble era así, pensó Ciriaco. O sigiloso o un sieso como una
+Es que el Roble era así, pensó Cecilio. O sigiloso o un sieso como una
 casa. Pasaba de todo y de todos, yendo a su bola, si es que el chisme
 que tenía en la mano era la susodicha bola. 
 
@@ -2085,7 +2085,7 @@ Se acercó, bordeando la barra y dando apretones de mano y palmadas en
 la espalda a los conocidos y colegas que se encontraba por allí, hasta
 llegar a Roble. 
 
-Roble, directamente, le acercó el móvil a la cara. Ciriaco
+Roble, directamente, le acercó el móvil a la cara. Cecilio
 echó hacia atrás la cabeza, para poder distinguir lo que le estaba
 enseñando. Leía MXE y veía una bonita escultura de varas y bolas dando
 vueltas, con un par de bolitas rojas y otras grises. Como un mecano,
@@ -2100,11 +2100,11 @@ para sí.
 
 ## Kevin, el asesino
 
-—¿Quién es el asesino? ¿El Kevin? - preguntó, Ciriaco.
+—¿Quién es el asesino? ¿El Kevin? - preguntó, Cecilio.
 
 —¿Kevin? No, - contestó Roble. - Te mando todo.
 
-—¡No! - dijo Ciriaco. - No me lo mandes, ¡cuéntamelo! Joer, que es un
+—¡No! - dijo Cecilio. - No me lo mandes, ¡cuéntamelo! Joer, que es un
 minuto...
 
 —No. No lo es -, dijo Roble. - Por eso te lo mando. Léelo. 
@@ -2116,8 +2116,8 @@ de un trago y eructó quedamente, emitiendo una pequeña y prácticamente invisi
 la boca pudorosamente. La tónica era de la misma marca que adornaba los carteles
 del bar y que se presentaba, en una botella saliendo de un baño de
 burbujas de metacrilato, a los lados de los grifos de los barriles de
-Alhambra. Ciriaco nunca entendería esas ganas por probar lo nuevo,
-siempre. Lo nuevo *nunca* es mejor. Ciriaco estuvo varios años sin
+Alhambra. Cecilio nunca entendería esas ganas por probar lo nuevo,
+siempre. Lo nuevo *nunca* es mejor. Cecilio estuvo varios años sin
 probar la
 [milnoh](http://misterbackstage.wordpress.com/2012/07/17/grxperience-blogtrip-2012-la-memoria-definitiva-granada-sensacion-experiencia-emocion-engagement/alhambra-1925/). Tuvo
 que leer la cifra, y escucharla, y probar buchitos, varias veces, para
@@ -2130,7 +2130,7 @@ pan, al vino, vino y a la cerveza, Alhambra, cuando Roble le dijo:
 
 —Pero...
 
-Pero no estoy de servicio, pensó Ciriaco. Tengo cita con el profesor
+Pero no estoy de servicio, pensó Cecilio. Tengo cita con el profesor
 de los niños en una hora aproximadamente. Por la tarde, más clases, ni
 siquiera le iba a dar tiempo a volver a casa. Y, merecía la pena
 recordarlo, no estaba de servicio.
@@ -2143,7 +2143,7 @@ interrogatorios al detenido, preguntó al agente
 
 ## Preguntas frecuentemente preguntadas
 
-Ciriaco nunca había entendido bien el tema de los interrogatorios. Si
+Cecilio nunca había entendido bien el tema de los interrogatorios. Si
 el tío no es culpable, ¿qué quieres que te diga? Si acaso, se sentirá
 culpable de algo, de haberse meado en el portal del vecino, pongamos
 por caso, y ese
@@ -2157,12 +2157,12 @@ cuando llegue uno y le diga “¿Dónde estuviste el día de autos?“ no te
 contesten “Pues matando al muerto“, sino “No, jefe, no me gusta la
 fórmula uno“.
 
-Además, el Ignacio este no parecía culpable. Parecía un pringao. Ciriaco se
+Además, el Ignacio este no parecía culpable. Parecía un pringao. Cecilio se
 puso las gafas de cerca para echarle un vistazo al
 expediente. Un camello de poca monta. Pero, las huellas. Y... ¿qué
 diablos es el MXE?
 
-Como era cierto que no Ciriaco no tenía ni idea, se quedó en su
+Como era cierto que no Cecilio no tenía ni idea, se quedó en su
 despacho, viendo en la pantalla del ordenador el calabozo donde Roble
 interrogaba al tal Ignacio, mientras miraba los informes del forense y de la científica. No
 entendía nada. Pero daba igual. Bajaría a los calabozos en un rato,
@@ -2261,7 +2261,7 @@ lonchas de K. Sin embargo, no había huellas ni de él ni de nadie en el
 cuchillo usado. ¿Quienes los usaban? ¿Él y Tina? ¿O también Demelza?
 ¿O alguien más? 
 
-En ese momento entró Ciriaco y puso la carpeta encima de la
+En ese momento entró Cecilio y puso la carpeta encima de la
 mesa. Teatralmente, la abrió y señaló un punto aleatorio dentro de
 ella. Luego miró a Ignacio, frunciendo los labios y 
 asintiendo. Para incrementar el efecto, chasqueó la lengua. Roble
@@ -2276,10 +2276,10 @@ baja.
 estar listo para apuntarlos. 
 
 —Bueno, ya sabes -, y paró cuando dijo esto último, como esperando que
-Ciriaco y Roble, efectivamente, lo supieran. Ciriaco negó con la
+Cecilio y Roble, efectivamente, lo supieran. Ciriaco negó con la
 cabeza y Roble se quedó impasible. - Clientes. 
 
-Roble miró a Ciriaco, dándole paso.
+Roble miró a Cecilio, dándole paso.
 
 —Míranos bien a la cara, Nachito - dijo, haciendo la V con los dedos
 índice y corazón,
@@ -2294,11 +2294,11 @@ todo clarito a la jueza y te cae la mínima.
 
 —Si yo no...
 
-—No, tú sí. - dijo Ciriaco.
+—No, tú sí. - dijo Cecilio.
 
 —Las huellas... - intervino Roble.
 
-—Las huellas, y esto -, dijo Ciriaco, apuñalando con el índice la
+—Las huellas, y esto -, dijo Cecilio, apuñalando con el índice la
 carpeta marrón de la que se desbordaban unas hojas. 
 
 Ignacio miró la carpeta.  
@@ -2347,7 +2347,7 @@ yo.
 ## Esperando el turno
 
 Cuando acabaron el interrogatorio todavía no era hora de que empezaran
-el turno. Ciriaco se quedó a rellenar el informe. A Ignacio le abrieron la puerta y le dieron la mano y una palmada en la espalda por las molestias, se alejó rezongando.
+el turno. Cecilio se quedó a rellenar el informe. A Ignacio le abrieron la puerta y le dieron la mano y una palmada en la espalda por las molestias, se alejó rezongando.
 
 Roble salió de la comisaría en dirección a su
 casa.Había encontrado unos cuantos expedientes con unas fotos que
@@ -2370,7 +2370,7 @@ profunda, el MXE apuntaba, de nuevo, a Tina.
 
 ## Un tipo normal
 
-Ciriaco era un tío normal. De puro normal, era extraordinario. Cuando
+Cecilio era un tío normal. De puro normal, era extraordinario. Cuando
 hablaban de que el español medio compraba un coche cada 10 años, el
 echaba cuentas y había cambiado cada nueve años y medio. Si iba de
 vacaciones a la costa más cercana a su ciudad, él iba de vacaciones a
@@ -2382,9 +2382,9 @@ todavía con el moreno pillado en Almuñécar, y terminado en julio del
 hacía, unas veces por encima y otras veces por debajo. Era esa persona
 inexistente que se llama el español medio, y único por ello. 
 
-Y una persona normal hace su trabajo con normalidad. Hace lo que tiene que hacer, ni más ni menos. Es decir, ni un poco más de lo debido ni demasiado poco como para que le caiga un paquete o simplemente sea el hazmerreír de la comisaría. O, en concreto, del Yimi. Así que mientras Roble se hacía lo que quiera que estuviera haciendo en ese momento, o nada, Ciriaco se dedicó a hacer el resumen del interrogatorio y de los informes forenses para la jueza, tecleando con dos dedos y pulgar sobre barra espaciadora y gafas sobre el puente de la nariz. Un montón de palabras, dos mil trescientas veinticinco, como informó Word fielmente, para decir que no sabían mucho y que en realidad tampoco habían descartado a nadie. "Todas las vías de investigación permanecen abiertas". Y la muerta sigue muerta, y su asesino suelto.
+Y una persona normal hace su trabajo con normalidad. Hace lo que tiene que hacer, ni más ni menos. Es decir, ni un poco más de lo debido ni demasiado poco como para que le caiga un paquete o simplemente sea el hazmerreír de la comisaría. O, en concreto, del Yimi. Así que mientras Roble se hacía lo que quiera que estuviera haciendo en ese momento, o nada, Cecilio se dedicó a hacer el resumen del interrogatorio y de los informes forenses para la jueza, tecleando con dos dedos y pulgar sobre barra espaciadora y gafas sobre el puente de la nariz. Un montón de palabras, dos mil trescientas veinticinco, como informó Word fielmente, para decir que no sabían mucho y que en realidad tampoco habían descartado a nadie. "Todas las vías de investigación permanecen abiertas". Y la muerta sigue muerta, y su asesino suelto.
 
-Una vez enviado el informe a la jueza, que decidiría registros, imputaciones o lo que tuviera que decidir, ¿qué tocaba ahora? Lo normal. Ciriaco siempre hacía lo normal. Familia, amigos. La lista que había proporcionado Tina de los que habían asistido a la fiesta, con algunos teléfonos. Un montón de niñatos y niñatas a los que tuvo que llamar, uno por uno, para pedirles que pasaran por comisaría cuando lo tuvieran a bien, y si tenían el teléfono de un tal este o de una tal aquella. Y luego una segunda ronda para los que no habían contestado, los nuevos teléfonos, teléfonos equivocados, "Buenas tardes, soy el inspector Ciriaco Martín, ¿estoy hablando con Vicente Pérez", "Yo no he sido, no he hecho nada", "Qué me hace si no voy", "Uf, con lo liado que estoy", así toda la tarde, el turno avanzando hasta su conclusión.
+Una vez enviado el informe a la jueza, que decidiría registros, imputaciones o lo que tuviera que decidir, ¿qué tocaba ahora? Lo normal. Cecilio siempre hacía lo normal. Familia, amigos. La lista que había proporcionado Tina de los que habían asistido a la fiesta, con algunos teléfonos. Un montón de niñatos y niñatas a los que tuvo que llamar, uno por uno, para pedirles que pasaran por comisaría cuando lo tuvieran a bien, y si tenían el teléfono de un tal este o de una tal aquella. Y luego una segunda ronda para los que no habían contestado, los nuevos teléfonos, teléfonos equivocados, "Buenas tardes, soy el inspector Ciriaco Martín, ¿estoy hablando con Vicente Pérez", "Yo no he sido, no he hecho nada", "Qué me hace si no voy", "Uf, con lo liado que estoy", así toda la tarde, el turno avanzando hasta su conclusión.
 
 Y entonces, el MXE. Los informes de tóxicos se hacen por algo. Pueden haber sido un factor coadyuvante, "ayudante", decía uno de sus alumnos tutorizados, en el crimen. ¿La habían intoxicado para que no gritara o se defendiera? 
 
@@ -2397,7 +2397,7 @@ No tenía ni idea de MXE. A él le sacabas del jaco y del porro y nada. Tendría
 
 —Coño, Ciri, no me voy a acordar, con la que me diste... - contestó Marisol
 
-—Nooo, que yo noooo -, replicó Ciriaco.
+—Nooo, que yo noooo -, replicó Cecilio.
 
 —Coñazo con los informes que había que poner todo, los puntos y las comas. Ya los hacíamos, ¿qué más te daba que estuvieran más pallá o pacá?
 
@@ -2405,19 +2405,19 @@ No tenía ni idea de MXE. A él le sacabas del jaco y del porro y nada. Tendría
 
 —Que es broma, Ciri, coño, que hacías bien. ¿La familia?
 
-—Más grandes ya los chavales, tendrías que verlos, y la señora... no mucho más grande, pero algo sí - respondió Ciriaco.
+—Más grandes ya los chavales, tendrías que verlos, y la señora... no mucho más grande, pero algo sí - respondió Cecilio.
 
 Marisol soltó una carcajada.
 
 —Pensaba que estarías ya divorciado. A tu edad y en la madera, es lo normal.
 
-Ciriaco reflexionó sobre esto. Sería una de las pocas cosas que lo apartaba de la normalidad. También en eso era normal, porque es normal diferenciarse algo del resto de los normales. Sí es que existían.
+Cecilio reflexionó sobre esto. Sería una de las pocas cosas que lo apartaba de la normalidad. También en eso era normal, porque es normal diferenciarse algo del resto de los normales. Sí es que existían.
 
 —¿Y tú? - preguntó. No había tenido excesiva confianza en aquella época y si la había tenido, no se acordaba. Así que hizo una pregunta poco comprometida, para no equivocarse.
 
 —Casada. Con un gato. Por lo civil. - Y volvió a carcajearse. - Él sanísimo, y yo, contenta de no tener que aguantar a nadie más. Ni de que me tengan que aguantar a mi. Bastante tengo con aguantaros a vosotros...
 
-Ciriaco se rió. Brevemente.
+Cecilio se rió. Brevemente.
 
 —Bueno, ¿qué es lo que quieres? Porque no me habrás llamado para invitarme a un café, ¿no? ¿O también?
 
@@ -2565,13 +2565,13 @@ comisaría, así que empezó a andar en dirección a su casa.
 
 ## La clave de la felicidad
 
-Ciriaco recibió un mensaje de WhatsApp de Roble a su móvil personal
+Cecilio recibió un mensaje de WhatsApp de Roble a su móvil personal
 según se bajaba del coche y abría la puerta del garaje. “Jose el
 esloveno descartado“. No sabía de quién diablos estaba hablando. Pero
 el hecho de que fueran capaces de descartar a otra persona, de los
 miles de millones que había por el mundo, le hizo feliz.
 
-En realidad, tampoco era difícil hacer feliz a Ciriaco. Siempre era
+En realidad, tampoco era difícil hacer feliz a Cecilio. Siempre era
 feliz por la simple razón de que redefinía *felicidad* como el estado
 en el que se encontraba en cada momento, o, mejor dicho, con haber
 cubierto las necesidades que necesitaba cubrir en cada momento. Que no
@@ -2634,7 +2634,13 @@ en el jamón. Dejó de pensar en esas cosas y se concentró en las
 heridas cortantes que le hacía al jamón, a quien, en este momento,
 poco le importaba ya. 
 
+La cena a continuación, y la velada, fue extraordinaria. Hubo
+conversación, los niños se acostaron pronto, hubo más copas
+tranquilamente en el sofá, caricias y, finalmente, celebración del
+matrimonio, por primera vez en año. 
 
+Cecilio era feliz por definición. Pero a veces se acostaba con una
+sonrisa en los labios que duraba al menos hasta el día siguiente.
 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
@@ -2711,7 +2717,7 @@ Tendría que ir a la comisaría a pedir los informes a Madrid. Podía ser
 casualidad, claro. También podía conseguir alguna foto más. En
 cualquier caso, la petición era FTW. 
 
-## Mientras tanto, en la mente de Ciriaco
+## Mientras tanto, en la mente de Cecilio
 
 (Nada que no hayamos contado antes.)
 
