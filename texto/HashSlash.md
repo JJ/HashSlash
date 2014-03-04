@@ -852,9 +852,12 @@ compañero de asiento en el autobús.
 ## Los muertos no hablan, los vivos sí.
 
 El walkie de Cecilio emitió un sonido. Estaba de nuevo en el salón del
-piso, evitando sentarse en el sillón caníbal y esperando que salieran
-el secretario judicial y la jueza, que habían entrado hacía unos
-minutos junto con el médico. 
+piso donde había sucedido el asesinato, evitando sentarse en el sillón caníbal y esperando que salieran
+los agentes de criminalística, que habían entrado hacía unos
+minutos junto con el médico en la habitación donde se encontraba el
+cadáver. La jueza y el secretario judicial no andaban lejos,
+posiblemente en el pasillo, porque en la habitación era improbable que
+cupieran todos.
 
 —Inspector, una tipa aquí que quiere subir porque dice que vive ahí o
 no sé qué.
@@ -961,11 +964,12 @@ o sea que era de la muerta.
 Roble miró el DNI y le hizo una mueca a Cecilio. 
 
 —La de verdad. A partir de ahora, la muerta de verdad será la muerta
-de verdad. La otra, sólo *la muerta*. 
+de verdad. La otra, sólo *la muerta*, - dijo Cecilio.
 
-—Pero...
+—Pero... -, objetó Roble. 
 
-—Ni peros ni manzanas. Yo me entiendo. 
+—Ni peros ni manzanas. Yo me entiendo, - dijo, haciendo un gesto
+tajante con la mano, Cecilio.
 
 Roble miró de reojo a Tina que, apoyada en una pared, charlaba
 animadamente con Demelza. Esta, sin embargo, miraba con cierto
@@ -974,13 +978,13 @@ de donde procedían ruidos de frotar de plásticos, de fotos disparadas
 y de indicaciones monosilábicas de un miembro del equipo de
 criminalística a la otra. 
 
-—Pero no la conocen.
+—Pero no la conocen, - dijo Roble. 
 
-—Tina no, por nombre, la cara le suena, dice, - esta volvió la cara
+—Tina no, por nombre -, dijo Cecilio -, la cara le suena, dice, - esta volvió la cara
 para mirarlos, al escuchar su nombre - pero Demelza no ha dicho que no, le suena una Ainhoa que
 le escribió hace tiempo, pero podría ser Aitora.
 
-—Aitora...
+—Aitora... - dijo Roble, con una mueca. 
 
 —Yo que sé, tío, a mi me sacas de las Ramonas y las Maripuris y no me
 aclaro, - dijo Cecilio, abriendo los brazos. - Que lo va a buscar a
@@ -996,10 +1000,8 @@ relativamente novata que Roble veía por primera vez. Venían cargados
 con una bolsa reutilizable del Mercadona en la que ponía PRUEBAS
 escrito en rotulador. 
 
-—Ya avisamos nosotros a los de la furgoneta de los fiambres para que suban- dijo el
-agente. 
-
-Salieron en un momento era espacial, con los trajes de papel, que
+—Ya avisamos nosotros a los de la furgoneta de los fiambres para que suban-, dijo el
+agente, que había salido junto con la otra agente en un momento era espacial, con los trajes de papel, que
 Roble se moría por fotografiar pero que en esta ocasión se quedaría
 inédito al no haber
 estado suficientemente rápido como para hacerlo. Sus neuronas le
