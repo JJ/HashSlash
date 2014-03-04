@@ -2,8 +2,6 @@
 
 <h1>#slash</h1>
 
-
-
 1: #JustABelieber - 2: #pelisconnata - 3: #nomepises - 4: #masterchef - 5: #slash
 ---
 
@@ -68,7 +66,7 @@ de Roble variara.
 
 —[Gynnsam](http://www.ikea.com/es/es/catalog/products/50134950/)-,
 dijo Roble, esforzándose en hacer una n lo suficientemente larga como para que pareciera el doble, mostrándole de nuevo la pantalla del móvil a
-Cecilio. Ciriaco lo cogió y se alzó las gafas, entornando a la vez un
+Cecilio, que lo cogió y se alzó las gafas, entornando a la vez un
 poco los ojos.
 
 —No, el mango es así como triangular, y no tiene las tachuelas -, dijo Cecilio. Se
@@ -341,7 +339,7 @@ Café para dos
 
 Por un momento, Roble había creído que la chica iba a descubrir la
 situación antes de lo conveniente, es decir, antes de que pudieran sacarle cierta información sobre qué había pasado la noche anterior. Y antes de que, sabiendo lo ocurrido, tuvieran
-hacer de consejeros, que tendría que ser él porque Ciri era un inútil
+hacer de consejeros, que tendría que ser él porque Cécil era un inútil
 para prácticamente todo. Además, si ella había tenido algo que ver con
 ello, trataría de interrogarla sobre qué sabían, de donde se filtraría
 lo que ella sabía. Había un tercer 
@@ -534,7 +532,7 @@ barrio. Y el artículo sobre incompetencia policial, con tus nombres y
 tus apellidos, lo tienes
 garantizado como no  trinquéis al asesino esta misma tarde. Esta misma
 mañana. Eso igual no te viene bien para pillarte alumnos de
-oposiciones, ¿eh, Ciri?
+oposiciones, ¿eh, Cécil?
 
 Cecilio le soltó el brazo. No, no le vendría bien como publicidad. Al
 menos de forma inmediata. Pero en dos meses se habrían olvidado y le
@@ -555,10 +553,10 @@ acercarse hasta la puerta del bloque sin dejar de llorar, aunque más
 en silencio. El agente no la
 dejó pasar y tras amagar unos golpes decidió, simplemente, sentarse en
 el suelo y seguir llorando. Quique y Cecilio se fueron hacia ella,
-pero Ciriaco volvió el brazo con la palma hacia atrás y le impidió
+pero Cecilio volvió el brazo con la palma hacia atrás y le impidió
 continuar a Quique.
 
-—Venga, coño, Ciri, dame vidilla, cojones. ¿Cuánto? - le preguntó
+—Venga, coño, Cécil, dame vidilla, cojones. ¿Cuánto? - le preguntó
 Quique, echándose la mano a la cartera en el bolsillo de atrás. 
 
 —Te voy a meter una hostia que te van a hacer palmas las orejas. Eres
@@ -572,7 +570,7 @@ sonriendo y volviendo a dejar la cartera en el bolsillo de atrás.
 muertos y pa los de asuntos internos si es que te preguntan. Ahora,
 humo.
 
-—Joder, Ciri, que está el de marketing del periódico encima nuestro,
+—Joder, Cécil, que está el de marketing del periódico encima nuestro,
 todo lo que huela a sangre son visitas a la web y si tiene imágenes, más, venga, va, joder...
 
 Cecilio no dijo nada. Tina había vuelto al suelo a llorar y la jueza y el
@@ -629,7 +627,7 @@ desconsolado cuando sabe de la muerte de la misma.
 
 El app monedero de *bitcoin* de Roble sonó, con su tintineo metálico, en ese
 momento. Ya le habían abonado las fotos que había tomado el
-Ciri, un par de *bitcoins* que no era probable que duraran
+Cécil, un par de *bitcoins* que no era probable que duraran
 veinticuatro horas. Sólo si esto le tomaba demasiado tiempo. 
 
 Bajó del autobús en la Caleta y le mandó un Whatsapp al asistente social que estaba con el chico para
@@ -660,7 +658,7 @@ solicitar al juzgado intervención de cuentas en bancos, listados de llamadas,
 tráfico de datos, claves de cuentas de correo... Entró en el
 formulario del juzgado al que habían asignado el caso y marcó
 todo. Estaba tecleando el informe de justificación cuando sonaron los
-acordes de llegada de un mensaje por WhatsApp. Era Ciri indicándole
+acordes de llegada de un mensaje por WhatsApp. Era Cécil indicándole
 que habían llegado los del juzgado y que dónde coño estaba. 
 
 El sonido hizo que Kevin abriera los ojos. Ni siquiera los tenía
@@ -742,7 +740,7 @@ preguntó:
 
 —¿Cómo se siente por la muerte de su compañera de piso?
 
-Ciri no se sorprendió en absoluto de que, una vez más, los periodistas
+Cécil no se sorprendió en absoluto de que, una vez más, los periodistas
 hicieran grandes esfuerzos para sacar de dentro de cada persona los
 tópicos que contenían. Sin embargo, la respuesta fue
 
@@ -1046,7 +1044,7 @@ pretendiera decir, “está usted Blanco“ o “es usted blanca“. Pero
 recuperó el color rápidamente, dejando al hipotético extranjero con el dilema de
 decir “estar“ donde debería haber dicho “ser“ o al revés. 
 
-—En cuanto que sepáis algo, me llamáis. Cecilio, ¿no? - Ciriaco
+—En cuanto que sepáis algo, me llamáis. Cecilio, ¿no? - Cecilio
 asintió. - Pasadme los teléfonos por si os tengo que llamar. ¿Se os
 ocurre qué puede haber sido?
 
@@ -1347,7 +1345,7 @@ Exacto, pensó Roble. Y precisamente por ese orden.
 
 ## Interludio en el tálamo de Cecilio
 
-Ciriaco se despertó cuando su mujer entró en la cama. Se dio la vuelta
+Cecilio se despertó cuando su mujer entró en la cama. Se dio la vuelta
 y siguió durmiendo. 
 
 Volvió a despertarse cuando pasó el camión de la basura. Estuvo
@@ -1777,7 +1775,7 @@ ponía cachondo a Roble era que el mismo perpetrador, y todo el mundo,
 supieran que había sido el propio Roble el que había conseguido las
 pruebas, tirado del hilo, andado el camino que lleva a la condena.
 
-Porque solía ser Roble. Cecilio... Ciriaco estaba ahí, cumplía su
+Porque solía ser Roble. Cecilio... Cecilio estaba ahí, cumplía su
 trabajo, también andaba el camino, o al menos movía las piernas, pero nunca había ideas,
 asociaciones, saltos lógicos. De hecho, a veces ni siquiera estaba
 ahí. Cuando no era su turno, o cuando era su turno y tenía su mente en
@@ -2006,10 +2004,10 @@ aparecer por la puerta.
 
 —¿Ya estáis en segundas? ¿O terceras? 
 
-—Ciri, son las una y pico de la tarde. Un respeto. - dijo Yimi, de
+—Cécil, son las una y pico de la tarde. Un respeto. - dijo Yimi, de
 nuevo, una vez más jaleado por una escolanía carcajeante, 
 
-—Vale, en cuartas entonces - Ciri se tomó la cerveza de un trago y
+—Vale, en cuartas entonces - Cécil se tomó la cerveza de un trago y
 alzó el dedo, pidiendo otra. - ¿Cómo va el trabajo?
 
 —Estaría bien si no fuera, ya sabes, por el trabajo en sí. - dijo esta
@@ -2276,7 +2274,7 @@ baja.
 estar listo para apuntarlos. 
 
 —Bueno, ya sabes -, y paró cuando dijo esto último, como esperando que
-Cecilio y Roble, efectivamente, lo supieran. Ciriaco negó con la
+Cecilio y Roble, efectivamente, lo supieran. Cecilio negó con la
 cabeza y Roble se quedó impasible. - Clientes. 
 
 Roble miró a Cecilio, dándole paso.
@@ -2384,7 +2382,7 @@ inexistente que se llama el español medio, y único por ello.
 
 Y una persona normal hace su trabajo con normalidad. Hace lo que tiene que hacer, ni más ni menos. Es decir, ni un poco más de lo debido ni demasiado poco como para que le caiga un paquete o simplemente sea el hazmerreír de la comisaría. O, en concreto, del Yimi. Así que mientras Roble se hacía lo que quiera que estuviera haciendo en ese momento, o nada, Cecilio se dedicó a hacer el resumen del interrogatorio y de los informes forenses para la jueza, tecleando con dos dedos y pulgar sobre barra espaciadora y gafas sobre el puente de la nariz. Un montón de palabras, dos mil trescientas veinticinco, como informó Word fielmente, para decir que no sabían mucho y que en realidad tampoco habían descartado a nadie. "Todas las vías de investigación permanecen abiertas". Y la muerta sigue muerta, y su asesino suelto.
 
-Una vez enviado el informe a la jueza, que decidiría registros, imputaciones o lo que tuviera que decidir, ¿qué tocaba ahora? Lo normal. Cecilio siempre hacía lo normal. Familia, amigos. La lista que había proporcionado Tina de los que habían asistido a la fiesta, con algunos teléfonos. Un montón de niñatos y niñatas a los que tuvo que llamar, uno por uno, para pedirles que pasaran por comisaría cuando lo tuvieran a bien, y si tenían el teléfono de un tal este o de una tal aquella. Y luego una segunda ronda para los que no habían contestado, los nuevos teléfonos, teléfonos equivocados, "Buenas tardes, soy el inspector Ciriaco Martín, ¿estoy hablando con Vicente Pérez", "Yo no he sido, no he hecho nada", "Qué me hace si no voy", "Uf, con lo liado que estoy", así toda la tarde, el turno avanzando hasta su conclusión.
+Una vez enviado el informe a la jueza, que decidiría registros, imputaciones o lo que tuviera que decidir, ¿qué tocaba ahora? Lo normal. Cecilio siempre hacía lo normal. Familia, amigos. La lista que había proporcionado Tina de los que habían asistido a la fiesta, con algunos teléfonos. Un montón de niñatos y niñatas a los que tuvo que llamar, uno por uno, para pedirles que pasaran por comisaría cuando lo tuvieran a bien, y si tenían el teléfono de un tal este o de una tal aquella. Y luego una segunda ronda para los que no habían contestado, los nuevos teléfonos, teléfonos equivocados, "Buenas tardes, soy el inspector Cecilio Martín, ¿estoy hablando con Vicente Pérez", "Yo no he sido, no he hecho nada", "Qué me hace si no voy", "Uf, con lo liado que estoy", así toda la tarde, el turno avanzando hasta su conclusión.
 
 Y entonces, el MXE. Los informes de tóxicos se hacen por algo. Pueden haber sido un factor coadyuvante, "ayudante", decía uno de sus alumnos tutorizados, en el crimen. ¿La habían intoxicado para que no gritara o se defendiera? 
 
@@ -2393,9 +2391,9 @@ No tenía ni idea de MXE. A él le sacabas del jaco y del porro y nada. Tendría
 
 —González -, le contestaron desde el otro lado del teléfono.
 
-—¿Marisol? Soy el Ciri, no sé si te acordarás...
+—¿Marisol? Soy el Cécil, no sé si te acordarás...
 
-—Coño, Ciri, no me voy a acordar, con la que me diste... - contestó Marisol
+—Coño, Cécil, no me voy a acordar, con la que me diste... - contestó Marisol
 
 —Nooo, que yo noooo -, replicó Cecilio.
 
@@ -2403,7 +2401,7 @@ No tenía ni idea de MXE. A él le sacabas del jaco y del porro y nada. Tendría
 
 —Bueno, que yo...
 
-—Que es broma, Ciri, coño, que hacías bien. ¿La familia?
+—Que es broma, Cécil, coño, que hacías bien. ¿La familia?
 
 —Más grandes ya los chavales, tendrías que verlos, y la señora... no mucho más grande, pero algo sí - respondió Cecilio.
 
@@ -2431,15 +2429,16 @@ Cecilio se rió. Brevemente.
 
 —Je, je, claro. Pero, ¿qué hace?
 
-—Te coloca -, dijo Marisol, y se volvió a reír. 
+—Te coloca -, dijo Marisol y se volvió a reír. Se reía mucho,
+Marisol. 
 
 —Pero...
 
-—Que no lo sé, Ciri, de veras, todavía no nos ha tocado nadie que se haya metido de eso, ¿no te digo que es nueva?
+—Que no lo sé, Cécil, de veras, todavía no nos ha tocado nadie que se haya metido de eso, ¿no te digo que es nueva?
 
 —Hombre, por si habías oído...
 
-—Qué cansino te puedes llegar a poner, Ciri, de verdad, ya se me había olvidado. Vamos a hacer una cosa -, dijo e hizo una pausa -, tú me mandas lo que tengas de la mandanga esta y yo pregunto por aquí o pido a los de la UDYCO información y te la paso, ¿de acuerdo? Mientras tanto, busca por la Internet, coño, que no te va a pasar nada...
+—Qué cansino te puedes llegar a poner, Cécil, de verdad, ya se me había olvidado. Vamos a hacer una cosa -, dijo e hizo una pausa -, tú me mandas lo que tengas de la mandanga esta y yo pregunto por aquí o pido a los de la UDYCO información y te la paso, ¿de acuerdo? Mientras tanto, busca por la Internet, coño, que no te va a pasar nada...
 
 —Venga, quedamos en eso.
 
@@ -2447,7 +2446,7 @@ Cecilio se rió. Brevemente.
 
 —Y el café. Venga, un saludo, Marisol.
 
-—Y un beso, Ciri. Mándame eso ya.
+—Y un beso, Cécil. Mándame eso ya.
 
 Colgó y se puso a buscar el correo electrónico que tenía Marisol para enviarle el informe. Antes de enviárselo, lo corrigió, añadiendo dos comas, quitando dos puntos y coma y corrigiendo alguna falta de ortografía que le había pasado desapercibida. 
 
@@ -2641,6 +2640,7 @@ matrimonio, por primera vez en año.
 
 Cecilio era feliz por definición. Pero a veces se acostaba con una
 sonrisa en los labios que duraba al menos hasta el día siguiente.
+
 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt

@@ -19,13 +19,14 @@ Nombre | Nacido - cuando | dónde |  Puesto | Otros
 --- |--- |--- |--- | ---
 Puri Blanco | - | - | Jueza de instrucción del caso | 
 Paco | - | - | Secretario judicial
+Marisol  | - | - | Antigua compañera de Cecilio, ahora en narcóticos. 
 
 Las muertas y amistades diversas
 ---
 
 Nombre | Nacido - cuando | dónde |  A qué se dedica | Otros
 --- |--- |--- |--- | ---
-Ainhoa González Tovar| 1994 |  - | A copiar y a estudiar | *Spoiler alert*  Asesinada
+Ainhoa González Tovar| 1994 |  - | A copiar y a estudiar | *Spoiler alert*  Asesinada.
 Demelza | 1995 | - | Escribe mecaporno y estudia ingeniería electrónica industrial | 
 Tina | 1992 | - | Cocina e investiga | Compañera de piso de Demelza
 Ignacio Salido | 1989 | -  | Trapichea | Okupa en el piso de enfrente de Demelza y Tina
