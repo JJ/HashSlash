@@ -2704,7 +2704,7 @@ no explícitas eran las que pesaban más en el cerebro de Roble. Y en su
 escroto.
 
 A Roble le gustaba vivir sólo. La serenidad, el silencio, el seguir
-sus ritmos y sus rutinas sin compromisos ni interrupcines. Pero su
+sus ritmos y sus rutinas sin compromisos ni interrupciones. Pero su
 casa era grande, un platillo volante varado en la ladera del Barranco
 del Abogado que había comprado por mucho menos de lo que valía tras
 lograr, previo soborno, el compromiso de diferentes administraciones
@@ -2747,7 +2747,36 @@ puso cara de extrañeza.
 le ha quedado dentro de su casa. ¿Cuando dices que podrá recogerlo?
 
 Nacho parecía satisfecho con el pequeño parapeto que se había
-construido. Se volvió hacia ellos y les sonrió. 
+construido. Se volvió hacia ellos y les sonrió. Luego se tumbó y se
+echó a dormir.
+
+Roble salió del garaje y cerró la puerta cuando hubo salido
+Demelza. Echó la llave por dentro y buscó en un llavero que había
+colgado a la derecha de la puerta un mando a distancia que le entregó
+a Demelza.
+
+—Genial. ¡Así está independiente!
+
+—Un día... - dijo Roble. 
+
+—Bueno, unos días. Además, ¿qué más te da? No te va a molestar, ya
+verás.
+
+De alguna forma, si no se daba cuenta que el hecho de que un policía
+alojara a un trapichero de droga no acababa de ser la la cosa más
+normal del mundo, iba a ser difícil que lo entendiera por muchos
+argumentos que le diera. 
+
+—Unos días. Sólo -, dijo Roble. 
+
+—Eres un tío guay, Roble - y se le abrazó, acoplando sus formas a su
+cuerpo y le dio un largo beso que, cuando empezaba a activar el
+sistema parasimpático de Roble, se interrumpió. 
+
+—Me tengo que ir. Voy a ver a Kevin. Esta noche le traigo a este la
+manta. 
+
+
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
