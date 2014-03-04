@@ -1860,9 +1860,20 @@ animosamente los centímetros cuadrados de su cara expuestos a la
 intemperie, como una ráfaga de aire frío le hacía arrepentirse incluso
 de esos pocos centímetros.  
 
-El tiempo parecía darles pistas de cómo se estaba acercando a la solución del caso: frío, frío. Era posible que este nuevo elemento diera alguna pista. Pero también era posible y más que probable que no tuviera ni idea, que fuera simplemente el vecino que se les metía en la casa a tomarse la cerveza y a lo que cayera.
+El tiempo parecía darles pistas de cómo se estaba acercando a la
+solución del caso: frío, frío. Era posible que este nuevo elemento
+diera alguna pista. Pero también era posible y más que probable que no
+tuviera ni idea, que fuera simplemente el vecino que se les metía en
+la casa a tomarse la cerveza y a lo que cayera. 
 
-Encontró a los dos agentes en el rellano de la escalera y a un muchacho vestido con un chándal ajado sentado, con la cabeza apoyada en la pared. Se le acercaron los dos, haciendo un amago de saludo. A Roble no dejaba de sorprenderle ese gesto, siempre se sentía tentado de mirar hacia atrás a ver si se había colado algún general detrás suyo. Hacía tiempo que él había entrado en la policía, pero la policía no acababa de entrar en él, al menos esos aspectos ritualísticos y folclóricos. 
+Encontró a los dos agentes en el rellano de la escalera y a un
+muchacho vestido con un chándal ajado sentado, con la cabeza apoyada
+en la pared. Se le acercaron los dos, haciendo un amago de saludo. A
+Roble no dejaba de sorprenderle ese gesto, siempre se sentía tentado
+de mirar hacia atrás a ver si se había colado algún general detrás
+suyo. Hacía tiempo que él había entrado en la policía, pero la policía
+no acababa de entrar en él, al menos esos aspectos ritualísticos y
+folclóricos.  
 
 —Torres -, dijo uno de los agentes, el más corpulento, levantando un dedo,- y este es Quesada. - Con las gafas Google identificó al muchacho. Ignacio Salido, aunque en sus perfiles en redes sociales había poco movimiento desde años atrás. Le hizo varias fotos y comenzó a cotejarlas con las que había de la fiesta. 
 
@@ -2641,9 +2652,31 @@ tranquilamente en el sofá, caricias y, finalmente, celebración del
 matrimonio, por primera vez en año. 
 
 Cecilio era feliz por definición. Pero a veces se acostaba con una
-sonrisa en los labios que duraba al menos hasta el día siguiente.
+sonrisa en los labios que duraba al menos hasta el día siguiente. De
+hecho, más que cualquier pensamiento o inquietud relacionado con
+heridas y cuchillos.
 
+## Víctimas de libro
 
+Las víctimas de las novelas de Roble eran, en realidad, suicidas que
+no habían salido del armario. Se había puesto a escribir al llegar a
+su casa. El protagonista empezaba a contarle a todo el mundo menos a
+la policía sus sospechas de lo que sucedía en la casa del vecino,
+contándoselo a un amigo usando un teléfono inalámbrico, usando una
+wifi pirateada de alguien para enviar correos electrónicos a otros
+amigos y comentarlo en foros abiertos y en general, atrayendo todo
+tipo de atención hacia sí. Además, contaba sus planes de encarar al
+vecino cuando llegara del trabajo esa misma noche. 
+
+Había decidido creer a Jože. Tampoco tenía ninguna razón para matar a
+Ainhoa. Tampoco la tenía Nacho. En realidad, nadie tenía una buera
+razón para matarla. Si es que querían, efectivamente, matarla a ella. 
+
+Alguien entró por la puerta principal en ese momento. 
+
+—¿Roble? ¿Estás por ahí?
+
+Demelza. Pero no venía sola.
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
