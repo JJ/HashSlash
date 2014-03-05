@@ -2540,9 +2540,15 @@ Ya había incumplido el protocolo, que decía que tenía que saludarlo
 antes de preguntar e identificarse, pero no creía que esa fuera razón
 suficiente como para que Jože saliera corriendo hacia su izquierda.  
 
-Diablos, pensó Roble. Vamos a correr ahora. Conectó el app NoFlab para que tuviera en cuenta el esfuerzo realizado. 
+Joder, pensó Roble. Vamos a correr ahora. Conectó el app NoFlab para
+que tuviera en cuenta el esfuerzo realizado.  
 
-Lo alcanzó a la altura de los comedores universitarios, cuando trató de esquivar a la gente que estaba delante de ellos, esperando a los autobuses del área metropolitana, tras unos minutos. Lo agarró del cuello del abrigo y el perseguido estuvo a punto de caerse, pero recuperó y amagó un puñetazo hacia Roble. Roble lo esquivó e hizo el gesto, con el dedo índice, de "No, no, no".
+Lo alcanzó a la altura de los comedores universitarios, cuando trató
+de esquivar a la gente que estaba delante de ellos, esperando a los
+autobuses del área metropolitana, tras unos minutos. Lo agarró del
+cuello del abrigo y el perseguido estuvo a punto de caerse, pero
+recuperó y amagó un puñetazo hacia Roble. Roble lo esquivó e hizo el
+gesto, con el dedo índice, de "No, no, no". 
 
 —¿Qué quieres? ¿Qué quierres? - preguntó Jože.
 
@@ -2834,7 +2840,7 @@ manta.
 
 La acompañó a la puerta, en la planta superior y allí se quedó cuando
 ella salió. Oyó a los pocos segundos el chirrido de la puerta del
-garage, que había usado escasas veces y que posiblemente necesitara
+garaje, que había usado escasas veces y que posiblemente necesitara
 algo de engrase. Pero eso tenía mucha más baja prioridad que la
 actualización del sistema para que Demelza no entrara y saliera a su
 gusto. 
@@ -2854,7 +2860,13 @@ Performance con calcetines Tao.
 Comenzó cuesta arriba, en dirección al cementerio. En los ventanucos
 de ventilación del garaje no se veía luz cuando salió. 
 
-
+Correr es aburrido cuando no tienes en qué pensar. Pero tenía que
+pensar en un final lógico pero a la vez sorprendente para su novela y
+también en una narrativa consistente y a la vez soportada por las
+pruebas para el asesinato que se traía entre manos. Con una tercera
+restricción: una narrativa en la que Tina no fuera un personaje. Lo
+que, a estas alturas, se le hacía tremendamente complicado. Todos los
+caminos llevaban a Tina. 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
