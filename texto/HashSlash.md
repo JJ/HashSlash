@@ -58,7 +58,7 @@ sabría.
 
 En ese pequeño intervalo de tiempo, dedos de todo el mundo habían
 golpeado dos veces sobre sus pantallas, hecho *me gusta* sobre las
-fotos que el avatar virtual de Roble había subido; Roble vio que llevaba veinticinco ya. Y en Twitter
+fotos que el avatar de Roble había subido; Roble vio que llevaba veinticinco ya. Y en Twitter
 casi los mismos, con el doble de RTs.  
 
 —Lo que te decía, el cuchillo. De Ikea. - retomó el tema Cecilio, haciendo que el ritmo de tecleo
@@ -122,7 +122,9 @@ cosa de Ikea es?
   y él seguía tecleando. - No hay app - dijo aaahhh - para eso,
   ¿verdad? 
   
-Cecilio se rió de su propia gracia. Roble volvió al móvil, que acababa de emitir el tono que indicaba, de nuevo, que había llegado un mensaje. 
+Cecilio se rió de su propia gracia. Roble volvió al móvil, que acababa
+de emitir el tono que indicaba, de nuevo, que había llegado un
+mensaje.  
   
  — Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Cecilio. 
  
@@ -134,7 +136,12 @@ Cecilio se rió de su propia gracia. Roble volvió al móvil, que acababa de emi
  
 Cecilio volvió al cabo de un minuto. Sus pies se pegaban al suelo,
 recubierto de una sustancia pegajosa compuesta de capas de mugre y de
-diversos hidratos de carbono. Le pasó el móvil a Roble. Este
+diversos hidratos de carbono depositados de forma más o menos uniforme
+en el suelo tras caer de los vasos y manos de los asistentes a la
+fiesta. Un diseñador de cócteles habría hecho su agosto analizando los
+componentes de los mismos y un chef deconstruyéndolos y
+convirtiéndolos en una croqueta. 
+Le pasó el móvil a Roble. Este
 empezó a pasar las fotos, sin pararse demasiado en cada una, y de repente fue consciente del olor a
 carnicería que venía de la habitación donde la muerta,
 irremediablemente, se descomponía. Le vino una náusea pero la combatió
@@ -146,13 +153,15 @@ en la espalda, lo que casi hizo que se le volviera a salir el vómito.
 un piso de tres dormitorios, que podían permitirse, imaginaba Roble, porque estaba lejos
 de cualquier facultad y prácticamente de todo. Aún así, había vislumbrado en las fotos mobiliario que estaba muy por encima de los desechos y muebles montables que había en la zona común. 
 
-—Ahí se puede quedar. Yo paso de despertarla -, dijo Cecilio.- ¿Para darle el mal rato y que le dé un jamacuco? Yo paso de consolar a niñatas. Al menos, de
+—Ahí se puede quedar. Yo paso de despertarla -, dijo Cecilio.- ¿Para
+que pase un mal rato y que le dé un jamacuco? No es lo mío consolar a
+niñatas. Al menos, de 
 consolarlas así - le dio un codazo al joven Roble, que le
 volvió a traer la náusea a la garganta - Bastante hemos tenido con el
 novio. Menudo apollardao.
 
-—¿Apollardao? ¿Eso es granadino? - preguntó Roble. A la vez, tecleaba
-buscándolo en el móvil.
+—¿Apollardado? ¿Eso es granadino? - preguntó Roble. A la vez, tecleaba
+buscándolo en el móvil. 
 
 —Tontolaba, agilipoyao de la vida, persona que lleva ya dos años
 trabajando en Granada y no sabe lo que significa la palabra
@@ -166,9 +175,13 @@ caso, no tenía por qué estar familiarizado Cecilio en el caso de este
 tal Kevin. Al menos diez minutos después de habérselo encontrado por
 primera vez.
 
-—¿Inocente? - preguntó Roble. 
+—¿Inocente? -, preguntó Roble. 
 
-—Inocente lo es de por sí. Pero también puede ser, digo yo, que sea un mosquito muerto de los que las mata callando. Dicho esto como figurativamente hablando, vamos, porque el tío bien que chillaba cuando llamó y mientras nos abría la puerta. Vamos, que no tengo ni puta idea, Roble. Pero me extrañaría. Cuando salga del
+—Inocente lo es de por sí. Pero también puede ser, digo yo, que sea un
+mosquito muerto de los que las mata callando. Dicho esto como
+figurativamente hablando, vamos, porque el tío bien que chillaba
+cuando llamó, según nos contó la del 112 y mientras nos abría la puerta. Vamos, que no tengo ni
+puta idea, Roble. Pero me extrañaría. Cuando salga del 
 Clínico le preguntaremos. Pero vamos, que no.   
 
 —¿Por? - preguntó Roble, de nuevo. 
@@ -180,14 +193,14 @@ Clínico le preguntaremos. Pero vamos, que no.
 
 —La posición del cuchillo, el ángulo, - hizo movimientos de Bates
 apuñalando la cortina de
-la ducha en Psicosis, - quien fuera tendría que ser bastante más alto
+la ducha en “Psicosis“, - quien fuera tendría que ser bastante más alto
 que ella. Y ese menda, así a ojo de buen cubero, era de la misma
 altura o un poco más bajo.
 
 —¿Seguro? - insistió Robles. 
 
 —Coño, Robles, porque me he visto el NCIS y el CSI y toda serie 
-maderera que echen por la tele o te compres en el Cortinglés o que se
+maderera que echen por la tele o te puedas comprar en el Cortinglés o que se
 pueda bajar uno subtitulada para entenderla. ¿Tú te crees que me ha
 tocado ver muchos fiambres? 
 ¿O que me lo enseñaron en la academia? En mi época, todavía te enseñaban a dar hostias a dos manos. Y los muertos, con los
@@ -2422,38 +2435,55 @@ Marisol soltó una carcajada.
 
 —Pensaba que estarías ya divorciado. A tu edad y en la madera, es lo normal.
 
-Cecilio reflexionó sobre esto. Sería una de las pocas cosas que lo apartaba de la normalidad. También en eso era normal, porque es normal diferenciarse algo del resto de los normales. Sí es que existían.
+Cecilio reflexionó sobre esto. Sería una de las pocas cosas que lo
+apartaba de la normalidad. También en eso era normal, porque es normal
+diferenciarse algo del resto de los normales. Sí es que existían. 
 
-—¿Y tú? - preguntó. No había tenido excesiva confianza en aquella época y si la había tenido, no se acordaba. Así que hizo una pregunta poco comprometida, para no equivocarse.
+—¿Y tú? - preguntó. No había tenido excesiva confianza con ella en aquella
+época y si la había tenido, no se acordaba. Así que hizo una pregunta
+poco comprometida, para no equivocarse. 
 
-—Casada. Con un gato. Por lo civil. - Y volvió a carcajearse. - Él sanísimo, y yo, contenta de no tener que aguantar a nadie más. Ni de que me tengan que aguantar a mi. Bastante tengo con aguantaros a vosotros...
+—Casada. Con un gato. Por lo civil y en terceras nupcias-, dijo, y volvió a carcajearse. - Él
+sanísimo, y yo, contenta de no tener que aguantar a nadie más. Ni de
+que me tengan que aguantar a mi. Bastante tengo con aguantaros a
+vosotros... 
 
 Cecilio se rió. Brevemente.
 
-—Bueno, ¿qué es lo que quieres? Porque no me habrás llamado para invitarme a un café, ¿no? ¿O también?
+—Bueno, ¿qué es lo que quieres? Porque no me habrás llamado para
+invitarme a un café, ¿no? ¿O también? - preguntó, eventualmente,
+Marisol. 
 
-—Je, je, cuando quieras, sí, cuando quieras. Pero te llamo por otra cosa. ¿Qué es lo que es el eme equis e?
+—Je, je, cuando quieras, sí, cuando quieras. Pero te llamo por otra,
+bueno, por otra cosa, a ver si sabes decirme. ¿Qué es lo que es el eme equis e?
 
-—Mandanga de la buena. Con eme, eme lo llaman. De las que llaman *emergentes*, porque están empezando ahora mismo a introducirse en el mercado. Dime más. ¿Aquí en Granada?
+—Mandanga de la buena. Con eme; eme es como lo llaman, ¿lo pillas?. De las que llaman *emergentes*, porque están empezando ahora mismo a introducirse en el mercado. Dime más. ¿Aquí en Granada?
 
-—Sí, una chica muerta aquí, nos ha llegado el informe hoy mismo.
+—Sí, una chica muerta aquí, ayer -, contestó Cecilio-, nos ha llegado el informe hoy mismo, 
 
-—Chungo. No sabíamos que la estuvieran vendiendo por aquí. Pásame lo que tengas, cuando puedas. Con los puntos y las comas puestos. 
+—Chungo. No sabíamos que la estuvieran vendiendo por aquí. Pásame lo
+que tengas, cuando puedas. Con los puntos y las comas puestos.  
 
-—Je, je, claro. Pero, ¿qué hace?
+—Je, je, claro. Pero, ¿qué hace la eme esa? ¿Mata? -, preguntó Cecilio.
 
 —Te coloca -, dijo Marisol y se volvió a reír. Se reía mucho,
 Marisol. 
 
-—Pero...
+—Pero... - dijo Cecilio, con tono de “para ese viaje no hacen falta
+alforjas, Marisol.“
 
-—Que no lo sé, Cécil, de veras, todavía no nos ha tocado nadie que se haya metido de eso, ¿no te digo que es nueva?
+—Que no lo sé, Cécil, de veras, todavía no nos ha tocado nadie que se
+haya metido de eso, ¿no te digo que es nueva? 
 
-—Hombre, por si habías oído...
+—Hombre, por si habías oído... - dijo Cecilio. 
 
-—Qué cansino te puedes llegar a poner, Cécil, de verdad, ya se me había olvidado. Vamos a hacer una cosa -, dijo e hizo una pausa -, tú me mandas lo que tengas de la mandanga esta y yo pregunto por aquí o pido a los de la UDYCO información y te la paso, ¿de acuerdo? Mientras tanto, busca por la Internet, coño, que no te va a pasar nada...
+—Qué cansino te puedes llegar a poner, Cécil, de verdad, ya se me
+había olvidado. Vamos a hacer una cosa -, dijo e hizo una pausa -, tú
+me mandas lo que tengas de la mandanga esta y yo pregunto por aquí o
+pido a los de la UDYCO información y te la paso, ¿de acuerdo? Mientras
+tanto, busca por la Internet, coño, que no te va a pasar nada... 
 
-—Venga, quedamos en eso.
+—Venga, quedamos en eso -, repuso Cecilio. 
 
 —Y el café -, contestó Marisol.
 
@@ -2461,11 +2491,17 @@ Marisol.
 
 —Y un beso, Cécil. Mándame eso ya.
 
-Colgó y se puso a buscar el correo electrónico que tenía Marisol para enviarle el informe. Antes de enviárselo, lo corrigió, añadiendo dos comas, quitando dos puntos y coma y corrigiendo alguna falta de ortografía que le había pasado desapercibida. 
+Colgó y se puso a buscar el correo electrónico de Marisol para
+enviarle el informe. Antes de enviárselo, lo corrigió, añadiendo dos
+comas, quitando dos puntos y coma y corrigiendo alguna falta de
+ortografía que le había pasado desapercibida.  
 
-Tardó unos minutos. El turno todavía no había terminado, así que hizo unas cuantas llamadas más a la lista de Tina, dejando mensajes en contestador y concertando citas para el día siguiente. 
+Tardó unos minutos. El turno todavía no había terminado, así que hizo
+unas cuantas llamadas más a la lista de Tina, dejando mensajes en
+contestador y concertando citas para el día siguiente.  
 
-Y entonces sí terminó el turno. Una tarde bien aprovechada. Mientras tanto, ¿qué diablos habría estado haciendo Roble?
+Y entonces sí terminó el turno. Una tarde bien aprovechada. Mientras
+tanto, ¿qué diablos habría estado haciendo Roble? 
 
 ## Lo que Roble había estado haciendo
 
@@ -2475,9 +2511,24 @@ Había conseguido de la universidad su dirección, en el barrio de Pajaritos, ce
 
 —Está echando un café en la cafetería de la esquina. ¿No lo has visto?
 
-Dio las gracias y se fue hacia la cafetería de la esquina. Roble tenía en la mente las fotos de Jože y se había puesto una de ellas en la pulsera, para comprobaciones rápidas. Pero no habría sido difícil reconocerlo de todas formas: sólo había un par de pintores con monos llenos de parches de colores en una mesa, un grupo de tres chicas en otra mesa en la esquina, dos de ellas hablando en voz baja y una tercera tecleando en el móvil, y él solo en la barra, de aluminio, formando una escuadra. El olor a café estaba sólo una nota por encima del olor de los residuos del mismo, la zurrapa, que en ese momento el camarero vertía en un cajón debajo de la cafetera. En las paredes había carteles de olvidados partidos de fútbol de barrio, estrellas de Radio Olé y corridas de toros de antaño. Un cartel escrito en Comic Sans decía "Se proibe el cante". Roble fue hacia la barra, evitando ir directamente hacia su objetivo. Se sentó dos taburetes más allá de él y lo miró. El camarero siguió jarrucheando entre vasos de café y lo que fuera que estuviera haciendo en la cocina.
+Dio las gracias y se fue hacia la cafetería de la esquina. Roble tenía
+en la mente las fotos de Jože y se había puesto una de ellas en la
+pulsera, para comprobaciones rápidas. Pero no habría sido difícil
+reconocerlo de todas formas: sólo había un par de pintores con monos
+llenos de parches de colores en una mesa, un grupo de tres chicas en
+otra mesa en la esquina, dos de ellas hablando en voz baja y una
+tercera tecleando en el móvil, y él solo en la barra, de aluminio,
+formando una escuadra. El olor a café estaba sólo una nota por encima
+del olor de los residuos del mismo, la zurrapa, que en ese momento el
+camarero vertía en un cajón debajo de la cafetera. En las paredes
+había carteles de olvidados partidos de fútbol de barrio, estrellas de
+Radio Olé y corridas de toros de antaño. Un cartel escrito en Comic
+Sans decía "Se proibe el cante". Roble fue hacia la barra, evitando ir
+directamente hacia su objetivo. Se sentó dos taburetes más allá de él
+y lo miró. El camarero siguió jarrucheando entre vasos de café y lo
+que fuera que estuviera haciendo en la cocina. 
 
-—Iotsí -, se decidió Roble -, tengo que hablar contigo.
+—Iotsí -, dijo Roble, decidiéndose por esa pronunciación -, tengo que hablar contigo.
 
 Jože le miró. 
 
@@ -2485,7 +2536,9 @@ Jože le miró.
 
 —Roble Sáenz. Policía. 
 
-Ya había incumplido el protocolo, pero no creía que esa fuera razón suficiente como para que saliera corriendo hacia su izquierda. 
+Ya había incumplido el protocolo, que decía que tenía que saludarlo
+antes de preguntar e identificarse, pero no creía que esa fuera razón
+suficiente como para que Jože saliera corriendo hacia su izquierda.  
 
 Diablos, pensó Roble. Vamos a correr ahora. Conectó el app NoFlab para que tuviera en cuenta el esfuerzo realizado. 
 
@@ -2676,7 +2729,9 @@ Alguien entró por la puerta principal en ese momento.
 
 —¿Roble? ¿Estás por ahí?
 
-Demelza. Pero no venía sola.
+Demelza. Pero no venía sola. Y él tendría que volver a actualizar el
+sistema operativo de su casa para hacerlo más seguro, ya era la
+segunda vez que se lo saltaba. 
 
 ## Buscando alojamiento
 
@@ -2755,7 +2810,8 @@ Demelza. Echó la llave por dentro y buscó en un llavero que había
 colgado a la derecha de la puerta un mando a distancia que le entregó
 a Demelza.
 
-—Genial. ¡Así está independiente!
+—Genial. ¡Así está independiente! -, dijo esta, cerrando la mano sobre
+el mando. 
 
 —Un día... - dijo Roble. 
 
@@ -2775,6 +2831,28 @@ sistema parasimpático de Roble, se interrumpió.
 
 —Me tengo que ir. Voy a ver a Kevin. Esta noche le traigo a este la
 manta. 
+
+La acompañó a la puerta, en la planta superior y allí se quedó cuando
+ella salió. Oyó a los pocos segundos el chirrido de la puerta del
+garage, que había usado escasas veces y que posiblemente necesitara
+algo de engrase. Pero eso tenía mucha más baja prioridad que la
+actualización del sistema para que Demelza no entrara y saliera a su
+gusto. 
+
+Se sentó a buscar esas actualizaciones y configuraciones que le dieran
+más seguridad, cuando saltó una alarma de su sistema NoFlab
+indicándole que todavía le quedaban unos cuantos ejercicios para
+mantener el tono muscular y que, además, había escrito por debajo de
+la media en la última semana. A la vez, se dio cuenta de que tenía a
+una persona alojada en el garaje y le había dado la llave del mismo a
+una persona que era capaz de romper los sistemas de seguridad de una
+casa como quien rompe una galleta de la suerte. Así que de repente le
+dio exactamente igual actualizar el sistema operativo de nada. Se puso
+su chaqueta Gore Running Wear, pantalones Craft y zapatos Nike
+Performance con calcetines Tao. 
+
+Comenzó cuesta arriba, en dirección al cementerio. En los ventanucos
+de ventilación del garaje no se veía luz cuando salió. 
 
 
 
