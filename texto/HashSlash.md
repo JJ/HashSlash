@@ -2934,7 +2934,18 @@ la puerta con la pulsera, bien, porque a pesar de que el sistema no
 había impedido que entrara otra gente, al menos no habían considerado
 necesario echarlo también a él. Lo recibió el ronroneo de la Roomba,
 que se afanaba por acorralar unas pelusas en una esquina previamente a
-su absorción; 
+su absorción definitiva. Roble se quitó la ropa y la introdujo en la
+lavadora. La temperatura en la casa, según su pulsera, era de 21,3
+grados centígrados y la bajó un poco para no agotar los acumuladores
+de calor. En el camino a la ducha vio desde la cristalera del salón
+una brasa arder en los alrededores del garaje; Nacho fumaba y seguía
+hablando con Tina. Roble arrugó la nariz pensando en los olores que se
+podían filtrar desde el garaje, pero cayó en la cuenta de que tampoco
+el garaje tenía cuarto de baño propio por lo que quizás el olor a humo
+podría ser, en poco tiempo, la menor de sus preocupaciones. 
+
+Se volvió y se duchó. Trató de no pensar en Ainhoa y en su muerte
+mientras se encontraba en el país de las Maravillas. No lo consiguió. 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
