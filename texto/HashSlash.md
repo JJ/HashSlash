@@ -19,8 +19,7 @@ Roble puso la boca en posición de "Ah", pero no dijo nada.
 —No estarás poniendo nada de esto -, dijo, haciendo un gesto señalando a su
 alrededor con la mano - en la Internet esa.
 
-Cecilio hizo un
-pequeño esfuerzo para levantarse del sillón desfondado en el que se
+Cecilio hizo un pequeño, pero creciente, esfuerzo para levantarse del sillón desfondado en el que se
 encontraba sentado.
 
 —No -, respondió Roble.
@@ -151,7 +150,9 @@ en la espalda, lo que casi hizo que se le volviera a salir el vómito.
 
 —La compañera de piso -, dijo Roble. Seguía durmiendo. Dos chicas en
 un piso de tres dormitorios, que podían permitirse, imaginaba Roble, porque estaba lejos
-de cualquier facultad y prácticamente de todo. Aún así, había vislumbrado en las fotos mobiliario que estaba muy por encima de los desechos y muebles montables que había en la zona común. 
+de cualquier facultad y prácticamente de todo. Aún así, había
+vislumbrado en las fotos mobiliario que estaba muy por encima de los
+desechos y muebles montables que había en la zona común.  
 
 —Ahí se puede quedar. Yo paso de despertarla -, dijo Cecilio.- ¿Para
 que pase un mal rato y que le dé un jamacuco? No es lo mío consolar a
@@ -203,11 +204,13 @@ altura o un poco más bajo.
 maderera que echen por la tele o te puedas comprar en el Cortinglés o que se
 pueda bajar uno subtitulada para entenderla. ¿Tú te crees que me ha
 tocado ver muchos fiambres? 
-¿O que me lo enseñaron en la academia? En mi época, todavía te enseñaban a dar hostias a dos manos. Y los muertos, con los
+¿O que me lo enseñaron en la academia? En mi época, todavía te
+enseñaban a dar hostias a dos manos, del derecho y del revés. Y los muertos, con los 
 dedos de esta mano se pueden contar -, mostró su mano izquierda, en la
 que le faltaba un dedo. - Y todas eran mujeres y los asesinos eran
 siempre sus parejas, que, a veces, estaban justo al lado, con
-los sesos volados o, en su caso, ahorcados con el cinturón. Expediente cerrado, caso resuelto, te vas a casa y
+los sesos volados o, en su caso, ahorcados con el cinturón. Expediente
+cerrado, caso resuelto, te vas a casa y 
 te echas la siesta. Pero vamos, que en las series es lo primero que
 miran, Ángulo, altura, este es culpable, ese no. 
 
@@ -1420,7 +1423,7 @@ farmacia. Pero sí lo suficiente para
 llamar la atención de un policía. 
 
 —Y tu ropa... - introdujo Roble en la conversación. Tina contó qué le
-había hecho decidirse, dónde la había comprado, cuando... lo único que
+había hecho decidirse, dónde la había comprado, cuándo... lo único que
 no dijo es de dónde sacaba el dinero. Ninguna referencia a fuente de
 ingresos, a llamada desesperada a los padres para aumentar el límite
 del crédito de la tarjeta, a las ganancias de un fin de semana en la
@@ -1715,7 +1718,7 @@ bla bla.
 
 ## El vecino
 
-Las ventanas del cuarto de Roble estaban orientadas al este y desde
+La casa de Roble tenía cristaleras orientadas al este. Desde
 ellas veía el sol salir sobre Sierra nevada y otras cosas que merecían, casi siempre, unas
 docenas de “Me gusta“ en su Instagram personal, el de los selfies e
 imágenes *urban*. En esta ocasión, el sol se introdujo en un
@@ -1746,7 +1749,8 @@ necesitar algún filtro. La realidad, de por sí, era poco fotogénica. No junta
 más de un par de *me gustas* en cualquier sitio. 
 
 Su pulsera le avisó de que llevaba acumuladas más calorías que la
-media de su grupo de NoFlab. Empezó a vibrar insistentemente
+media de su grupo de NoFlab, la app móvil que garantizaba “mantenerte
+en tu peso o incrementarte tu vergüenza“. Empezó a vibrar insistentemente
 indicándole los kilómetros que tendría que correr hoy si no quería
 caer todavía más abajo. No paró de hacerlo hasta que no detectó que se
 había puesto las zapatillas de correr. Pero sólo por un momento. Si no
@@ -1776,8 +1780,9 @@ ellas con gatos y las subió. Cuando llegó a su casa ya tenía treinta
 *me gusta*. En la de los gatos, claro.
 
 Roble estaba fuera de turno, pero tras desayunar tostadas con flor de
-sal del Himalaya y aceite de oliva virgen extra extraído en frío
-armenio se pasó por la comisaría para ver si
+sal del Himalaya y aceite de oliva virgen extra extraído en frío de
+olivos 
+armenios se pasó por la comisaría para ver si
 había llegado algún informe nuevo. Había cierta gente que se negaba a
 dejar nada en un servidor web o enviarla por correo electrónico, así
 que algunas veces no quedaba más remedio. Y luego, estaba la ley de
@@ -1904,7 +1909,12 @@ Torres le dijo en un aparte
 
 —Un madero moderno. Nos han jodido -, dijo. Volvió a cerrar los ojos.
 
-—Ignacio, por favor -, insistió Roble. Por el rabillo del ojo veía a Torres haciendo ademanes a su compañero, indicándole que a estos (señalando con el dedo) con un par de hostias (haciendo el ademán de dar una del derecho y otra, naturalmente, del revés) se queda nuevo (levantando el pulgar). La visión periférica de Roble no llega a ver qué había contestado el otro. 
+—Ignacio, por favor -, insistió Roble. Por el rabillo del ojo veía a
+Torres haciendo ademanes a su compañero, indicándole que a estos
+(señalando con el dedo) con un par de hostias (haciendo el ademán de
+dar una del derecho y otra, naturalmente, del revés) se queda nuevo
+(levantando el pulgar). La visión periférica de Roble no llega a ver
+qué había contestado el otro.  
 
 —Y educao. Nos han jodido -, dijo, de nuevo, Ignacio, sin abrir los ojos. 
 
@@ -2505,11 +2515,24 @@ tanto, ¿qué diablos habría estado haciendo Roble?
 
 ## Lo que Roble había estado haciendo
 
-Roble había tenido la intención de volver a la comisaría. Tras conseguir encontrar a Jože el Erasmus esloveno. Pero tampoco había tenido la intención de pegarse una carrera hasta atraparlo, que fue lo que tuvo que hacer.
+Roble había tenido, cuando salió,  la intención de volver a la comisaría. Tras
+conseguir encontrar a Jože el Erasmus esloveno. Pero tampoco había
+tenido la intención de pegarse una carrera hasta atraparlo, que fue lo
+que tuvo que hacer. 
 
-Había conseguido de la universidad su dirección, en el barrio de Pajaritos, cerca de la estación del tren. Eran las cuatro de la tarde, un día nublado y ventoso. Desagradable, pensó Roble, subiéndose las solapas de la parka y la cremallera hasta arriba. Las calles estaban prácticamente vacías, algún perro callejero husmeando las esquinas y parroquianos acunando un café con toda la leche caliente en las manos. Llamó al portero del piso de Jože y preguntó por él. Lo pronunció "Jocé", aunque es posible que se pronunciara "Iotsí" o algo más complicado. 
+Había conseguido de la administración de la universidad su dirección, en el barrio de
+Pajaritos, cerca de la estación del tren. Eran las cuatro de la tarde
+cuando llegó a ella,
+un día nublado y ventoso. Desagradable, pensó Roble, subiéndose las
+solapas de la parka y la cremallera hasta arriba. Las calles estaban
+prácticamente vacías, algún perro callejero husmeando las esquinas y
+parroquianos acunando un café con toda la leche caliente en las
+manos. Llamó al portero del piso de Jože y preguntó por él. Lo
+pronunció "Jocé", aunque es posible que se pronunciara "Iotsí" o algo
+más complicado.  
 
 —Está echando un café en la cafetería de la esquina. ¿No lo has visto?
+- le contestó alguien desde el portero. 
 
 Dio las gracias y se fue hacia la cafetería de la esquina. Roble tenía
 en la mente las fotos de Jože y se había puesto una de ellas en la
@@ -2566,10 +2589,18 @@ Se sentaron a descansar en los escalones de los comedores universitarios. Jože 
 
 —¿Por qué fuiste? No conocías a nadie - le preguntó Roble, recordando el mapa de conexiones entre los asistentes a la fiesta que había encontrado. 
 
-—¿Qué dices? Tú no sabes. No sabes, tío. Conocía a Ainhoa -, contestó, chupando otra vez el cigarro y echando el humo, esta vez a la cara de Roble. Roble se tuvo que recordar a sí mismo que no todo está en la red. Uno añade la conexión, o comenta, si le apetece, si le da la gana, y si es de los que va aireando sus relaciones con otra gente. La sorpresa teñida de frustración se reflejó en su cara. Jože se dio cuenta, así que se explicó.
+—¿Qué dices? Tú no sabes. No sabes, tío. Conocía a Ainhoa -, contestó,
+chupando otra vez el cigarro y echando el humo, esta vez a la cara de
+Roble. Roble se tuvo que recordar a sí mismo que no todo está en la
+red. Uno añade la conexión, o comenta, si le apetece, si le da la
+gana, y si es de los que va aireando sus relaciones con otra gente. La
+sorpresa teñida de frustración se reflejó en su cara. Jože se dio
+cuenta, así que se explicó. 
 
 
-—Ainhoa quería algo de allí. - dijo Jože, y Roble alzó la ceja - Sí, quería algo, ahora es muerta, ¿qué más da? Muertos no están delincuentes, ¿no es? 
+—Ainhoa quería algo de allí. - dijo Jože, y Roble alzó la ceja - Sí,
+quería algo, ahora es muerta, ¿qué más da? Muertos no están
+delincuentes, ¿no es?  
 
 —La invitaron -, dijo Roble. 
 
@@ -2633,7 +2664,6 @@ ejercicio. No había tomado suficiente comida sana. Y había inspirado
 demasiado humo. Ninguna de esas cosas se iba a solucionar en la
 comisaría, así que empezó a andar en dirección a su casa. 
 
-
 ## La clave de la felicidad
 
 Cecilio recibió un mensaje de WhatsApp de Roble a su móvil personal
@@ -2649,7 +2679,8 @@ cubierto las necesidades que necesitaba cubrir en cada momento. Que no
 eran muchas, ahí estaba la clave de la necesidad. Era un poco zen. O
 simplemente acomodaticio. Habría querido casarse con la chica más
 guapa de su instituto, pero en vez de eso, redefinió su necesidad como
-alcanzar la chica que fuera alcanzable, sin más exigencias. Habría
+poder acabar la chica que fuera alcanzable, sin más requisitos que el
+hecho de ser una mujer y que no lo rechazara a él de plano. Habría
 querido entrar en la escala ejecutiva directamente, al acabar la
 carrera. Pero redefinió sus aspiraciones a la escala básica, y ya
 entraría a la ejecutiva por promoción interna, y lo consiguió, y fue
@@ -2658,7 +2689,17 @@ nota optó por Trabajo Social, y fue feliz porque lo porque lo poco que
 se le pegó en esa carrera le había resultado bastante útil para tratar
 con sus compañeros, tan diversos y tan especiales. Como Roble. 
 
-Se acercó primero al salón donde su mujer hojeaba algo en el tablet
+Perder un dedo podría haber sido una gran amenaza a este equilibrio
+entre lo deseado y lo obtenido. Pero cuando volvió de la breve baja
+médica que obtuvo, se jactaba de mostrar la mano cuatridáctila jugando
+a los chinos usándola y, por supuesto, estaba felix de que hubiera
+sido la mano izquierda y uno de los dedos menos importantes, el
+anular. A veces incluso, para cachondearse de sus amigos, escribía
+informes sin usar la letra s, que caería justo debajo de ese dedo en el
+teclado. 
+
+En ese estado cerano al zen en el que se encontraba en ese momento se
+acercó primero al salón donde su mujer hojeaba algo en el tablet 
 mientras escuchaba, o ignoraba, la televisión encendida. Le dio un
 beso algo más cariñoso que habitualmente y ella se dejó hacer. Viendo
 cancha, atacó
@@ -2673,7 +2714,7 @@ rato a cortar jamón que le sonrió y le dijo
 
 Su sonrisa se hizo más amplia y ahí seguía cuando fue al dormitorio a
 cambiarse y ponerse el chándal del Decathlon que usaba en casa. Bajaba
-la escalera diciéndole a sus hijos 
+la escalera diciéndole a sus hijos: 
 
 —¡Vamos a hartarnos de jamón esta noche!
 
@@ -2867,6 +2908,24 @@ pruebas para el asesinato que se traía entre manos. Con una tercera
 restricción: una narrativa en la que Tina no fuera un personaje. Lo
 que, a estas alturas, se le hacía tremendamente complicado. Todos los
 caminos llevaban a Tina. 
+
+Subió por la carretera que llevaba a la Alhambra, hasta el
+cementerio. Volvió por el camino viejo del Cementerio cuando el sol se
+había ocultado totalmente y empezaba a hacer un frío tal que casi se
+podía sentir desde el interior de su ropa, adquirida, si mal no
+recordaba, con fotos de manifestaciones en las que había estado
+trabajando, infiltrado. No le había quedado otro remedio, porque era,
+en aquel momento, la única persona que no era suficientemente conocida
+y, además, tenía más o menos la edad adecuada para no llamar demasiado
+la atención. Pero luego se alegró, porque esa noche durmió con una
+mujer a la que conoció allí. Se estaba alegrando en este
+momento, dentro de los calcetines de 40€ obtenidos con las
+imágenes. Entre otras cosas. 
+
+Y Tina se lleva a sí misma hacia él. Cuando llegó estaba hablando en
+la puerta del garaje con Nacho. Una tercera persona, con un largo
+abrigo negro y gorra de cuero negro, se caló la gorra y se dio la
+vuelta en cuanto que él llegó.  
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
