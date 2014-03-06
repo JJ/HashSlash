@@ -2695,13 +2695,13 @@ con sus compañeros, tan diversos y tan especiales. Como Roble.
 Perder un dedo podría haber sido una gran amenaza a este equilibrio
 entre lo deseado y lo obtenido. Pero cuando volvió de la breve baja
 médica que obtuvo, se jactaba de mostrar la mano cuatridáctila jugando
-a los chinos usándola y, por supuesto, estaba felix de que hubiera
+a los chinos usándola y, por supuesto, estaba feliz de que hubiera
 sido la mano izquierda y uno de los dedos menos importantes, el
 anular. A veces incluso, para cachondearse de sus amigos, escribía
 informes sin usar la letra s, que caería justo debajo de ese dedo en el
 teclado. 
 
-En ese estado cerano al zen en el que se encontraba en ese momento se
+En ese estado cercano al zen en el que se encontraba en ese momento se
 acercó primero al salón donde su mujer hojeaba algo en el tablet 
 mientras escuchaba, o ignoraba, la televisión encendida. Le dio un
 beso algo más cariñoso que habitualmente y ella se dejó hacer. Viendo
@@ -2929,6 +2929,15 @@ Y Tina se lleva a sí misma hacia él. Cuando llegó estaba hablando en
 la puerta del garaje con Nacho. Una tercera persona, con un largo
 abrigo negro y gorra de cuero negro, se caló la gorra y se dio la
 vuelta en cuanto que él llegó.  
+
+Tina lo saludó con la mano, pero él no hizo ademán de unirse a la
+conversación, sino que continuó hacia la puerta de la casa, que estaba
+en un nivel superior al garaje y en la pared opuesta al mismo. Abrió
+la puerta con la pulsera, bien, porque a pesar de que el sistema no
+había impedido que entrara otra gente, al menos no habían considerado
+necesario echarlo también a él. Lo recibió el ronroneo de la Roomba,
+que se afanaba por acorralar unas pelusas en una esquina previamente a
+su absorción; 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
