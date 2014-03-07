@@ -420,7 +420,7 @@ hiciera por él. O la dejara ahí, implicando que se había ido cuando
 Demelza se había ido a su habitación. O al otro barrio. Roble no
 pudo evitar sonreír.
 
-—No, espera, Demelza... yo no la vi a partir de las dos o las tres. ¿O
+—No, espera, Demelza... yo no la vi desde las dos o las tres. ¿O
 las una? Espera, cuando nos quedamos con el Riki y la Santi y nos... -
 le dio una risita - No, había un grupo de tíos un poco raros ahí,
 chungos, y pasamos de ellos, pero Demelza... no sé, no me
@@ -741,7 +741,7 @@ eventualmente, se fue.
 
 ## Sentido y sensibilidad
  
-Tina no estaba tampoco en condiciones de responder a muchas
+Tina no estaba tampoco, en ese momento, en condiciones de responder a muchas
 preguntas. Cecilio le pidió que le hiciera una lista de las personas
 que habían asistido a la fiesta más adelante, pero por el momento que tratara de recordar cuando había
 visto a Demelza por última vez. Dejó la pregunta sobre drogas y
@@ -2969,7 +2969,7 @@ desaparecido, Demelza había bajado mucho y se acercaba a Tina.
 Y había un tío en su garaje. 
 
 Y alguien estaba llamando a la puerta. Con los nudillos. Se sobresaltó
-con el sonido que nunca había oido antes en esta casa. Todo el mundo
+con el sonido que nunca había escuchado antes en esta casa. Todo el mundo
 pasaba las pulseras con chips NFC por la placa que, además, permitían identificar de quién se
 trataba. Bueno, y luego estaba Demelza que se saltaba el sistema
 directamente. Sin embargo, no le acabó de sonar mal el golpe de algo
@@ -3021,8 +3021,8 @@ en la puerta.
 
 ## Visitas a horas intempestivas
 
-Por cortesía, parece que esta vez había decidido usar el
-método convencional. 
+Roble se sorprendió de que Demelza hubiera decidido usar el
+método convencional, al menos por esta vez. 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
