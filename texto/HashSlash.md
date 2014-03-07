@@ -2950,6 +2950,24 @@ podría ser, en poco tiempo, la menor de sus preocupaciones.
 Se volvió y se duchó. Trató de no pensar en Ainhoa y en su muerte
 mientras se encontraba en el país de las Maravillas. No lo consiguió. 
 
+## Descartes
+
+Algún ruido despertó a Roble. Abrió los ojos y sólo percibió una claridad
+débil. Muy lejos todavía del amanecer y de la incorporación al turno.
+
+Se levantó y encendió el ordenador en el salón, dejando la casa a
+oscuras. Sólo la pantalla iluminaba el teclado, con las letras
+impresas perfilándose con un brillo plateado.
+
+Hizo ua ronda por todas sus redes sociales. Ventas de libros: nulas el
+día anterior. Tendría que sacar un libro nuevo con rapidez y no estaba
+avanzando con “Mi vecino coleccionaba motosierras“, título todavía de
+trabajo. Apuestas sobre el asesinato de Ainhoa. Todos los candidatos
+habían bajado, nadie se pagaba más de cinco a uno. Jože había
+desaparecido, Demelza había bajado mucho y se acercaba a Tina.
+
+Y había un tío en su garaje. 
+
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
 
