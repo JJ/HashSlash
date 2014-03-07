@@ -2959,7 +2959,7 @@ Se levantó y encendió el ordenador en el salón, dejando la casa a
 oscuras. Sólo la pantalla iluminaba el teclado, con las letras
 impresas perfilándose con un brillo plateado.
 
-Hizo ua ronda por todas sus redes sociales. Ventas de libros: nulas el
+Hizo una ronda por todas sus redes sociales. Ventas de libros: nulas el
 día anterior. Tendría que sacar un libro nuevo con rapidez y no estaba
 avanzando con “Mi vecino coleccionaba motosierras“, título todavía de
 trabajo. Apuestas sobre el asesinato de Ainhoa. Todos los candidatos
@@ -2967,6 +2967,62 @@ habían bajado, nadie se pagaba más de cinco a uno. Jože había
 desaparecido, Demelza había bajado mucho y se acercaba a Tina.
 
 Y había un tío en su garaje. 
+
+Y alguien estaba llamando a la puerta. Con los nudillos. Se sobresaltó
+con el sonido que nunca había oido antes en esta casa. Todo el mundo
+pasaba las pulseras con chips NFC por la placa que, además, permitían identificar de quién se
+trataba. Bueno, y luego estaba Demelza que se saltaba el sistema
+directamente. Sin embargo, no le acabó de sonar mal el golpe de algo
+sobre una sólida puerta metálica. También tenía su ID implícito:
+golpes rápidos, nerviosos, con cadencia que iba en aumento. Tuvo que
+abrir, claro, porque no había forma de saber quién era si no habían
+usado la pulsera.
+
+Roble se puso un batín y unos calcetines de escalada para salir a
+abrir la puerta. 
+
+Decir que no esperaba ver lo que vio no era totalmente cierto, porque
+el usar un método tan poco convencional había hecho totalmente
+impredecible lo que pudiera haber al otro lado de la puerta. Pero se
+encontró a una persona que aparentaba tener 10 años más que él. No
+llevaba abrigo, sino un traje de chaqueta, aunque llevaba una camisa
+gris y no llevaba corbata. iba despeinado, los ojos muy colorados, y
+daba saltos sobre el sitio. Tenía los brazos cruzados, pero movía las
+manos para rascarse o restregarse los codos, compulsivamente. 
+
+—Oye... -, le dijo a Roble, y se volvió para mirar por detrás de
+Roble; luego torció la cabeza y, con un leve temblor, miró detrás
+suyo.
+
+Roble tardó un instante en comprender que sería un cliente de
+Nacho. Que, al parecer, se había montado el chiringuito en su casa. En
+su garaje, concretamente. 
+
+Roble señaló a su izquierda y le indicó.
+
+—Por ahí. Garaje. - dijo, y cerró la puerta.
+
+Inmediatamente envió un mensaje de voz a Demelza. Es posible que
+Demelza no lo escuchara correctamente, porque a mitad de la grabación
+retumbaron en toda la casa los golpes en la puerta metálica del
+garaje. Que duraron todavía un rato. 
+
+Roble ya no pudo irse a dormir de nuevo. Pensó que era el momento
+preciso para comprar unos cuantos drones de vigilancia perimetral. Los
+encontró a buen precio y con garantías de envío en una web israelí. En
+la web profunda encontró otro sitio que recepcionaban el pedido de los
+drones y los armaban con lanza dardos-flechette, perdigones o láseres
+de potencia suficiente como para chamuscarle el pelo a un caniche. O a
+un cliente de Nacho insatisfecho con el propio Nacho y, de camino, con
+su casero. Fueron una buena cantidad de bitcoins gastada en un rato. 
+
+Se abrió una ventana en el ordenador para indicarle que Demelza estaba
+en la puerta. 
+
+## Visitas a horas intempestivas
+
+Por cortesía, parece que esta vez había decidido usar el
+método convencional. 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
