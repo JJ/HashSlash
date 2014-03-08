@@ -3252,7 +3252,7 @@ se podía saber cuando un vehículo entraba o salía por el orden por el
 que pasaba por las balizas. Y no había muchos más vehículos en el
 garaje. Ninguno, de hecho.
 
-Alguien profesional había estado siguiendo los movimientos de
+Alguien que se dedicaba habitualmente a la caza y asesinato había estado siguiendo los movimientos de
 Demelza. Y alguien más, menos profesional. El menos profesional podía
 haber sido Ainhoa, pensó Roble. Y el más profesional, el asesino. O
 asesina. O asesinos. Y en cualquiera de las hipótesis, Roble no sabía
