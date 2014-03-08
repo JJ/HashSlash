@@ -2,6 +2,35 @@
 
 <h1>#slash</h1>
 
+## Prólogo
+
+Este libro forma parte de un proyecto literario que incluye otros
+libros y un [sitio web](http://jj.github.io/HashSlash). La novela se
+va escribiendo y publicando según se termina, con ciclos de desarrollo
+rápidos y correcciones continuas. Además, tiene tres versiones. Esta
+que tienes entre manos, que es el libro 0, el
+[Libro 1 bis](https://www.amazon.es/dp/B006HV9PE8?tag=atalaya-21&camp=3634&creative=24822&linkCode=as4&creativeASIN=B006HV9PE8&adid=0K1RXYD6K3JESK39PA5M&)
+que acaba antes que este y que añade los monólogos de uno de los
+personajes y el
+[Libro 1](https://www.amazon.es/dp/B00IBIYHC0?tag=atalaya-21&camp=3634&creative=24822&linkCode=as4&creativeASIN=B00IBIYHC0&adid=1Q1XNTKDSQN1Y5Y98QEK&),
+que añade los monólogos del asesino. Sí, hay un asesino. Puedes leer
+este sólo, cualquiera de los otros dos, o los tres. Cuando lo acabe
+habrá una edición integral (seguramente).
+
+El libro es libre con una licencia
+[`cc-by-sa`](http://creativecommons.org/licenses/by-sa/4.0/)
+Esencialmente, significa que puedes hacer lo que te dé la gana con él,
+siempre que respetes la licencia y la autoría del original. Puedes
+añadir  o quitar personajes, puedes cambiar el final, puedes
+cargártelo a todos. O puede escribir una versión *slasn*. Más
+*slash*. en todo caso. 
+
+Espero que lo disfrutes. No voy a decir que lo disfrutes como yo lo he
+hecho escribiendo, porque a veces las he pasado canutas. Estos
+personajes se meten en unos follones que a veces no sabe uno bien como
+sacarlos. Porque, no hace falta decirlo, todo es ficción, y como tal,
+totalmente cierto. 
+
 1: #JustABelieber - 2: #pelisconnata - 3: #nomepises - 4: #masterchef - 5: #slash
 ---
 
@@ -41,7 +70,7 @@ Roble aprovechó la pausa para dejar el móvil en su
 regazo y hacer copa con las manos para calentárselas. 
 
 —Nada -, dijo Roble, mientras pensaba "sólo un poco de
-#escenadelcrimen en Instagram".  Ya tenía más 
+\#escenadelcrimen en Instagram".  Ya tenía más 
 de veinte *me gusta*. Cecilio hizo un esfuerzo para intentar ver qué era lo que
 había en la pantalla. Se distinguían borrones rojos y figuras
 geométricas de color naranja. Poco más. Ninguna cara, nada
@@ -3259,111 +3288,6 @@ asesina. O asesinos. Y en cualquiera de las hipótesis, Roble no sabía
 por dónde empezar. Pero al menos sabía que no era Tina, ni Nacho, ni
 ninguno de los que se habían investigado hasta ahora.
 
-
-1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
----
-
-—Justo a las doce de la noche - dijo el forense.
-
-—¿Justo? No me jodas. - le contestó el agente de policía.
-
-—Bueno, justo, justo... media hora arriba o abajo. - le contestó el
-forense.
-
-—¿Y por qué a las doce? - contestó el agente
-
-—¿Porque más tarde se habría convertido en calabaza? A mi qué me
-cuentas, Miguel -, le dijo el forense. 
-
-—No, lo que yo digo es que quién querría matar a una mujer a las doce de la noche en la puerta del
-Sol. 
-
-El forense miró al policía municipal. Eran casi las una de la mañana,
-y de la pastelería Mallorca, de la calle Preciados, de la calle
-Montera, de la Carrera de San Jerónimo, llegaban voces
-destempladas, canciones a coro y, por supuesto, palmas. El reloj,
-justo detrás del policía, comenzó a tocar los cuartos. Alguien dijo
-“Esperad, no os comáis todavía las uvas“.
-
-Alrededor del cadáver de Julia habían tenido que poner vallas
-amarillas para contener a la multitud que se congregó y que sacaba
-decenas de miles de fotos, fotos de ambiente, selfies con muerta,
-fotos geoposicionadas, recuerdos indelebles de una medianoche en
-Madrid. 
-
-—Alguien muy puntual. 
-
-## Fotos con muertas
-
-Lo cierto es que el mercado de #escenasdelcrimen en Granada era
-bastante limitado. Roble ya había pensado pedir un traslado a otro
-sitio, Sevilla, Barcelona. No era fácil, pero mientras tanto había
-montado una red de contactos por toda España en la que los forenses
-le vendían las fotos que tomaban y él les buscaba comprador. 
-
-La foto que le llegó desde Madrid era una joya con un potencial viral tremendo. Una mujer joven,
-vestida de rojo, sin ninguna herida aparente, con las luces de la
-Puerta del Sol reflejándose en la sangre todavía fresca. 
-
-Sólo sabía el nombre de la muerta, pero los blogs a los que vendía en
-Estados Unidos y los países nórdicos, sobre todo Suecia, querían más
-detalles, detalles morbosos, así que a partir del nombre que le
-proporcionó su contacto, Julia Matesanz Vázquez buscó si había una
-pareja con la que hubiera hecho planes vitales, una madre a la que
-cuidaba, o un hámster al que alimentaba que estuvieran en ese momento
-desconsolados, desconsuelo que en Suecia se compraba al por mayor. 
-
-Encontró inmediatamente su perfil en redes sociales. Julia Matesanz,
-autora de literatura ambulatoria. Roble era lo suficientemente leído
-para saber que no se trataría de literatura desarrollada en
-ambulatorios, aunque con la explosión de nichos literarios de los
-últimos dos años seguro que existía como género,, pero tuvo que mirar
-para ver de qué se trataba de forma precisa: un género en el cual las
-partes de un relato o novela están geoposicionados y, para leerlo,
-tienes no sólo que estar colocado en un lugar determinado y mirar en
-determinada posición, sino además averiguar, por las pistas, cuál es
-el lugar en el que continúa el relato. Lo que empezó con el
-[Bloomsday](http://en.wikipedia.org/wiki/Bloomsday) se había
-convertido en una actividad, literaria, tremendamente popular. Y al
-parecer Julia Matesanz era la persona que había hecho de la literatura
-ambulatoria la actividad e masas.
-
-Había. En pasado. Dos escritoras muertas en un mes. ¿Casualidad? 
-
-Tendría que ir a la comisaría a pedir los informes a Madrid. Podía ser
-casualidad, claro. También podía conseguir alguna foto más. En
-cualquier caso, la petición era FTW. 
-
-## Mientras tanto, en la mente de Cecilio
-
-(Nada que no hayamos contado antes.)
-
-## Asesinato en la multitud
-
-La pulsera de Roble, que ese momento sostenía en la mano un café de
-origen indonesio y que se había traído desde su casa en un termo
-porque no aguantaba, de ninguna forma, el café que se servía en la
-comisaría, comprado en el Corte Inglés, vibró, creando unas ondas
-concéntricas en superficie de la bebida, que afortunadamente ya había
-apurado y estaba unos milímetros más abajo del borde. 
-
-Miró los informes sobre la pantalla que tenía en su mesa. Julia murió
-de un sólo dardo *flechette* en el corazón, disparado posiblemente
-desde una escopeta y a corta distancia, un par de metros como máximo;
-había restos de pólvora en la ropa. En el momento que murió estaba
-rodeada de amigos, conocidos y fans diversos que habían seguido una
-nueva historia ambulatoria que estaba presentando. La muerte sucedió,
-posiblemente, a las 12 de la noche, cuando todos estaban mirando el
-reloj y en el momento que nadie, por el ruido ambiente, por las
-campanadas y por el simple caos imperante, habría sido capaz de oir un
-disparo. 
-
-Los agentes habían interrogado, sobre la marcha, a más de treinta
-personas. Algunas personas habían escuchado un disparo, otras siete y
-otras ninguno. Para algunos Julia calló al suelo tras la primera
-campanada, para otras después de la séptima. Muchos pensaron que era
-parte de la narración. Pero no lo era. El cuento, verdaderamente, se había acabado para Julia.  
-
 ## Agradecimientos
 
 A [Marcos Taracido](http://twitter.com/marcostaracido) por su buen
@@ -3373,3 +3297,8 @@ error). También a [Jose María](http://blog.unlugarenelmundo.es/), por
 contestar a mis continuas dudas y preguntas y a
 [Manuel Cogolludo](http://twitter.com/makova65) por sus correcciones y
 su ayuda. 
+
+## Índice
+
+* Esto se convertirá en el índice de contenidos. 
+{: toc}
