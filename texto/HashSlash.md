@@ -3218,7 +3218,7 @@ arriba en la pared.
 
 Demelza siguió mirando de forma dispersa, a esta pared, a aquel techo,
 a la farola que había a la derecha de la salida y que tanto le
-fastidiaba. A los papeles con RFID que había pegados en la farola y que le
+fastidiaba. A los papeles con chips NFC que había pegados en la farola y que le
 hacían saltar anuncios en su móvil cuando pasaba por allí,
 ofreciéndole alquiler de pisos en esa zona, masajes y cerrajeros 24
 horas. 
@@ -3233,9 +3233,29 @@ cosas en él.
 —¿Los has visto? - preguntó Roble, señalando en secuencia a los dos
 desconchones. 
 
+—No -, contestó Demelza -, bueno, ahora sí, y ese, y ese, y todos esos
+roces de ahí, que ahora que lo pienso, si estamos solas, ¿quién
+coño...?
 
+Pero Demelza se dio cuenta de lo que decía. Dos desconchones, un
+pequeño círculo, pero con una pequeña cavidad excavada en la pared. Los otros
+desconchones eran simplemente descamaciones de la pintura o roces que
+dejaban restos de pintura. Aquí parecía que alguien hubiera hecho un
+hueco para esconder algo y luego lo hubiera retirado.
 
+—Muy pro - dijo Roble.
 
+Efectivamente, parecía un trabajo profesional; una vez enterrados ahí,
+se podía saber cuando un vehículo entraba o salía por el orden por el
+que pasaba por las balizas. Y no había muchos más vehículos en el
+garaje. Ninguno, de hecho.
+
+Alguien profesional había estado siguiendo los movimientos de
+Demelza. Y alguien más, menos profesional. El menos profesional podía
+haber sido Ainhoa, pensó Roble. Y el más profesional, el asesino. O
+asesina. O asesinos. Y en cualquiera de las hipótesis, Roble no sabía
+por dónde empezar. Pero al menos sabía que no era Tina, ni Nacho, ni
+ninguno de los que se habían investigado hasta ahora.
 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
