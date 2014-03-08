@@ -3236,7 +3236,9 @@ cosas en él.
 —¿Los has visto? - preguntó Roble, señalando en secuencia a los dos
 desconchones. 
 
-—No -, contestó Demelza -, bueno, ahora sí, y ese, y ese, y todos esos
+—No -, contestó Demelza -, bueno, ahora sí, y ese, y ese, - dijo,
+señalando a diversos desconchones irregulares por toda la rampa y en
+la puerta - y todos esos
 roces de ahí, que ahora que lo pienso, si estamos solas, ¿quién
 coño...?
 
