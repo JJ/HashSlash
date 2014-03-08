@@ -3153,7 +3153,7 @@ o estaría a estas horas haciendo cualquier otra cosa.
 Eran las cinco de la mañana y Granada se despertaba de pequeñas
 maneras. Un improbable autobús de turistas japoneses subía hacia la
 Alhambra, seguido por taxis llenos de deudos camino de encuentros
-esperados y algunos inesperados aldededor de un cadáver de cuerpo
+esperados y algunos inesperados alrededor de un cadáver de cuerpo
 presente en el cementerio, seguidos a su vez por bicicletas
 esforzándose en escalar la cuesta y por coches que bajaban de hacer
 cosas sólo confesables a través de todas las redes sociales en el
@@ -3170,7 +3170,8 @@ papelera, colgada en una farola muy cerca del bar donde, un par de
 días antes, Roble se había tomado un café con Tina. 
 
 Roble despegó la papelera de su soporte, le quitó la tapa de color
-naranja y vertió su contenido en la acera. Un anciano que paseaba a su
+naranja y vertió su contenido en la acera. Un anciano en zapatillas,
+bata y gorro militar ruso que paseaba a su
 perro lo miró con gesto desabrido, pero el perro se acercó a olfatear
 los contenidos. 
 
@@ -3178,9 +3179,63 @@ Roble empezó a desbrozarlos y volver a meterlos en la papelera, que
 había vuelto a enganchar a su soporte, pero se paró en cuanto que
 llegó a algo húmedo y pegajoso. Demelza continuó quitando bolsas con
 contenido rezumante, papeles desgarrados, una batería de un móvil,
-restos de tela, bolsas de plastico vacías, cuatro yogures todavía
+restos de tela, bolsas de plástico vacías, cuatro yogures todavía
 enganchados y sin caducar, un resto de un bocadillo de Nocilla con los
 bordes del pan recortados cuidadosamente, y, finalmente, nada.
+
+—Tu garaje.
+
+—¿Por qué? Si no podemos entrar en la casa -, dijo Demelza. - Bueno,
+igual tú sí.
+
+Roble emprendió el camino, dejándole a Demelza con la moto, la tapa
+de la papelera y unas ganas terribles de lavarse las manos. Demelza
+miró a los bares a ambos lados de la carretera, pero todavía no habían
+abierto, así que se montó en la moto, adelantando a Roble por el
+camino. Lo esperó en la rampa de entrada al garaje, que estaba a la
+izquierda de la puerta de entrada.
+
+—¿Qué hay que buscar? - preguntó Demelza.
+
+—Cualquier cosa -, contestó Roble. 
+
+—¿Cualquier cosa como...? - preguntó Demelza.
+
+—Cualquier cosa -, respondió Roble.
+
+Demelza miró a la rampa de su garaje. Tenía sólo unos metros de
+profundidad desde la pared que daba a la calle, y sólo descendía un
+ángulo pequeño. La pared de la rampa estaba pintada de rojo y
+pintarrajeada en negro y azul, siguiendo el principio granadino de que
+una pared sin pintadas era una pared desnuda. Había un detector NFC
+para abrir la puerta, unido por un cable que salía verticalmente de
+él, llegaba al techo y continuaba, en el ángulo entre pared y techo,
+hacia el interior del garaje.
+
+Mientras Demelza deconstruía la entrada a su garaje, Roble ensuciaba
+sus
+[pantalones Oliver Spencer](http://oliverspencer.co.uk/drawstring-trouser-blake-olive-ost48)
+con el cieno de grasa y polvo que había en el suelo de la rampa;
+pasaba el móvil por las esquinas y lo movía, sistemáticamente, hacia
+arriba en la pared. 
+
+Demelza siguió mirando de forma dispersa, a esta pared, a aquel techo,
+a la farola que había a la derecha de la salida y que tanto le
+fastidiaba. A los papeles con RFID que había pegados en la farola y que le
+hacían saltar anuncios en su móvil cuando pasaba por allí,
+ofreciéndole alquiler de pisos en esa zona, masajes y cerrajeros 24
+horas. 
+
+Roble se fijaba, especialmente, en un desconchón en la pared de la
+izquierda de la rampa, a la altura aproximada del pecho. Miró hacia su
+derecha y bajó por la rampa. Se paró muy cerca de la puerta y se fijó
+en otro desconchón, más o menos del mismo tamaño y más o menos a la
+misma altura. Demelza había sacado ya el móvil y estaba escribiendo
+cosas en él. 
+
+—¿Los has visto? - preguntó Roble, señalando en secuencia a los dos
+desconchones. 
+
 
 
 
