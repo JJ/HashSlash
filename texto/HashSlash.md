@@ -3141,6 +3141,47 @@ mucho que cambie de ruta, quién sabe...
 —A la papelera.
 
 
+## La búsqueda del bicho
+
+Roble montó en la moto de Demelza para recorrer el kilómetro escaso
+que los separaba de la papelera donde había depositado el chisme. El
+casco que le prestó era uno de lo más vulgar y Roble era consciente de
+ello. Como era consciente de que, al salir de la casa en dirección a
+la carretera de la sierra, Nacho se había quedado allí, en el garaje,
+o estaría a estas horas haciendo cualquier otra cosa. 
+
+Eran las cinco de la mañana y Granada se despertaba de pequeñas
+maneras. Un improbable autobús de turistas japoneses subía hacia la
+Alhambra, seguido por taxis llenos de deudos camino de encuentros
+esperados y algunos inesperados aldededor de un cadáver de cuerpo
+presente en el cementerio, seguidos a su vez por bicicletas
+esforzándose en escalar la cuesta y por coches que bajaban de hacer
+cosas sólo confesables a través de todas las redes sociales en el
+llano de la Perdiz. El hospital, al final de la cuesta, era una mole
+blanca que empequeñecía el hotel Real de la Alhambra, justo al lado;
+los dos se mostraban como faros que mostraban, al final de la
+carretera de la Sierra, el camino a los turistas en busca de nieve o
+historia.
+
+Ellos torcieron a la derecha al final de la que todavía era el nuevo
+acceso a la Alhambra, después de una docena de años y pasaron por
+delante de la casa, todavía precintada, de Demelza, en busca de la
+papelera, colgada en una farola muy cerca del bar donde, un par de
+días antes, Roble se había tomado un café con Tina. 
+
+Roble despegó la papelera de su soporte, le quitó la tapa de color
+naranja y vertió su contenido en la acera. Un anciano que paseaba a su
+perro lo miró con gesto desabrido, pero el perro se acercó a olfatear
+los contenidos. 
+
+Roble empezó a desbrozarlos y volver a meterlos en la papelera, que
+había vuelto a enganchar a su soporte, pero se paró en cuanto que
+llegó a algo húmedo y pegajoso. Demelza continuó quitando bolsas con
+contenido rezumante, papeles desgarrados, una batería de un móvil,
+restos de tela, bolsas de plastico vacías, cuatro yogures todavía
+enganchados y sin caducar, un resto de un bocadillo de Nocilla con los
+bordes del pan recortados cuidadosamente, y, finalmente, nada.
+
 
 
 
