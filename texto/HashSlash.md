@@ -2062,7 +2062,7 @@ se me acaba el plazo de entregar un manual de... - contestó Cecilio.
 más recibido con carcajadas - ¿Es que te hablo yo de cómo me voy a
 arar los olivos cuando me preguntas por el trabajo? 
 
-—Afú, eso, - responció Cecilio, y con el dedo se separó el cuello de
+—Afú, eso, - respondió Cecilio, y con el dedo se separó el cuello de
 la camisa. - Tenemos una muerta... - dijo, y le pegó un buen
 trago a la segunda cerveza que se había materializado en la intersección
 entre la línea recta que unía a Cecilio con el barril de cerveza y la
@@ -3059,6 +3059,89 @@ Roble se le acercó y la asió por la cintura con la intención de
 llevarla a la cama en brazos. No lo consiguió; cayeron los dos al
 suelo, besándose y tocándose en todos los lugares que los grados de
 libertad de sus manos permitían, todavía vestidos.
+
+No tuvieron tiempo de ponerse la máscara esta vez, aunque Demelza no
+perdonó el condón piezoléctrico. Roble estaba por preguntarle dónde
+los conseguía, pero al terminar recordó por qué la había llamado. Y
+también llegó a las capas superiores de su conciencia el hecho de que
+tenía una moto. 
+
+—Tienes moto - le dijo.
+
+—Sí, pero no te preocupes le he quitado todos los dispositivos de seguimiento. Todos
+los que no son de Kevin, claro - le dijo, riéndose y recogiendo su
+ropa del suelo, camino de la ducha. 
+
+—¿Qué dispositivos? 
+
+—Bueno, ya sabes. Chismes. - contestó, ya desde la ducha. 
+
+No es que fuera anormal que los vehículos tuvieran dispositivos que
+permitieran seguirlos. Aparte de las señales Bluetooth o WiFi que emitían y
+que podían detectarse cuando pasaban por algún sitio, algunas empresas
+ponían chips en sus pegatinas para poder saber cuando un cliente
+volvía o pasaba cerca del comercio, para poder enviarle ofertas o
+hacerle encuestas de satisfacción. Algunas compañías de seguros
+obligaban también a llevarlos, para poder saber dónde estaba un
+vehículo en el momento del siniestro. Y, con tanta baliza que revelaba
+tu situación en el mercado, eventualmente casi cualquiera podía
+comprar uno y ponérselo a alguien para entretenerse sabiendo por dónde
+iba. Era tan normal encontrárselos pegados debajo del guardabarros de
+un coche, moto o bicicleta que la gente ya no le daba importancia. Y
+no la tenía, pensó Roble. Salvo cuando efectivamente la tenía. 
+
+—¿Cuándo? - preguntó Roble.
+
+—¿Cuando qué? - el laconismo de Roble hacía que fuera complicado, a
+veces, recuperar el contexto.
+
+—Las quitaste.
+
+—¿Las quité? Bueno, el día de, ya sabes, lo de Ainhoa, la moto estaba
+en el garaje, así que el día después...
+
+—¿En el garaje? 
+
+Era muy fácil poner dos detectores en los garajes para saber si un
+vehículo había entrado o salido. Y, de esa forma, saber, en general y
+con cierta precisión, si una persona estaba dentro o fuera. Pero la
+científica no había mirado ahí. 
+
+—Cuéntame.
+
+—Había uno que...
+
+—No. Todo. - dijo Roble.
+
+Y Demelza le explicó todo. Cómo, cuando se iba con alguien y no tenía
+una historia plausible para cubrirlo, dejaba la moto en el garaje para
+que Kevin creyera, o aparentara creer, que se había quedado allí todo
+el tiempo, como con el tema del sujetador, que a veces prestaba a
+Tina, aunque le quedaba muy grande, se reían mucho...
+
+—Tina no salía
+mucho, no tanto como ella, estaba muy orientada a su trabajo, ya
+sabes, la investigación y eso, vale, vuelvo al tema, al día siguiente
+de lo de Ainhoa, cuando decidí desaparecer o más bien *mudarme*
+virtualmente, que es curioso que mucha gente diga, desaparezco, pero a
+qué pocos se les ha ocurrido mudarse, es que es complicado, decían los
+amigos de Kevin, y caro, también, pero a mi, ya sabes, bueno, el tema
+es que había un chisme, uno baratuno, vietnamita, debajo del
+guardabarros delantero, cualquiera podía haberlo puesto, lo arranqué
+con una cucharilla y lo tiré a una papelera, así que ahora ando por
+Lituania, y la moto, bueno, la moto igual la ven, pero los amigos de
+Kevin creen que si no la sigue nadie salvo Kevin, que dice que es
+seguro, no es probable, aunque me han dicho que si veo algún dron
+mucho que cambie de ruta, quién sabe...
+
+—Vamos
+
+—¿Dónde?
+
+—A la papelera.
+
+
+
 
 
 
