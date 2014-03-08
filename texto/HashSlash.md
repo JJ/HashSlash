@@ -2034,7 +2034,7 @@ tuvieran demasiado trabajo en reducirlo.
  se rieron. Siempre lo hacían. Era un viejo chiste granadino que
  mostraba la quintaesencia de la malafollá. 
  
-En la barra, las burbujas de la cerveza recién tirada explotaban,
+En los vasos sobre la barra las burbujas de la cerveza recién tirada explotaban,
 indiferentes. El camarero de la barra se la había puesto al verlo
 aparecer por la puerta. 
 
@@ -2046,11 +2046,11 @@ nuevo, una vez más jaleado por una escolanía carcajeante,
 —Vale, en cuartas entonces - Cécil se tomó la cerveza de un trago y
 alzó el dedo, pidiendo otra. - ¿Cómo va el trabajo?
 
-—Estaría bien si no fuera, ya sabes, por el trabajo en sí. - dijo esta
+—Iría bien si no fuera, ya sabes, por el trabajo en sí -, dijo esta
 vez Eladio, que era un tío serio y nunca bromeaba, por lo que la única
 acogida que tuvo esta frase, también repetida en muchas ocasiones, fue
 el levantamiento de los vasos de cerveza y ataques subrepticios al
-plato de las tapas. - tú, ¿qué tal?
+plato de las tapas. - Tú, ¿qué tal?
 
 —Bueno, no me puedo quejar, tengo ahora bastantes preparantes, aunque
 se me acaba el plazo de entregar un manual de... - contestó Cecilio.
@@ -2059,8 +2059,9 @@ se me acaba el plazo de entregar un manual de... - contestó Cecilio.
 más recibido con carcajadas - ¿Es que te hablo yo de cómo me voy a
 arar los olivos cuando me preguntas por el trabajo? 
 
-—Afú, eso. Tenemos una muerta... - dijo Cecilio, y le pegó un buen
-trago a la segunda cerveza que se había materializado en la tangente
+—Afú, eso, - responció Cecilio, y con el dedo se separó el cuello de
+la camisa. - Tenemos una muerta... - dijo, y le pegó un buen
+trago a la segunda cerveza que se había materializado en la intersección
 entre la línea recta que unía a Cecilio con el barril de cerveza y la
 barra.
 
@@ -2069,12 +2070,14 @@ quién la ha matado, ¿no?
 
 Carcajada generalizada. Pero era totalmente cierto. Los periódicos
 habían paseado a los destrozados familiares y compungidos amigos de
-Ainhoa, y expresaban sus dudas sobre la competencia policial para
-resolver el caso. Un muerto en un lugar con un montón de gente es una
+Ainhoa por sus portadas, y expresaban sus dudas sobre la competencia policial para
+resolver el caso. Un muerto y un lugar con un montón de gente es una
 mala combinación. Al menos, en este caso se tenía el cadáver, no como
 en el
 [caso de Marta del Castillo](http://es.wikipedia.org/wiki/Marta_del_Castillo). Ayudaba,
-pero los asesinos no dejaban exactamente su DNI en los cadáveres. 
+pero los asesinos no dejaban exactamente su DNI sobre los cadáveres. Y
+en este caso, tampoco el ADN ni ningún otro acrónimo que revelara su
+identidad. 
 
 Cecilio sólo hizo un débil gesto de asentimiento y volvió a
 beber. Yimi continuó en sus acometidas.
@@ -2099,20 +2102,22 @@ dijo, señalando con el dedo en gancho un poco más allá de la barra, a
 Roble, que tomaba un líquido transparente con burbujas mientras con la
 otra mano sostenía el móvil.
 
-Es que el Roble era así, pensó Cecilio. O sigiloso o un sieso como una
-casa. Pasaba de todo y de todos, yendo a su bola, si es que el chisme
-que tenía en la mano era la susodicha bola. 
+Es que el Roble era así, pensó Cecilio, que ni siquiera se había dado
+cuenta antes de que estaba allí. O sigiloso o un sieso como una
+casa. Pasaba de todo y de todos, yendo a su bola, si es que el chisme tecnológico
+que tenía en la mano en todo momento era la susodicha bola. 
 
 Vaciló un momento si acercarse a él o no. Para ponerse al día era más
 fácil que los compañeros lo hicieran. Roble le mandará un montón de
-documentos pasando el pulgar sobre el ordenador y le diría que se los
+documentos pasando el pulgar sobre su chisme y le diría que se los
 leyera y que escribiera el informe. 
 
 —Porque el notas que habéis detenido no tiene cojones para matar ni a
 esa ni a nadie. Te lo dijo yo. Ese no mata más que a sí mismo a
 pajas -, dijo Yimi, con su coro acompañándole con carcajadas in
 crescendo. Pero, al menos, de la frase, coligió que ya tenían un
-detenido. Y fuera de turno. Y el Roble sabría algo, así que habría que
+detenido. Y fuera de turno. Y el Roble sabría algo, así que no habría
+más remedio, finalmente, que
 preguntarle.
 
 Se acercó, bordeando la barra y dando apretones de mano y palmadas en
@@ -2433,9 +2438,12 @@ No tenía ni idea de MXE. A él le sacabas del jaco y del porro y nada. Tendría
 
 —Nooo, que yo noooo -, replicó Cecilio.
 
-—Coñazo con los informes que había que poner todo, los puntos y las comas. Ya los hacíamos, ¿qué más te daba que estuvieran más pallá o pacá?
+—Coñazo con los informes que había que poner todo, los puntos y las
+comas. Ya los hacíamos, ¿qué más te daba que estuvieran más pallá o
+pacá? 
 
-—Bueno, que yo...
+—Bueno, que yo... - trató de decir Cecilio, si saber qué predicado
+añadir a ese sujeto. Que era un mijicas y ya está. 
 
 —Que es broma, Cécil, coño, que hacías bien. ¿La familia?
 
@@ -2447,13 +2455,15 @@ Marisol soltó una carcajada.
 
 Cecilio reflexionó sobre esto. Sería una de las pocas cosas que lo
 apartaba de la normalidad. También en eso era normal, porque es normal
-diferenciarse algo del resto de los normales. Sí es que existían. 
+diferenciarse algo del resto del gremio de los normales. Sí es que
+existía tal gremio.
 
 —¿Y tú? - preguntó. No había tenido excesiva confianza con ella en aquella
 época y si la había tenido, no se acordaba. Así que hizo una pregunta
 poco comprometida, para no equivocarse. 
 
-—Casada. Con un gato. Por lo civil y en terceras nupcias-, dijo, y volvió a carcajearse. - Él
+—Casada. Con un gato. Por lo civil y en terceras nupcias-, dijo, y
+volvió a carcajearse. - Enviudé dos veces, pero este está 
 sanísimo, y yo, contenta de no tener que aguantar a nadie más. Ni de
 que me tengan que aguantar a mi. Bastante tengo con aguantaros a
 vosotros... 
@@ -2467,11 +2477,14 @@ Marisol.
 —Je, je, cuando quieras, sí, cuando quieras. Pero te llamo por otra,
 bueno, por otra cosa, a ver si sabes decirme. ¿Qué es lo que es el eme equis e?
 
-—Mandanga de la buena. Con eme; eme es como lo llaman, ¿lo pillas?. De las que llaman *emergentes*, porque están empezando ahora mismo a introducirse en el mercado. Dime más. ¿Aquí en Granada?
+—Mandanga de la buena. Con eme; eme es como lo llaman, ¿lo pillas? -,
+dijo Rosalía. - De
+las que llaman *emergentes*, porque están empezando ahora mismo a
+introducirse en el mercado. Dime más. ¿Aquí en Granada? 
 
 —Sí, una chica muerta aquí, ayer -, contestó Cecilio-, nos ha llegado el informe hoy mismo, 
 
-—Chungo. No sabíamos que la estuvieran vendiendo por aquí. Pásame lo
+—Chungo. No sabíamos que la estuvieran pasando por aquí. Mándame lo
 que tengas, cuando puedas. Con los puntos y las comas puestos.  
 
 —Je, je, claro. Pero, ¿qué hace la eme esa? ¿Mata? -, preguntó Cecilio.
@@ -2480,7 +2493,7 @@ que tengas, cuando puedas. Con los puntos y las comas puestos.
 Marisol. 
 
 —Pero... - dijo Cecilio, con tono de “para ese viaje no hacen falta
-alforjas, Marisol.“
+alforjas, Marisol“.
 
 —Que no lo sé, Cécil, de veras, todavía no nos ha tocado nadie que se
 haya metido de eso, ¿no te digo que es nueva? 
@@ -2491,13 +2504,14 @@ haya metido de eso, ¿no te digo que es nueva?
 había olvidado. Vamos a hacer una cosa -, dijo e hizo una pausa -, tú
 me mandas lo que tengas de la mandanga esta y yo pregunto por aquí o
 pido a los de la UDYCO información y te la paso, ¿de acuerdo? Mientras
-tanto, busca por la Internet, coño, que no te va a pasar nada... 
+tanto, busca por la Internet, coño, que no te va a pasar nada por
+tocar esos chismes... 
 
 —Venga, quedamos en eso -, repuso Cecilio. 
 
-—Y el café -, contestó Marisol.
+—Y en el café -, contestó Marisol.
 
-—Y el café. Venga, un saludo, Marisol.
+—Y en el café. Venga, un saludo, Marisol.
 
 —Y un beso, Cécil. Mándame eso ya.
 
@@ -3019,7 +3033,31 @@ en la puerta.
 ## Visitas a horas intempestivas
 
 Roble se sorprendió de que Demelza hubiera decidido usar el
-método convencional, al menos por esta vez. 
+método convencional, al menos por esta vez. También de que hubiera
+tardado tan poco en llegar desde su mensaje. O estaba muy cerca, o
+corría mucho. O tenía moto.
+
+Efectivamente, llevaba el casco en la mano, un casco cromado y
+brillante que reflejaba las luces plateadas de la calle y el cielo. La
+moto, también customizada para tener todas las superficies expuestas,
+hasta los tapacubos, cromada, formaba un juego de espejos con el casco
+y la propia Demelza, con un efecto hipnótico. 
+
+Y también excitante. Demelza se quitó la cazadora de cuero gris metal
+para revelar una camiseta de tirantes de lycra color cobre. Entre los
+pechos y colgando de una cadena de metal mate, un tornillo plateado. Y
+en todo esto Roble tardó la cantidad de tiempo suficiente como para
+que Demelza, entrara y cerrara la puerta y se quedara, en jarras,
+contemplándolo.
+
+—¿El caballero va a comprar o sólo quiere mirar?
+
+Roble se le acercó y la asió por la cintura con la intención de
+llevarla a la cama en brazos. No lo consiguió; cayeron los dos al
+suelo, besándose y tocándose en todos los lugares que los grados de
+libertad de sus manos permitían, todavía vestidos.
+
+
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
