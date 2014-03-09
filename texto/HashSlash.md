@@ -40,8 +40,7 @@ sin lograrlo. - Espera, ¿qué coño has puesto? Afú, qué tropa.
 Roble aprovechó la pausa para dejar el móvil en su
 regazo y hacer copa con las manos para calentárselas. 
 
-—Nada -, dijo Roble, mientras pensaba "sólo un poco de
-#escenadelcrimen en Instagram".  Ya tenía más 
+—Nada -, dijo Roble, mientras pensaba "sólo un poco de #escenadelcrimen en Instagram".  Ya tenía más 
 de veinte *me gusta*. Cecilio hizo un esfuerzo para intentar ver qué era lo que
 había en la pantalla. Se distinguían borrones rojos y figuras
 geométricas de color naranja. Poco más. Ninguna cara, nada
@@ -3259,6 +3258,54 @@ asesina. O asesinos. Y en cualquiera de las hipótesis, Roble no sabía
 por dónde empezar. Pero al menos sabía que no era Tina, ni Nacho, ni
 ninguno de los que se habían investigado hasta ahora.
 
+
+## Interrogatorios posiblemente superfluos
+
+Eso era lo que pensaba Cecilio según iba a visitar a su primer
+estudiante. Había quedado con él en la cafetería de la Escuela de
+Arquitectura; precisamente lo había elegido porque era la facultad que
+estaba más cerca de la comisaría, unos minutos.
+
+El edificio donde se hallaba la escuela lo conocía desde que había ido allí para tratar,
+inútilmente, de librarse del servicio militar. Por donde estaba ahora
+la cafetería, o en los aledaños, miles de jóvenes habían intentado
+hacerse dueños de su tiempo inventando dolencias que a veces pasaban
+incluso por la expertas manos de médicos militares, expertos en
+dolencias inventadas o efímeras, y a veces, no. En el caso de Cecilio
+había sido que no. El truco para aplanar pies y librarse por pies
+planos, simplemente era inútil. La infelicidad de saberse abocado a la
+vida militar durante unos meses, sin embargo, no le duró mucho: trató
+de ser lo más feliz posible dentro del destino que le habían asignado,
+de policía militar en la base de Armilla, y lo logró. Y la experiencia
+policial le marcó, más adelante, el destino.
+
+El aspecto que ofrecía ahora era bien diferente. El olor a formol que
+detectaba era posiblemente fruto de la imaginación. Olía a café, a
+fritanga y a sudor matutino. No sabía qué pinta tenía el chaval, un
+tal Daniel Maldonado, que estudiaba segundo del grado de Arquitectura,
+pero imaginó que no sería difícil encontrarlo. Alguien solo esperando en
+una mesa. 
+
+Había muchas personas solas en mesas, sobre todo hombres; mujeres, ni
+una. Le preguntó al primero que vio, que le contestó con una mirada
+larga y un no breve. Probó con otra persona que, aparentemente, estaba
+meditando sobre la vida o los puentes de Calatrava sobre un café, y
+este ni siquiera le contestó.
+
+Le preguntó al camarero que se afanaba pastoreando vasos camino del
+lavavajillas a ver si lo conocía, por nombre. El camarero lo miró y le
+contestó:
+
+—Hay mil estudiantes en esta escuela. De esos, la mitad más o menos
+son tíos. Conozco al tío que juega al mus todas las tardes por el
+nombre tío que juega al mus todas las tardes, al mijicas que pide
+media de leche caliente de soja y media de leche semidesnatada fría al
+que conozco, sí, efectivamente, por ese nombre y al que viene cada vez
+con una tía diferente. Qué cabrón. Daniel podía ser ese o ese o ese -,
+dijo el camarero, señalando diferentes mesas -, o todos los de ese
+grupo que entra por la puerta.
+
+Grupo que se dirigió directamente a él. Con cierta parsimonia. 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
