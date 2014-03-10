@@ -3307,6 +3307,34 @@ grupo que entra por la puerta.
 
 Grupo que se dirigió directamente a él. Con cierta parsimonia. 
 
+Todos los policías hacen entrenamiento antidisturbios. No sabes en qué
+unidad te va a tocar, así que hay que prepararse para todo. Sí,
+también caballos. Si un grupo numéricamente superior se dirige a ti,
+hay que mantener la línea con los compañeros o echar mano de las
+pelotas de goma. Que no tenía en ese momento. Así que le tomó
+querencia a la barra y puso la mano cerca de un servilletero. Por si
+acaso.
+
+Efectivamente, el grupo de seis personas, cuatro chicos y dos chicas,
+lo rodearon. 
+
+—¿Eres Cecilio, el made... el policía?
+
+—Sí. Buenas tardes -, se echó la mano al bolsillo de la chaqueta y se
+sacó la placa -, digo, buenos días. Le mostró la placa al que le
+hablaba y la pasó a la altura de los ojos, y un par de palmos por
+encima de unos de ellos, del semicírculo que le rodeaba. El sacar la
+placa hizo que alejara la mano del servilletero. Todavía no estaba muy
+seguro de que no se arrepentiría un poco más adelante.
+
+—Soy Eulogio Navarro, asesor legal personal y community manager de
+Daniel Maldonado. Aquí presente - y señaló a un chaval con el pelo
+rubio, rizado, en uno de los extremos del semicírculo. Eso aclaraba la
+filiación de al menos dos de ellos. El resto seguían siendo Juan y
+Juana Nadie. Eso sí, muy en su papel. 
+
+
+
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
 
