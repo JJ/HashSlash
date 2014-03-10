@@ -3351,7 +3351,7 @@ entrevista.
 
 —Sí. - contestó Cecilio, cuyo cerebro madero primitivo, que es
 una parte del cerebro, quizás cercana al cerebelo, que impulsa a todo
-policía a resolver una situación como lo haría Clint Eastwodd, le
+policía a resolver una situación como lo haría Clint Eastwood, le
 estaba mandando mensajes del estilo de “suéltale un par de hostias y
 lo dejas listo“. Por lo pronto y mientras tuviera el servilletero
 cerca, lo mantenía bajo control. 
