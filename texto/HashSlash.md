@@ -3331,7 +3331,27 @@ seguro de que no se arrepentiría un poco más adelante.
 Daniel Maldonado. Aquí presente - y señaló a un chaval con el pelo
 rubio, rizado, en uno de los extremos del semicírculo. Eso aclaraba la
 filiación de al menos dos de ellos. El resto seguían siendo Juan y
-Juana Nadie. Eso sí, muy en su papel. 
+Juana Nadie. Eso sí, muy en su papel de tales.
+
+—Sólo... sólo quería hacerle unas preguntas. Sobre una fiesta a la que
+asistió -, dijo Cecilio.
+
+—Un momento. Todavía no estoy grabando esta entrevista. Porque
+entiendo que mi defendido no está imputado y que se da por
+sobreentendido que declara voluntariamente, pero para proteger sus
+derechos creo que es conveniente grabar esta conversación. O
+entrevista. 
+
+—Bueno sólo eran unas preguntas... - dijo Cecilio.
+
+—¿Estamos de acuerdo, sólo digo, estamos de acuerdo  que es una entrevista? - preguntó Eulogio.
+
+—Sí. - contestó Cecilio, cuyo cerebro madero primitivo, que es
+una parte del cerebro, quizás cercana al cerebelo, que impulsa a todo
+policía a resolver una situación como lo haría Clint Eastwodd, le
+estaba mandando mensajes del estilo de “suéltale un par de hostias y
+lo dejas listo“. Por lo pronto y mientras tuviera el servilletero
+cerca, lo mantenía bajo control. 
 
 
 
