@@ -3456,7 +3456,7 @@ abrigarse. Tampoco había mantas ni objetos personales.
 
 Roble sonrió. Levemente, claro. Volvió a pensar en asesinos y en
 Demelza. Y luego cayó en que no le habían devuelto el mando del
-garaje, así que dejó de sonreir.
+garaje, así que dejó de sonreír.
 
 
 
