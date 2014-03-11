@@ -1,6 +1,7 @@
 ---
 layout: index
 ---
+
 <!--- -*-  eval: (typopunct-mode 1); eval: (typopunct-change-language: spanish) -*- -->
 
 <h1>#slash</h1>
@@ -3428,9 +3429,34 @@ Se levantó y se fue sin despedirse. Ya le pediría a la jueza que
 citara al tal Daniel en el
 juzgado. 
 
+## Otro punto de vista
 
+Roble se despertó cuando ya el sol pegaba con fuerza en las cortinas
+cerradas, dejando su habitación en una claridad en la que se podían
+dilucidar claramente a la aspiradora Roomba buscando ansiosamente un
+enchufe y esquivando la ropa que ni siquiera había tenido tiempo de
+dejar plegada en el galán de noche. Mal.
 
+Había soñado con unos drones con forma de tetera que lo perseguían y
+le echaban té hirviendo, que él probaba y encontraba demasiado
+dulce. Se había levantado con unas enormes ganas de mear, debido a
+eso, claro. O al revés. Se fue al cuarto de baño y empezó a pensar en
+asesinos profesionales y en Demelza e inmediatamente cayó en
+algo. Nacho.
 
+Con una copa de café en la mano, llegó hasta la puerta del garaje. No
+sabía si abrirla o no. Llamó y no contestaron. No sabía si abrirla o
+no, de nuevo. Volvió a llamar. Cuando volvió a no decidirse sobre si
+abrirla o no, se dio cuenta de que había entrado en un bucle infinito
+que decidió romper abriendo la puerta.
+
+No había nadie. Además, había dejado las cosas más o menos como
+estaban al principio, sin que formaran una especie de cubículo para
+abrigarse. Tampoco había mantas ni objetos personales.
+
+Roble sonrió. Levemente, claro. Volvió a pensar en asesinos y en
+Demelza. Y luego cayó en que no le habían devuelto el mando del
+garaje, así que dejó de sonreir.
 
 
 
