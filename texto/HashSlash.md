@@ -3334,7 +3334,15 @@ seguro de que no se arrepentiría un poco más adelante.
 Daniel Maldonado. Aquí presente - y señaló a un chaval con el pelo
 rubio, rizado, en uno de los extremos del semicírculo. Eso aclaraba la
 filiación de al menos dos de ellos. El resto seguían siendo Juan y
-Juana Nadie. Eso sí, muy en su papel de tales.
+Juana Nadie. Eso sí, muy en su papel de tales. 
+
+Le alargó a Cecilio una tarjeta con unas preciosas letras de
+diferentes tamaños que él leyó alzándose las gafas: Eulogio Navarro
+Bofill, COMMUNITY MANAGER, COACH, ASESOR PERSONAL EN TEMAS LEGALES,
+MIDFULNESS, DISEÑO WEB, ECOMMERCE, todo ello en diferentes colores y
+colocado en horizontal, vertical y de formas múltiples. ASESOR
+PERSONAL EN TEMAS LEGALES era lo que tenía un tipo de letra más
+pequeñito y gris. 
 
 —Sólo... sólo quería hacerle unas preguntas. Sobre una fiesta a la que
 asistió -, dijo Cecilio.
@@ -3345,16 +3353,79 @@ sobreentendido que declara voluntariamente, pero para proteger sus
 derechos creo que es conveniente grabar esta conversación. O
 entrevista. 
 
-—Bueno sólo eran unas preguntas... - dijo Cecilio.
+—Bueno, sólo eran unas preguntas... - dijo Cecilio.
 
 —¿Estamos de acuerdo, sólo digo, estamos de acuerdo  que es una entrevista? - preguntó Eulogio.
 
-—Sí. - contestó Cecilio, cuyo cerebro madero primitivo, que es
+—Sí -, contestó Cecilio, cuyo cerebro madero primitivo, que es
 una parte del cerebro, quizás cercana al cerebelo, que impulsa a todo
 policía a resolver una situación como lo haría Clint Eastwood, le
 estaba mandando mensajes del estilo de “suéltale un par de hostias y
 lo dejas listo“. Por lo pronto y mientras tuviera el servilletero
-cerca, lo mantenía bajo control. 
+cerca, esa parte de su cerebro madero primitivo  estaba  bajo
+control. 
+
+Eulogio los dirigió hacia una mesa. El resto del comité, o comitiva, o
+simplemente turiferarios, se afanaron en mover otra mesa hasta
+situarla junta. Eulogio se colocó en uno de los extremos, con Daniel y
+Cecilio situados a cada uno de sus lados. Por supuesto, los asientos
+los asignó Eulogio. 
+
+—Bien, eh, Daniel, te quería preguntar... -, comenzó Cecilio.
+
+—Un momento -, dijo Eulogio, levantando un dedo y echándose la otra
+mano al bolsillo.
+
+A Cecilio le vibró el móvil en ese momento y se echó la mano al
+bolsillo para mirarlo. Los tres adláteres se levantaron y apartaron de
+la mesa y tanto Daniel como Eulogio alzaron los brazos; Eulogio llevaba
+en uno de ellos el móvil. 
+
+Estos chicos veían demasiadas películas de John Woo, pensó
+Cecilio. Movió la cabeza en un gesto equivalente a un “Afú“ y miró el
+mensaje. Marisol le decía que se pusiera en contacto con ella. No
+había ninguna palabra clave que indicara urgencia ni premura ni nada
+por el estilo, así que puso el codo sobre la mesa y la barbilla sobre
+la mano en un gesto de escuchar con paciencia lo que se le viniera
+encima. 
+
+—Un momento. Antes de decir nada, voy a grabar esta conversación en
+video y audio sincronizados -, dijo ahora, Eulogio, que se había
+vuelto a sentar, aunque había aumentado su distancia a la mesa.
+
+Cecilio abrió la boca para advertirle que podía ser delito publicar
+imágenes de agentes de policía, pero prefirió callarse. O lo sabía, o
+no lo sabía. Si no lo sabía y lo hacía, podría meterle un paquete con
+todas las de la ley. Que no era otra cosa lo que su cerebro madero le
+decía que hiciera en ese momento. Eso, y una hostia. Dos, una del
+derecho y otra del revés.
+
+—¿Podemos empezar? - preguntó Cecilio.
+
+—Proceda -, contestó Eulogio. Por el momento no se había dado cuenta
+del tono de voz de Daniel, que había sacado de algún sitio una
+botellita de agua y tomaba sorbitos, con los labios fruncidos. Llevaba
+una camisa roja con las solapas fuera del un jersey de cuello de pico,
+de color rosa y de alguna de esas marcas pijas que a veces le pedían
+sus hijos, con nombres de tío guiri. Paul Hilfiger o algo de
+eso. Efectivamente, ahí tenía un logo. Parecía bueno, no tenía
+pelotillas y además evitaba colocarlo sobre la mesa, que, com toda
+mesa de bar, estaba cubierta de migas y sustancias pegajosas diversas,
+producto de horas o a veces días de no ser mancilladas por la bayeta.
+
+—El día de la fiesta - , comenzó Cecilio, - tú...
+
+—Mi cliente ni afirma ni niega haber estado en la fiesta -, dijo
+Eulogio.
+
+En ese momento volvió a vibrarle el móvil. Lo había dejado en el
+bolsillo de la camisa, así que tuvo que sacarlo inmediatamente, antes
+de que su vibración afectara a la tetilla. 
+
+
+
+
+
 
 
 
