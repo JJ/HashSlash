@@ -3336,7 +3336,7 @@ Juana Nadie. Eso sí, muy en su papel de tales.
 Le alargó a Cecilio una tarjeta con unas preciosas letras de
 diferentes tamaños que él leyó alzándose las gafas: Eulogio Navarro
 Bofill, COMMUNITY MANAGER, COACH, ASESOR PERSONAL EN TEMAS LEGALES,
-MIDFULNESS, DISEÑO WEB, ECOMMERCE, todo ello en diferentes colores y
+MINDFULNESS, DISEÑO WEB, ECOMMERCE, todo ello en diferentes colores y
 colocado en horizontal, vertical y de formas múltiples. ASESOR
 PERSONAL EN TEMAS LEGALES era lo que tenía un tipo de letra más
 pequeñito y gris. 
@@ -3387,7 +3387,7 @@ la mano en un gesto de escuchar con paciencia lo que se le viniera
 encima. 
 
 —Un momento. Antes de decir nada, voy a grabar esta conversación en
-video y audio sincronizados -, dijo ahora, Eulogio, que se había
+vídeo y audio sincronizados -, dijo ahora, Eulogio, que se había
 vuelto a sentar, aunque había aumentado su distancia a la mesa.
 
 Cecilio abrió la boca para advertirle que podía ser delito publicar
@@ -3406,7 +3406,7 @@ una camisa roja con las solapas fuera del un jersey de cuello de pico,
 de color rosa y de alguna de esas marcas pijas que a veces le pedían
 sus hijos, con nombres de tío guiri. Paul Hilfiger o algo de
 eso. Efectivamente, ahí tenía un logo. Parecía bueno, no tenía
-pelotillas y además evitaba colocarlo sobre la mesa, que, com toda
+pelotillas y además evitaba colocarlo sobre la mesa, que, como toda
 mesa de bar, estaba cubierta de migas y sustancias pegajosas diversas,
 producto de horas o a veces días de no ser mancilladas por la bayeta.
 
@@ -3419,6 +3419,11 @@ En ese momento volvió a vibrarle el móvil. Lo había dejado en el
 bolsillo de la camisa, así que tuvo que sacarlo inmediatamente, antes
 de que su vibración afectara a la tetilla. 
 
+Era Marisol, y ahora sí llevaba la palabra clave. 
+
+Se levantó y se fue sin despedirse. Ya le pediría a la jueza que
+citara al tal Daniel en el
+juzgado. 
 
 
 
