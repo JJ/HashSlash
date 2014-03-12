@@ -22,7 +22,7 @@ Nombre | Nacido - cuando | dónde |  Puesto | Otros
 --- |--- |--- |--- | ---
 Puri Blanco | - | - | Jueza de instrucción del caso | 
 Paco | - | - | Secretario judicial
-Marisol  | - | - | Antigua compañera de Cecilio, ahora en narcóticos. 
+Marisol González Verdú | 1971 | Alicante | Antigua compañera de Cecilio, ahora en narcóticos (droga y crimen organizado, en realidad)
 
 Las muertas y amistades diversas
 ---
