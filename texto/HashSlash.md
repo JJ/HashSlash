@@ -3494,7 +3494,7 @@ Cecilio miró a Marisol.
 
 —No, si no... - dijo Cecilio.
 
-—No se preocupe. La investigación queda en nuesras manos -,
+—No se preocupe. La investigación queda en nuestras manos -,
 continuó. - Se trata del primer caso de sobredosis, creo.
 
 —No, si ya le digo que ... - dijo Cecilio.
@@ -3507,6 +3507,29 @@ cojones!.
 
 El lechuguino se quedó mirando a Marisol y al Cabra Loca que, en ese
 momento, miraba las volutas de humo que salían de su boca. 
+
+—Entonces, ¿el MXE? -, dijo el lechuguino
+
+—Venga, colega. Vámonos de tapas, que es a lo que has venido,
+cabroncete - le dijo el Cabra Loca, cogiéndolo del brazo y sacándolo
+por la puerta.
+
+Marisol se quedó sentada, mirando a Cecilio.
+
+—Es que no se enteran, estos de los Madriles. Le hablas de muerta y eme, y es que todo
+se le lía... 
+
+—Pero ¿el caso ha pasado a su unidad? -, preguntó Cecilio a Marisol.
+
+—No, pero se ha informado a la jueza que está pensando en hacer una
+pieza separada para el tema de la MXE. Ya me ha estado contando este,
+antes de que tú llegaras. ¿Dónde andabas, tío? Te he mandado varios
+mensajes.
+
+—En la universidad - contestó Cecilio -, con...
+
+—Buscándote a ti mismo, como los americanos -, dijo Marisol, echándose
+a reir y mostrando las arrugas en la frente y alrededor de los ojos. 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
