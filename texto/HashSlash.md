@@ -3526,7 +3526,7 @@ mensajes.
 —En la universidad - contestó Cecilio -, con...
 
 —Buscándote a ti mismo, como los americanos -, dijo Marisol, echándose
-a reir y mostrando las arrugas en la frente y alrededor de los ojos. 
+a reír y mostrando las arrugas en la frente y alrededor de los ojos. 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
