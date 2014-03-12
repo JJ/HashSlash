@@ -1,4 +1,3 @@
-
 <!--- -*-  eval: (typopunct-mode 1); eval: (typopunct-change-language: spanish) -*- -->
 
 <h1>#slash</h1>
@@ -2427,7 +2426,13 @@ Una vez enviado el informe a la jueza, que decidiría registros, imputaciones o 
 
 Y entonces, el MXE. Los informes de tóxicos se hacen por algo. Pueden haber sido un factor coadyuvante, "ayudante", decía uno de sus alumnos tutorizados, en el crimen. ¿La habían intoxicado para que no gritara o se defendiera? 
 
-No tenía ni idea de MXE. A él le sacabas del jaco y del porro y nada. Tendría que llamar a alguien de narcóticos. Buscó en el directorio de la comisaría y encontró el teléfono de Marisol, con la que había coincidido en su época de subinspector en la brigada de seguridad ciudadana, antes de sacar las oposiciones a la escala ejecutiva. 
+No tenía ni idea de MXE. A él le sacabas del jaco y del porro y
+nada. Tendría que llamar a alguien de narcóticos. Buscó en el
+directorio de la comisaría y encontró el teléfono de Marisol, con la
+que había coincidido en su época de subinspector en la brigada de
+seguridad ciudadana, antes de sacar las oposiciones a la escala
+ejecutiva.  Al sacar las oposiciones ella también había cambiado, en
+este caso a droga y crimen organizado.
 
 
 —González -, le contestaron desde el otro lado del teléfono.
@@ -3455,7 +3460,50 @@ Roble sonrió. Levemente, claro. Volvió a pensar en asesinos y en
 Demelza. Y luego cayó en que no le habían devuelto el mando del
 garaje, así que dejó de sonreír.
 
+## En el círculo de la droga
 
+Marisol lo esperaba en su despacho, situado en la comisaría
+provincial, Vestía una camisa de leñador y pantalones amplios, con
+bolsillos. No estaba sola. El Cabra Loca estaba con ella,
+fumando, vestido con una sudadera y un pantalón similar. Se ve que era
+el modelo estándar de los drogas. Había otra persona, un lechuguino
+con traje y con pocas trazas de ser de los alrededores; ni Marisol ni
+el Cabra Loca, en realidad, lo eran, pero habían acabado asimilados
+culturalmente. 
+
+—Cécil, este es - dijo Marisol, un nombre que Cecilio no entendió y/o olvidó
+inmediatamente, nombre de persona importante -, de la
+[UDYCO](http://www.policia.es/org_central/judicial/udyco/udyco.html). 
+
+UDYCO, esas eran palabras mayores. Gente de la que Había Que Hablar
+Con Mayúsculas. Los que se vigilaban con drones los paquebotes
+procedentes de Irán y Colombia y los ametrallaban sin compasión,
+dejándolos a la deriva hasta que la unidad correspondiente los
+remolcaba hasta puerto, donde un juez estrella se hacía la foto con
+los fardos de farla. 
+
+La persona importante le estrechó la mano.
+
+—He venido inmediatamente en el avión de esta mañana para investigar
+la muerte por MXE. Es el primer caso que conocemos. 
+
+Cecilio miró a Marisol. 
+
+—No, si no... - dijo Cecilio.
+
+—No se preocupe. La investigación queda en nuesras manos -,
+continuó. - Se trata del primer caso de sobredosis, creo.
+
+—No, si ya le digo que ... - dijo Cecilio.
+
+—No quiere decir que no tengamos experiencia, ha habido casos
+similares con K, y al parecer los canales que siguen son...
+
+—Lavín, compae -, dijo Cecilio-, ¡que ha muerto de una cuchillá,
+cojones!. 
+
+El lechuguino se quedó mirando a Marisol y al Cabra Loca que, en ese
+momento, miraba las volutas de humo que salían de su boca. 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
