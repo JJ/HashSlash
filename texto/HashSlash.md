@@ -1718,40 +1718,39 @@ bla bla.
 
 ## El vecino
 
-La casa de Roble tenía cristaleras orientadas al este. Desde
-ellas veía el sol salir sobre Sierra nevada y otras cosas que merecían, casi siempre, unas
+Una de las facetas del salón acristalado de la casa de Roble estaba  orientada al este. Desde esa cara veía, los días que estaba presente y despierto, no muchos más por la primera razón que por la segunda, el sol salir sobre Sierra Nevada y otros paisajes que merecían, casi siempre, unas
 docenas de “Me gusta“ en su Instagram personal, el de los selfies e
 imágenes *urban*. En esta ocasión, el sol se introdujo en un
 interludio entre las nubes y lo despertó antes de las diez de la
 mañana. 
 
 Tenía una palabra en la mente cuando se despertó: Shiseido. Una marca
-de cosméticos que usaba con cierta frecuencia, pero que había dejado
-de usar últimamente. Tactics, se llamaba el producto, o Strategics,
+de cosméticos que había usado con cierta frecuencia, pero que había dejado
+de comprar últimamente. Tactics, se había llamado el producto que usaba, o Strategics,
 algo así. ¿Por qué la dejó de usar? No
 lo recordaba. ¿A qué olía? Tampoco lo recordaba. A colonia. A
 japonés. A. 
 
-Se puso a buscar su línea temporal a ver qué le decía. *Ego-mining*,
+Se puso a buscar su línea temporal a ver qué encontraba en ella sobre Shiseido. *Ego-mining*,
 la solución cuando la memoria falla y la memoria tiene que fallar
 tarde o temprano. Hacía unos años,
 sí. [Zen for men](http://www.shiseido.es/#/men/zen-for-men). Pero ¿por
-qué había saltado esa alerta, temprana por la hora, en este momento?
+qué había saltado esa alerta, temprana por la hora, en forma de una palabra y en este momento?
 
 Se tomó un zumo de granadas mientras se hacía un café en su Krupp, añadiéndole un cristal de azúcar morena y
 un poco de leche de almendras. Le gustaba cómo las notas amargas de
-uno jugaban con las de otro. Y además, era original. Dejó que las
+uno jugaban con las de las otras. Y además, era original. Dejó que las
 noticias y alertas diversas atacaran su pulsera, dedicándoles sólo un
 poco de atención mientras miraba por el ventanal de su casa, viendo la
-saturación de la ciudad, a sus pies, aumentar poco a poco, hasta que
-no parecía una foto Lomo sino algo real y, por tanto, empezaba a
-necesitar algún filtro. La realidad, de por sí, era poco fotogénica. No juntaría
+saturación de color de la ciudad, a sus pies, aumentar poco a poco, hasta que
+no parecía una foto Lomo sino algo real y, por tanto, con 
+necesidad de algún filtro. La realidad, por sí sola, era poco fotogénica. No juntaría
 más de un par de *me gustas* en cualquier sitio. 
 
-Su pulsera le avisó de que llevaba acumuladas más calorías que la
-media de su grupo de NoFlab, la app móvil que garantizaba “mantenerte
-en tu peso o incrementarte tu vergüenza“. Empezó a vibrar insistentemente
-indicándole los kilómetros que tendría que correr hoy si no quería
+Entre las diversas alertas, una trató de llamar su atención con denuedo; su pulsera le estaba avisando de que llevaba, en las últimas 24 horas, acumuladas más calorías que la
+media de su grupo de NoFlab, la app móvil que garantizaba “mantenimiento
+de peso o incremento de vergüenza“. Empezó a vibrar insistentemente
+mostrando en la pantalla los kilómetros que tendría que correr hoy si no quería
 caer todavía más abajo. No paró de hacerlo hasta que no detectó que se
 había puesto las zapatillas de correr. Pero sólo por un momento. Si no
 comenzaba, efectivamente, a moverse, vibraría y vibraría y como medida
@@ -1759,25 +1758,25 @@ extraordinaria pondría en su muro un mensaje en el que se llamaría
 perezoso a sí mismo y pondría, con precisión de un gramo, cuánto por
 encima de la media estaba. Pero eso nunca pasaría. Pasó una vez y
 estuvo a punto de convertirse en *trending topic* entre sus
-conexiones. Así que no volvería a pasar.
+conexiones. Así que no volvería a pasar. No hoy. 
 
 Se puso las gafas de Google para ir a correr. A veces aparecía alguna imagen
-interesante y sólo tenía que guiñar el ojo para capturarla. Y un año
+interesante y sólo tenía que guiñar el ojo para capturarla. Un año
 atrás la gente de su barrio lo había mirado con extrañeza. Parecía una
 prótesis retrofuturista. Pero poco a poco dejaron de prestarle
 atención. Tomó, como era habitual, la cuesta del Barranco del Abogado
 hacia arriba, pasó el cementerio, siguió hasta el Llano de la Perdiz y
-allí se paró, mirando hacia el Albayzín, buscando el rayo de luz, la
+allí se paró, mirando hacia el Sacromonte, buscando el rayo de luz, la
 nube, el momento que pudiera capturar y subir a Instagram. En este
 Instagram, en el personal, sólo capturaba *me gustas*. Era con el otro
 con el que conseguía dinero. Las dos cosas le resultaban
 satisfactorias. Al menos, los *me gustas* no se devaluaban como los
 bitcoins que recolectaba con el otro.
 
-Bajó andando hacia su casa, más relajado, parando un par de veces para
-revisar lo capturado y subir alguna foto. Seleccionó un par, una de
+La carrera cuesta arriba aplacó al app lo suficiente como para que pudiera bajar andando hacia su casa, más relajado, parando un par de veces para
+revisar lo capturado y subir alguna foto. Seleccionó unas cuantas, una de
 ellas con gatos y las subió. Cuando llegó a su casa ya tenía treinta
-*me gusta*. En la de los gatos, claro.
+*me gusta*. En la de los gatos, claro. La Internet era en realidad un elaborado dispositivo creado por un dios gato para que toda la humanidad lo adore sin descanso y sin fronteras. 
 
 Roble estaba fuera de turno, pero tras desayunar tostadas con flor de
 sal del Himalaya y aceite de oliva virgen extra extraído en frío de
