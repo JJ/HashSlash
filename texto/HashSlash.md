@@ -3547,7 +3547,26 @@ a reír y mostrando las arrugas en la frente y alrededor de los ojos.
 
 —Coño, Marisol, que yo veo más series de polis que tú y eso no pasa por aquí nunca. Además, ni violación ni actividad sexual de ningún tipo. Una verdadera monjita -, dijo Cecilio.
 
-—Mejor me lo pones, Cécil. La drogan para que no chille ni dé por culo y se la ventilan. Con piononos, no es lo mismo Si acaso, se habría muerto más gorda de lo corriente -, dijo Marisol, y se volvió a reir. Cecilio corroboró que se seguía riendo mucho y por un momento quiso reirse con ella. No lo hizo porque tenía razón y no se le había ocurrido. En un crimen no se trata sólo de averiguar quién es cuplabel directo. También quién lo supo y no lo denunción, quién ayudó a que sucediera o incluso quién se deshizo del cadáver. Si averiguas primero quién es el asesino y se muestra hablador, genial. Pero a veces es quien le prestó el coche a un amigo que fue a comprar pan a la pandería donde iba el asesino quien proporciona el hilo del que se acaba 
+—Mejor me lo pones, Cécil. La drogan para que no chille ni dé por culo y se la ventilan. Con piononos, no es lo mismo Si acaso, se habría muerto más gorda de lo corriente -, dijo Marisol, y se volvió a reir. Cecilio corroboró que se seguía riendo mucho y por un momento quiso reirse con ella. No lo hizo porque tenía razón y no se le había ocurrido. En un crimen no se trata sólo de averiguar quién es cuplabel directo. También quién lo supo y no lo denunción, quién ayudó a que sucediera o incluso quién se deshizo del cadáver. Si averiguas primero quién es el asesino y se muestra hablador, genial. Pero a veces es quien le prestó el coche a un amigo que fue a comprar pan a la pandería donde iba el asesino quien proporciona el hilo del que se acaba sacando toda la historia. 
+
+Cecilio no contestó. 
+
+—Entonces, ayúdame. ¿Quién la vende? ¿Quién la compra? - dijo Cecilio.
+
+—No, ayúdame tú, Cecilio. Tú me rascas la espalda y yo te la rasco a ti. En sentido figurado, claro -dijo Marisol. - Vamos a ver si la UDYCO nos echa una mano, porque ya te digo que no sabemos quién la mueve por aquí. Suelen ser orientales. Chinos y coreanos. Pero coreanos por aquí hay pocos. O ninguno. Así que no sé decirte; ni idea, de veras. Yo busco por ahí y tú...
+
+—Yo ya sé, Marisol, no hace falta que me lo digas. El entorno de la muerta, amistades, contactos, todo eso. 
+
+Marisol se levantó de su sillón y se le acercó para darle un par de besos.
+
+—Quedamos en eso, Cécil. Venga...
+
+—Venga, guapetona, que estás cada vez más guapetona.
+
+—Sí, eso dicen mis gatos - dijo ella, volviendo a su sillón.
+
+
+
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
