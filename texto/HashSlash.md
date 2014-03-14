@@ -239,7 +239,7 @@ pulgar verticalmente, pasando algo por la pantalla - el color de la
 sangre - movió pulgar y corazón, ampliando algo - indica que... es auténtica.
 
 Dijo esto último bajando la voz, consciente del #fail y #vayanovedad
-que eran ls expresiones precisas para calificar sus palabras. Pero los comentaristas de la imagen no sólo
+que eran las expresiones precisas para calificar sus palabras. Pero los comentaristas de la imagen no sólo
 habían hecho eso. También se quejaban del tratamiento Lomo de
 la foto. Poco más. Los seguidores de Dexter parecían no estar muy
 espabilados a estas horas de la mañana. Todo eso no había impedido que
@@ -331,7 +331,7 @@ hidrolizando. Cuando Demelza se levantara, habría que ponerse a
 limpiar rápidamente. Alguien tendría que hacerlo, vamos. 
 Que el suelo esté pegajoso se puede aguantar y es
 algo inherente a cualquier piso de estudiantes. Pero el olor... Eso sí
-que no. Además, es posible que huela un poco a... No. eso no, munca. 
+que no. Además, es posible que huela un poco a... No. eso no, nunca. 
 
 — Vale, vale. No pasa nada. Me voy a hacer un café. ¿Queréis algo? -
 dijo, mirando a hipster de nuevo. Este miró al otro, como si pidiera
@@ -3147,36 +3147,35 @@ mucho que cambie de ruta, quién sabe...
 ## La búsqueda del bicho
 
 Roble montó en la moto de Demelza para recorrer el kilómetro escaso
-que los separaba de la papelera donde había depositado el chisme. El
+que los separaba de la papelera donde había depositado el chisme de seguimiento que había encontrado en la propia moto. El
 casco que le prestó era uno de lo más vulgar y Roble era consciente de
 ello. Como era consciente de que, al salir de la casa en dirección a
-la carretera de la sierra, Nacho se había quedado allí, en el garaje,
-o estaría a estas horas haciendo cualquier otra cosa. 
+la carretera de la Sierra, Nacho se había quedado allí, en el garaje. O fuera de él, pero listo para volver en cualquier momento. 
 
 Eran las cinco de la mañana y Granada se despertaba de pequeñas
 maneras. Un improbable autobús de turistas japoneses subía hacia la
 Alhambra, seguido por taxis llenos de deudos camino de encuentros
 esperados y algunos inesperados alrededor de un cadáver de cuerpo
-presente en el cementerio, seguidos a su vez por bicicletas
+presente en el cementerio, seguidos a su vez por bicicletas prudentes evitadoras del tráfico intenso de la luz del día
 esforzándose en escalar la cuesta y por coches que bajaban de hacer
 cosas sólo confesables a través de todas las redes sociales en el
-llano de la Perdiz. El hospital, al final de la cuesta, era una mole
+llano de la Perdiz. El nuevo hospital, al final de la cuesta, que sería nuevo por años sin término, era una mole
 blanca que empequeñecía el hotel Real de la Alhambra, justo al lado;
-los dos se mostraban como faros que mostraban, al final de la
-carretera de la Sierra, el camino a los turistas en busca de nieve o
-historia.
+los dos se aparecían como faros que mostraban, al final de la
+carretera de la Sierra, el camino a los turistas en busca de nieve a su derecha o
+historia a su izquierda.
 
-Ellos torcieron a la derecha al final de la que todavía era el nuevo
-acceso a la Alhambra, después de una docena de años y pasaron por
+La moto de Demelza torció a la derecha al final de la que todavía, después de una docena de años, era la nueva carretera de
+acceso a la Alhambra  y pasaron por
 delante de la casa, todavía precintada, de Demelza, en busca de la
 papelera, colgada en una farola muy cerca del bar donde, un par de
 días antes, Roble se había tomado un café con Tina. 
 
-Roble despegó la papelera de su soporte, le quitó la tapa de color
+Roble despegó la papelera de su soporte, le quitó la tapa de plástico de color
 naranja y vertió su contenido en la acera. Un anciano en zapatillas,
 bata y gorro militar ruso que paseaba a su
-perro lo miró con gesto desabrido, pero el perro se acercó a olfatear
-los contenidos. 
+perro lo miró con gesto desabrido.  El perro, sin embargo,  se acercó moviendo la cola a olfatear
+el montón de basura del suelo. 
 
 Roble empezó a desbrozarlos y volver a meterlos en la papelera, que
 había vuelto a enganchar a su soporte, pero se paró en cuanto que
