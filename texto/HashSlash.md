@@ -202,20 +202,20 @@ altura o un poco más bajo.
 —Coño, Robles, porque me he visto el NCIS y el CSI y toda serie 
 maderera que echen por la tele o te puedas comprar en el Cortinglés o que se
 pueda bajar uno subtitulada para entenderla. ¿Tú te crees que me ha
-tocado ver muchos fiambres? 
-¿O que me lo enseñaron en la academia? En mi época, todavía te
-enseñaban a dar hostias a dos manos, del derecho y del revés. Y los muertos, con los 
+tocado ver muchos fiambres? - dijo, y se encogió de hombros - 
+¿O que me lo enseñaron en la academia? En mi época, lo que te
+enseñaban era a dar hostias a dos manos, del derecho y del revés. Y los muertos que me ha tocado, con los 
 dedos de esta mano se pueden contar -, mostró su mano izquierda, en la
 que le faltaba un dedo. - Y todas eran mujeres y los asesinos eran
 siempre sus parejas, que, a veces, estaban justo al lado, con
-los sesos volados o, en su caso, ahorcados con el cinturón. Expediente
+los sesos volados o, si no tenían licencia de caza, ahorcados con el cinturón, que es muy socorrido. Expediente
 cerrado, caso resuelto, te vas a casa y 
 te echas la siesta. Pero vamos, que en las series es lo primero que
-miran, Ángulo, altura, este es culpable, ese no. 
+miran, Ángulo, altura, ese tío tan largo es culpable, ese no. 
 
 —Vaya -, dijo Roble.
 
-—Qué. - contestó Cecilio, apoyando el puño sobre su muslo. 
+—Qué -, contestó Cecilio, apoyando el puño sobre su muslo. 
 
 —Quique. El periodista. - Aparentemente, Quique había visto que Roble había hecho check-in en
 FourSquare en el barrio y me acaba de poner un *me gusta* en él. - Viene.
@@ -239,18 +239,18 @@ pulgar verticalmente, pasando algo por la pantalla - el color de la
 sangre - movió pulgar y corazón, ampliando algo - indica que... es auténtica.
 
 Dijo esto último bajando la voz, consciente del #fail y #vayanovedad
-que eran la respuesta obvia a sus palabras. Pero los comentaristas de la imagen no sólo
+que eran ls expresiones precisas para calificar sus palabras. Pero los comentaristas de la imagen no sólo
 habían hecho eso. También se quejaban del tratamiento Lomo de
 la foto. Poco más. Los seguidores de Dexter parecían no estar muy
 espabilados a estas horas de la mañana. Todo eso no había impedido que
-el número de *me gustas* siguiera creciendo, por otro lado.
+el número de *me gustas* siguiera creciendo, por otro lado. Lo que era bien, pensó Roble.
 
 Cecilio se volvió a sentar en el
 sillón, diciendo
 por el camino “Afú” varias veces, y se puso a escribir en un bloc pequeñito, con  portada a
 cuadros y un alambre uniendo las hojas por su parte superior. 
 
-Se comenzaron a oir ruidos en dirección opuesta a la que se
+Se comenzaron a oir ruidos en dirección opuesta a l pasillo en el que se
 encontraba el cadáver. Los dos giraron la cabeza en esa
 dirección. Luego se miraron el uno al otro y finalmente siguieron uno
 escribiendo en el móvil y otro en el bloc.
@@ -312,25 +312,26 @@ Google. Sin saber por qué, no le hizo maldita la gracia ser
 fotografiada. O no le habría hecho tratándose 
 de otra persona, pero qué diablos, las fotos la amaban. Estaba mona hasta con resaca. 
 
-— Vale, vale, vale. Ya está. Cuando salga el novio, o ella, o los dos, me avisáis. Y otra
+—Vale, vale, vale. Ya está. Cuando salga el novio, o ella, o los dos, me avisáis. Y otra
 cosa no tendríais, aspirina, Gelocatil. ¿Oxicodona? - dijo, mirando al
 hipster con una mueca un tanto sarcástica. 
 
-— No, Tina. Nada. Ya lo siento -, le dijo sonriendo. Seguro
+—No, Tina. Nada. Ya lo siento -, le dijo sonriendo. Seguro
 que estuvo en la fiesta, si no, ¿cómo sabía su nombre? O se lo habría
 dicho el novio de Demelza, que sería su colega. O su cuñado. Y el otro
 el suegro. 
 
 Tina le sonrió. Y ese acto de mover los músculos alrededor de la nariz
-de alguna forma la abrió y notó el olor. Miró hacia atrás, a ver si
-ahí era más fuerte. Una vez se habían dejado la basura sin sacar
+de alguna forma la abrió y notó el olor. Miró hacia atrás, hacia la cocina, a ver si
+desde esa dirección era más fuerte. Una vez se habían dejado la basura sin sacar
 durante un par de semanas y olía más o menos así. Peor, quizás. La
 fiesta. Eso tenía que ser. Alguien se había dejado las mediasnoches de
-mortadela debajo del sofá y ahora los ácidos grasos estaban
+mortadela debajo del sofá y ahora los ácidos grasos se estaban
 hidrolizando. Cuando Demelza se levantara, habría que ponerse a
-limpiar rápidamente. Que el suelo esté pegajoso se puede aguantar y es
+limpiar rápidamente. Alguien tendría que hacerlo, vamos. 
+Que el suelo esté pegajoso se puede aguantar y es
 algo inherente a cualquier piso de estudiantes. Pero el olor... Eso sí
-que no. 
+que no. Además, es posible que huela un poco a... No. eso no, munca. 
 
 — Vale, vale. No pasa nada. Me voy a hacer un café. ¿Queréis algo? -
 dijo, mirando a hipster de nuevo. Este miró al otro, como si pidiera
@@ -344,8 +345,8 @@ labios.
 
 —Las pastillas... Y mientras, tu amiga... 
 
-—Ah, sí. Vale, vale. Me pongo los pantalones y listo. - El viejuno,
-que parecía no haber sido consciente hasta ese momento de que llevaba
+—Ah, sí. Vale, vale. Me pongo los pantalones y listo -, dijo Tina. El viejuno,
+que parecía no haber sido consciente hasta ese momento de que ella llevaba
 sólo una camiseta, miró hacia el sur y se ruborizó. Viejo verde. Joven
 inconsciente. Qué frío hacía, caray. 
 
@@ -353,27 +354,28 @@ Café para dos
 -----
 
 Por un momento, Roble había creído que la chica iba a descubrir la
-situación antes de lo conveniente, es decir, antes de que pudieran sacarle cierta información sobre qué había pasado la noche anterior. Y antes de que, sabiendo lo ocurrido, tuvieran
-hacer de consejeros, que tendría que ser él porque Cécil era un inútil
+situación antes de lo conveniente, es decir, antes de que pudieran sacarle cierta información sobre qué había pasado la noche anterior. Y antes de que, al enterarse ella de lo ocurrido, tuvieran que
+hacer de consejeros psicológicos, de lo que tendría que encargarse él porque Cécil era un inútil
 para prácticamente todo. Además, si ella había tenido algo que ver con
-ello, trataría de interrogarla sobre qué sabían, de donde se filtraría
-lo que ella sabía. Había un tercer 
+el asesinato, trataría de sonsacarles lo que sabían, de donde se filtraría
+lo que ella sabía. Ese juego de yo sé que tú lo sabes pero no voy a dejar que lo sepas y a la vez voy a hacer como que no sé que tú lo sabes podía ser fructífero. Siempre que efectivamente lo supiera. 
+Había un tercer factor
 además, que era la posibilidad de, eventualmente y con un poco de
 suerte, tirársela, lo que habría sido bastante improbable en caso de
 que la presencia de Roble estuviera asociada, desde el principio, con una
 compañera asesinada. No es una buena forma de presentarte. “Hola, soy
 poli, tu compi ha muerto y, por casualidad, ¿no la habrás matado tu?“.
 
-—Menuda fiestuqui anoche, ¿eh?
+—Menuda fiestuqui anoche, ¿eh? - dijo Roble, a modo de gancho para tratar de pescar algo sobre el conocimiento de Tina de la situación. 
 
-—Sí, ¿verdad? - contestó Tina, un poco más animada tras haberse bebido
+—Sí, ¿verdad? -, contestó Tina, un poco más animada tras haberse bebido
 el zumo de naranja de un trago y haber empezado con el café con leche
-semidesnatada, la mitad fría. - creo que vino todo el mundo, pero todo
+semidesnatada, la mitad fría -, creo que vino todo el mundo, pero todo
 el mundo. Hubo un momento que no se podía ni salir ni entrar, gente
 por todos lados, en los pasillos, ni se oía la música, fíjate. No
-había música, ahora que lo pienso. Es lo guay de vivir en un sitio tan
+había música, ahora que lo pienso. O la había ratos. No me acuerdo. Es lo guay de vivir en un sitio tan
 solitario, que no molestas a nadie. Vamos, que me da igual molestarles
-o no, pero si los molestas llaman a los maderos y te cortan el rollo.
+o no, es su problema, pero si los molestas llaman a los maderos y te cortan el rollo.
 Pero, oye, contéstame, ¿lo probaste? ¿Te gustó?
 
 Roble no sabía a qué se refería. Hizo un gesto ambiguo alzando los
@@ -386,14 +388,15 @@ hubiera salido a la calle sin dedicarle cierto tiempo más allá de un
 cepillado sin vigor tampoco le había favorecido. Pero era cóncava
 donde la evolución había hecho a las mujeres cóncavas y convexa en los
 sitios correspondientes. Perfectamente aceptable, por
-supuesto. Siempre que, claro. 
+supuesto. Siempre que, claro. Superpuestas a esas capas de pensamiento  estaba el subtexto: no sabía lo que había ocurrido, o al menos no estaba tratando de sonsacarle a ver qué sabía él. O eso o era muy lista y se había dado cuenta de que como no se la habían llevado detenida no era sospechosa. Y también era tan lista como para no parecerlo. Roble alzó la ceja en un gesto que solía usar cuando sopesaba diferentes posibilidades, sin ser capaz de quedarse con ninguna. 
 
 —Bueno, sí, es que es un poco así, pero... ya veremos lo que pasa -
 dijo Tina, contestando, o quizás no, al gesto de Roble. - Pero vamos,
 que la fiesta estuvo bien...
 
+Al menos para una persona no lo había estado tanto, pensó Roble. Bajó la ceja inclinándose por la posibilidad de que Tina no supiera nada todavía. 
 Habían tenido que andar unos cien metros, desde muy cerca del final de la carretera de
-la Sierra hasta lo que, por la antigüedad de los edificios, parecía el viejo extremo de la misma, donde sí había una
+la Sierra hasta lo que, por la antigüedad de los edificios, parecía el anterior extremo de la misma, donde sí había una
 cafetería abierta. Por el camino, un bloque de casas de dos pisos con
 carteles de “Se alquila”, “Se vende”, “Por propietario“, “Por entidad
 bancaria“, algunos torcidos y adheridos sólo por una de sus esquinas, persianas
@@ -402,8 +405,8 @@ echadas, escombros de burbuja.
 En el bar, colgadas en las paredes, bufandas del Granada Club de Fútbol, que andaba peleándose con denuedo
 para alcanzar  los puestos
 de descenso de segunda de nuevo; parejas de jubilados, jubilados sin pareja y algún grupo de
-amas y amos de casa de casa que compartían el café post-dejada de los niños en el
-cole y hablaban, precisamente, de eso, aparte de organizar partidas de pádel por parejas. 
+amas y amos de casa que compartían el café post-abandono de los niños en el
+cole y hablaban, precisamente, de eso, aparte de organizar partidas de pádel por parejas. O con parejas.
 
 —Por eso acabamos, ¿a qué hora acabamos? -, le preguntó a Roble, que
 hizo un ruido ambiguo y puso cara de pensativo. - No te acuerdas tú
@@ -414,13 +417,13 @@ Glasses? No había visto muchas. El tío tenía que ser un poco friqui. Pero fri
 —Cuando Demelza... - dejó la frase sin terminar, para que Tina lo
 hiciera por él. O la dejara ahí, implicando que se había ido cuando
 Demelza se había ido a su habitación. O al otro barrio. Roble no
-pudo evitar sonreír.
+pudo evitar sonreír. El humor negro le ganaba, aunque fuera él mismo quien lo produjera. Ya que aparentemente no sabía nada, a ver qué podía obtener.
 
-—No, espera, Demelza... yo no la vi desde las dos o las tres. ¿O
+—No, espera, Demelza...sí, estuvo, pero yo no la vi desde las dos o las tres. ¿O
 las una? Espera, cuando nos quedamos con el Riki y la Santi y nos... -
 le dio una risita - No, había un grupo de tíos un poco raros ahí,
 chungos, y pasamos de ellos, pero Demelza... no sé, no me
-acuerdo. Estaría en su habitación. O se habría ido.
+acuerdo. Estaría en su habitación cuando acabamos. O se habría ido.
 
 —Las fotos... - Roble había visto ya el perfil de Facebook de Tina,
 donde había fotos hasta la 1:25, más o menos. 
@@ -429,23 +432,21 @@ donde había fotos hasta la 1:25, más o menos.
 sacó el móvil del bolsillo y empezó a pasar el dedo por una pantalla
 tan intrínsecamente nítida y extrínsecamente sucia que parecía un
 anuncio de limpiacristales para móviles, de los que se habían hecho
-tan populares últimamente. 
+tan populares últimamente. Se rumoreaba que Apple iba a sacar su modelo 7 con el limpiacristal ya incorporado. 
 
-Se quedó pillada un rato mirando las fotos. Roble tomó nota mental de
-pedírsela más adelante. No siempre se sube absolutamente todo. De vez
-en cuando lo miraba con los ojos entornados y volvía a mirar al
-móvil. 
+Se quedó pillada un rato mirando las fotos. Roble tomó nota mental para
+pedírselas más adelante. Seguro que todo estaba en la nube ya y, por tanto, accesible con las habilidades y contactos adecuados, pero era más fácil siempre si ella se lo daba. Menos caro también. Tina entornaba los ojos de vez
+en cuando y volvía a mirar al
+móvil, como comparando alguna cara de las fotos con la suya. 
 
-Sonó el de Roble con el tono de Cecilio. Eso no podía significar más
-que la llegada del juez para levantar el cadáver y el forense. Ya
+Mientras estaban pasando fotos en el móvil sonó el de Roble con el tono de Cecilio. Eso no podía significar más
+que la llegada del  forense y el juez para levantar el cadáver. Ya
 había, de hecho, visto pasar la furgoneta del Anatómico-Forense en
 dirección hacia el piso. 
 
 No creía que le durara mucho más el café, así que antes de que
 recibiera el impacto de la muerte de su compañera trataría de sacarle
-algo más. No una confesión, claro. Si había sido ella la asesina o no
-se acordaba o era una sicópata capaz de mentir como quien inventó la
-mentira. En cualquier caso no parecía fácil pillarla en un
+algo más. No una confesión de culpabilidad, claro. No parecía que supiera nada, y lo sabía, no parecía fácil pillarla en un
 renuncio. Pero había que intentarlo.
 
 —Demelza... - empezó diciendo. Tina parecía de ese tipo de personas
@@ -467,24 +468,24 @@ hebras de algo que empezó con la compra de yogures en el supermercado
 y terminó con la pérdida de un cargador del móvil. - ¡Y ni siquiera
 era de ella! 
 
-De la historia se transmitía una vaga animadversión. No la suficiente
+De la historia de Tina se transmitía una vaga animadversión. No la suficiente
 como para clavar un cuchillo en el esternón. Roble sonrió levemente
 ante este pareado y lo anotó para un tuit posterior. También anotó la
-sonrisa para un selfie futuro. 
+sonrisa para un selfie futuro. No duró mucho. En seguida pensó en cuantas justificaciones de asesinatos comenzaban así, con cargadores que ni siquiera eran de alguien. Tendría que averiguar de quién era el cargador del móvil. Del crimen. Sonrió de nuevo. El café había avivado sus neuronas. 
 
-—¿Volvemos? - dijo Tina, levantándose. - A ver cómo andan esos, - le
-dijo haciendo amago de pegarle un codazo a Roble. Roble pagó, Tina no
+—¿Volvemos? -, dijo Tina, levantándose. - A ver cómo andan esos, - le
+dijo haciendo amago de pegarle un codazo a Roble. Roble se dirigió a la barra a pagar, Tina no
 hizo amago siquiera. 
 
-Recorrieron unos metros en dirección al piso. Unos metros por encima
+Salieron del café y volvieron por la misma acera,  en dirección al bloque en el que se encontraba piso. Unos metros por encima
 de los tejados, diferentes drones revoloteaban en dirección a la
 ciudad o alejándose de ella. Uno realizaba un circuito, muy cerca de
-la puerta del bloque. Justo debajo de él, Roble vio la furgoneta
+la puerta del bloque. Justo debajo de él, Roble vio la furgoneta del Forense
 aparcada. Tina también. Empezó a abrir los ojos, luego a
 entornarlos. Luego la boca. Roble la interrumpió. Era una furgoneta
 frigorífica normal y corriente. Podía ser la de un cátering o de unas
 mudanzas. Pero había demasiada gente alrededor, un coche patrulla
-aparcado más adelante y en un minuto vería al madero de uniforme
+aparcado más adelante y en unos segundos vería al madero de uniforme
 plantado en la puerta. Así que, para Roble, había llegado el momento de desaparecer. El
 momento consolación de damisela en apuros tenía su gracia, pero para
 eso estaba su compañero que tenía más experiencia en el tema y ninguna
@@ -494,7 +495,7 @@ posibilidad de sacar provecho de la situación.
 
 Todavía no habían empezado el interrogatorio *oficial*, ni se
 consideraba testigo ni ninguna otra figura procesal. ¿Por qué no iba a
-poder quedar con ella y lo que surgiera? Se dieron la mano para que
+poder quedar con ella y dejarse llevar por lo que surgiera? Se dieron la mano para que
 sus pulseras intercambiaran los datos de contacto; Roble dejó
 su mano entrelazada unos segundos más de lo estrictamente necesario. Tina no hizo ademán
 de soltarse. 
@@ -509,7 +510,7 @@ músculos y tatuaje a pesar del frío, de pie y de brazos cruzados en la
 entrada al bloque, al coche del juzgado un poco más allá de donde se
 acababa de bajar la jueza, bajita, rubia con un traje de chaqueta y el
 pelo corto. No la conocía. Sería nueva, o sustituta o algo. Y Roble
-alejándose y la compañera del piso acercándose con lentitud, como no
+alejándose en dirección contraria de la compañera del piso, acercándose con lentitud, como no
 queriendo creer que aquello tenía que ver, de alguna forma, con ella,
 cuando no vivía nadie más en el bloque y casi en cincuenta metros a la
 redonda, no quedaba más remedio. 
