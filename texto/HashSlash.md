@@ -3527,7 +3527,7 @@ mensajes.
 —Buscándote a ti mismo, como los americanos -, dijo Marisol, echándose
 a reír y mostrando las arrugas en la frente y alrededor de los ojos. 
 
-—No, encontrando a un gilipoyas acompañado. No me hables -, contestó Cecilio.
+—No, encontrando a un gilipollas acompañado. No me hables -, contestó Cecilio.
 
 —Sí te hablo, porque te he llamado para eso. M. -, dijo Marisol.
 
@@ -3545,7 +3545,7 @@ a reír y mostrando las arrugas en la frente y alrededor de los ojos.
 
 —Coño, Marisol, que yo veo más series de polis que tú y eso no pasa por aquí nunca. Además, ni violación ni actividad sexual de ningún tipo. Una verdadera monjita -, dijo Cecilio.
 
-—Mejor me lo pones, Cécil. La drogan para que no chille ni dé por culo y se la ventilan. Con piononos, no es lo mismo Si acaso, se habría muerto más gorda de lo corriente -, dijo Marisol, y se volvió a reir. Cecilio corroboró que se seguía riendo mucho y por un momento quiso reirse con ella. No lo hizo porque tenía razón y no se le había ocurrido. En un crimen no se trata sólo de averiguar quién es cuplabel directo. También quién lo supo y no lo denunción, quién ayudó a que sucediera o incluso quién se deshizo del cadáver. Si averiguas primero quién es el asesino y se muestra hablador, genial. Pero a veces es quien le prestó el coche a un amigo que fue a comprar pan a la pandería donde iba el asesino quien proporciona el hilo del que se acaba sacando toda la historia. 
+—Mejor me lo pones, Cécil. La drogan para que no chille ni dé por culo y se la ventilan. Con piononos, no es lo mismo Si acaso, se habría muerto más gorda de lo corriente -, dijo Marisol, y se volvió a reír. Cecilio corroboró que se seguía riendo mucho y por un momento quiso reírse con ella. No lo hizo porque tenía razón y no se le había ocurrido. En un crimen no se trata sólo de averiguar quién es culpable directo. También quién lo supo y no lo denunció, quién ayudó a que sucediera o incluso quién se deshizo del cadáver. Si averiguas primero quién es el asesino y se muestra hablador, genial. Pero a veces es quien le prestó el coche a un amigo que fue a comprar pan a la panadería donde iba el asesino quien proporciona el hilo del que se acaba sacando toda la historia. 
 
 Cecilio no contestó. 
 
