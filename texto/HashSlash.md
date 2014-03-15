@@ -63,11 +63,16 @@ casi los mismos, con el doble de RTs.
 de Roble variara.
 
 —[Gynnsam](http://www.ikea.com/es/es/catalog/products/50134950/)-,
-dijo Roble, esforzándose en hacer una n lo suficientemente larga como para que pareciera el doble, mostrándole de nuevo la pantalla del móvil a
+dijo Roble, esforzándose en hacer una *n* lo suficientemente larga
+como para que pareciera el doble y mostrándole de nuevo la pantalla del
+móvil a 
 Cecilio, que lo cogió y se alzó las gafas, entornando a la vez un
 poco los ojos.
 
-—No, el mango es así como triangular, y no tiene las tachuelas -, dijo Cecilio. Se
+—No, el mango es así como triangular, y no tiene las tachuelas -, dijo
+Cecilio. 
+
+Se
 levantó con el móvil en la mano y fue a la habitación donde se encontraba el cadáver. Se oyó el
 chasquido de la aplicación al hacer una foto. Roble arrugó los labios y alzó
 las cejas.
