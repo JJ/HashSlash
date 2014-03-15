@@ -260,6 +260,12 @@ encontraba el cadáver. Los dos giraron la cabeza en esa
 dirección. Luego se miraron el uno al otro y finalmente siguieron uno
 escribiendo en el móvil y otro en el bloc.
 
+Huir tampoco es fácil
+---
+
+En realidad sí lo es. Y mancha mucho menos que cualquier
+cosa que uno haya hecho para necesitar embarcarse en tal huida.
+
 Durmiendo con un cadáver. Y luego despertando.
 ---
 
@@ -354,6 +360,35 @@ labios.
 que parecía no haber sido consciente hasta ese momento de que ella llevaba
 sólo una camiseta, miró hacia el sur y se ruborizó. Viejo verde. Joven
 inconsciente. Qué frío hacía, caray. 
+
+
+Consejos para una huida
+-----
+
+La gente piensa que lo más importante a la hora de huir es moverse muy
+rápidamente. No tienen ni idea. Lo más parecido a una huida que conocen es
+cuando han escapado de un ex cambiándose de acera.
+
+Lo más importante es no mearse. 
+
+Tener ganas de mear significa no poder estar centrado en el asunto entre manos
+para concentrarse en el asunto entre piernas. Significa que tienes que
+pararte. O significa que tienes que llevar un pañal.
+
+¿Qué pasa? La gente lleva pañal. Es un inconveniente, pero no tanto
+como mearse encima. Es la diferencia entre ser un hediondo y no
+serlo. 
+
+Pero lo mejor es no tener que hacérselo ni encima ni en el pañal.
+
+Ergo: nada de café. Nada de agua. Nada de colas ni bebidas energéticas
+ni diuréticos endulzados.
+
+—¿Desea tomar algo más?
+
+—Sí, un vasito de agua para después del café, si es tan amable.
+
+Porque ¿quién está  huyendo?. Yo no. Sólo soy un escritor.
 
 Café para dos
 -----
@@ -505,6 +540,36 @@ sus pulseras intercambiaran los datos de contacto; Roble dejó
 su mano entrelazada unos segundos más de lo estrictamente necesario. Tina no hizo ademán
 de soltarse. 
 
+Matar
+---
+
+—¿Haciendo sudokus? 
+
+No me gusta hablar con la gente. Corrijo. No me gusta hacer nada con
+la gente. Lo mío es hacerle *a* la gente. Pero a veces es inevitable
+que *la gente* te hable o te haga cosas.
+
+—No, escribiendo. 
+
+A veces contesto, si pienso que puedo darle una lección a alguien. Era
+un camarero joven, de mirada ilusa, que servilmente se esforzaba por
+satisfacer a la gente que pasaba por el café de carretera para nunca
+más volver. Del este, quizás. 
+
+—¿Escribe? ¿Novelas? - la *s*, un poco sibilante. - ¿Hay... ha publicado
+algo? 
+
+—Sí -, un sí para tres preguntas. Estaba empezando a cargarme. Me
+levanté para irme, dirigiéndome hacia la barra y dejándolo atrás.
+
+—Yo  escribo también. Y mataría por publicar. - dijo, suspirando y
+dejando de barrer por un momento.
+
+—A veces uno tiene que hacer lo que tiene que hacer -, le contesté.
+Sin mirarle. Dejé el dinero del café sobre la barra y me
+largué. Todavía me quedaba más de una hora para llegar al puerto y
+tomar el ferry.
+
 Fiambres y bocadillos
 ---
 
@@ -608,6 +673,34 @@ Quique había aprovechado para tirar unas cuantas fotos con el móvil.
 —Cuando me acuerde te la digo. Venga, puedes subir y echar unas
 fotos y cuando se le pase el berrinche te dejo cinco minutos con
 ella. Pero déjame a mi primero, hombre.
+
+Volver
+---
+
+Casa es donde dejas el sombrero, ¿no? 
+
+Pero nadie usa sombrero hoy en día,
+así que tampoco existen los hogares de verdad. Pero sí hay un sitio a
+donde retornar, donde tienes unas pantuflas y dónde hay un sillón que,
+a base de ser utilizado para sentarte, se ha adaptado perfectamente a
+los contornos de tus nalgas. Y viceversa.
+
+A veces, el sillón es una persona.
+
+Cuando llego al puerto de Algeciras, a veces se ve el país que llamo,
+por lo pronto, mi casa. A veces no. Hoy es de esos días. Hay
+nubarrones negros sobre el estrecho. De esos que los escritores suelen
+usar para reflejar un temperamento sombrío o un estado de ánimo
+tormentoso en los personajes. Pero sólo son nubes. Y yo me siento
+estupendamente. 
+
+De repente, un rayo de sol abre las nubes y crea una isla de luz muy
+cerca de mi coche, donde espero para subir al ferry.
+
+Es mentira. Sigue nublado. ¿Por qué diablos iba a salir un rayo de luz
+para nadie? Pero os he hecho creer que sí, ¿verdad? 
+
+Así somos los escritores.
 
 Asuntos propios
 ----
@@ -1192,6 +1285,26 @@ hacerlo. Ni de cometer errores gramaticales. Y faltas de ortografía.
 
 Realmente, era para matarla.
 
+## La página en blanco
+
+Cualquier escritor te hablará de ese momento angustioso en el que
+tienes que enfrentarte a una página y las teclas repelen las yemas de
+tus dedos como tu cerebro repele las ideas.
+
+Comenzar. Quizás no es problema de repulsión cerebral de ideas. Antes
+al contrario, las ideas se agolpan, se aglomeran, se enredan unas con
+otras, se pelean, pero, en una victoria pírrica, todas acaban vencidas
+y ninguna te arroja el artículo que seguido de un sustantivo y más
+adelante un verbo acabarían, de por sí, constituyendo una frase.
+
+Peor es recomenzar. Cuando, una vez terminado el trabajo, el editor, los
+primeros lectores, el querido y despreciado público, lo arrojan a la
+basura y hay que empezar de nuevo.
+
+La chica no ha muerto. No la he matado, corrijo. Volvemos al principio. 
+
+Y ahora es algo personal.
+
 ## En otro mundo
 
 Clases. Más clases. El alumno que, al final de la clase, se queda
@@ -1580,6 +1693,44 @@ cuando sus labios estaban todavía cerca de su oreja:
 
 —Nos veremos pronto. 
 
+## Los trabajos y los días
+
+En realidad, no soy escritor durante todas mis horas de vigilia. Nadie
+lo es. “¿Quieres usted escribir? Viva usted primero“, le dijo un
+periclitado escritor ruso a alguien que no pasó a la historia ni como
+escritor ni como vividor. Pero yo sí he seguido ese consejo. Vivo
+antes, durante y después de escribir. Y en vez de escribir, de hecho. 
+
+Por eso, en vista de la batida en retirada de Demelza la muerta
+putativa y la necesidad de replantear esa trama, me vuelvo a Larache,
+que es donde vivo una parte de esa vida. Toda la que puedo, de hecho. 
+
+Porque los escritores, en realidad, son gente aburrida que sólo sabe
+escribir sobre la escritura. Sus personajes son escritores que tienen
+problemas de escritores y fornican con otros escritores. Y todo esto
+sucede porque no hay gente como yo que les dice sobre qué tienen que
+escribir, les dan tres o cuatro directrices, personajes, escenas, que
+ellos interpretan y muchas veces reinterpretan y vuelven a
+reinterpretar cuando no lo hacen suficientemente bien. 
+
+¿Qué pasa? ¿Está mal? ¿Es que Gaudí puso todos los ladrillos de la
+Sagrada Familia? ¿Norman Foster acristaló ese supositorio gigante de
+la City de Londres? 
+
+Ese es, precisamente, el error de los escritores, de casi todos
+ellos. Mi propio error al principio, cuando era joven, acababa de
+salir de la cárcel y pensaba que había que escribir desde las tripas y
+desde el corazón. Iluso. Hay que escribir desde el bolsillo. Y Gastón,
+Mauro, Yadiel, Yarianis, Brígida, Salvador, todos esos chicos y chicas
+que escriben lo que yo les digo y se editan y corrigen unos a otros
+hasta que yo coloco esa piedra angular, esa coma o esa frase que da el
+toque final a todo el edificio, no se engañan. Escriben porque yo les
+pago. Y yo les pago porque La Editorial me paga a mi.
+
+Pero sólo si hay contrato. Que no habrá hasta que haya esa muerte. Que
+me está resultando más difícil que las anteriores. Escribir es
+sufrir. 
+
 ## Sexo
 
 Y bastante explícito. Tina le fue dando un sneak preview, incluyendo
@@ -1720,6 +1871,50 @@ Cabezada, tenía que ser cabezada. No, lomo. ¿O lomo y cabezada?
 
 Código bla bla bla artículo bla bla bla caso bla bla bla sentencia bla
 bla bla.
+
+
+## Escribir es sufrir
+
+Sufra usted primero, le dijo algún famoso escritor ruso a un no tan
+famoso escritor en ciernes. Cretino.
+
+Pero cierto. 
+
+Sufrir para volver a encontrar el tema, seguirlo, perseguirlo y,
+finalmente, atenazarlo y terminarlo. Pero el sufrimiento se exacerba
+si el tema te elude. Mucho más si se ha ido a Lituania. Allí es donde
+se ha ido la chica. Eso es lo que dice en su perfil en Facebook y sus
+tweets están geolocalizados por Vilna y alrededores. Cualquier día la
+vemos aparecer por Minsk. ¿Cómo puede haber llegado allí tan
+rápidamente? 
+
+Escribe, conocerás mundo. No lo dijo nadie, pero podía haberlo dicho
+Paul Theroux.
+
+Lituania está jodidamente lejos. Espera, eso es poco
+literario. Lituania está la hostia de lejos. 
+Tampoco es literario, pero es la pura verdad. Lo peor de los sitios
+que están lejos no es que lo estén. Sino que para llegar a ellos hay
+que pasar forzosamente por alguna etapa en la que hay una línea de
+bajo coste. O pagar varios miles de euros.
+
+Sin contrato editorial y con prisa. Vámonos a Lituania.
+
+Aunque los grandes escritores también lo son porque tienen grandes
+escritores a su
+sombra. [Escritores fantasma](http://es.wikipedia.org/wiki/Escritor_fantasma),
+los llaman. Ya los usaba para escribir las novelas que se publicaban
+bajo su nombre. ¿Por qué no usarlo para esto, esta obra literaria
+escrita sobre el papel en blanco de la realidad y con sangre? Lituania
+y asesinos a sueldo, si es que prácticamente una idea llevaba a la
+otra. 
+
+Envió desde el móvil un mensaje a sus contactos en México y Filipinas
+pidiéndoles nombres, “para documentación“. A los pocos minutos tenía
+los teléfonos de un par de ellos en Lituania. Y otros dos en
+Birmania. Nunca se sabía cuando podía venir bien un asesino a sueldo
+en Birmania.
+
 
 ## El vecino
 
@@ -2141,6 +2336,42 @@ para sí.
 
 —Significa que ya tenemos al asesino.
 
+## Tradiciones acendradas
+
+Tengo un gran respeto por el gremio de los asesinos. Tradicionalmente,
+nos han inspirado a nuestro gremio, el de los escritores y, con ello,
+proporcionado un flujo de caja saneado. El gremio de los escritores,
+si no fuera por el gremio de los asesinos, tendría que convertirse, él
+mismo, en asesino. Ja ja. Eso ha tenido gracia. 
+
+Pero ese respeto por el gremio no se tiene, necesariamente, que
+trasladar individualmente a todos y cada uno de sus
+componentes. Vengan con referencias o no, los asesinos son
+avariciosos, descuidados y poco profesionales. A veces, de lo primero
+se deducía lo segundo y también lo tercero. O de lo primero lo segundo
+y lo tercero. Por eso me enervó que el primer contacto lo quisieran
+hacer en un número fijo de lo más corriente que una búsqueda en
+Internet me encontró en unos minutos. 
+
+Volví a contactar con los que me los habían recomendado y me
+aseguraron que eran buenos en lo que hacían y, sobre todo,
+discretos. No hay cualidad más encomiable que la discreción. Por eso
+finalmente me avine a llamar, usando la frase que me habían indicado,
+“¿Puedo hablar con Billy el Báltico Balístico?“. En ruso, claro. Sí,
+hablo ruso. Lo aprendí para poder leer a Tolstoi en su versión
+original. Es lo que todo escritor debe hacer.
+
+Es mentira. Lo aprendí para que me poder acceder a contratos de los servicios de seguridad rusos en mi fase de mercenario.  Mercenario profesional.
+
+Y eso sí es verdad. Fui mercenario, sí. “¿Quiere usted escribir? Viva
+usted primero“, ¿no os lo he dicho antes? ¿Es que no leéis? No, no
+debéis leer mucho, porque si no no compraríais la bazofia que me
+escriben mis amanuenses fantasmas y residentes en países
+hispanohablantes. 
+
+¿Que por qué no escribo sobre mis hazañas mercenarias? Sí, a ti te las
+voy a contar, gilipollas.
+
 ## Kevin, el asesino
 
 —¿Quién es el asesino? ¿El Kevin? - preguntó, Cecilio.
@@ -2183,6 +2414,38 @@ siguió. Aunque cuando vieron desde la sala contigua a la de
 interrogatorios al detenido, preguntó al agente
 
 —¿Quién es ese tío?
+
+## Leyendo
+
+Uno de los aspectos desagradables de ser escritor es la cantidad de
+bazofia que tiene uno la obligación de leer. No me refiero a lo que escriben mis
+dilectos colegas. No es que no sea bazofia, es que no tiene uno
+ninguna obligación de leerlo. Si acaso, para adoptar y adaptar alguna
+idea que parezca interesante y que ellos hayan sido incapaces de
+desarrollar en toda sus posibilidades. 
+
+No, me refiero en general a lo que uno quiere que aparezca con su
+nombre. El flujo de trabajo hace que la escritura de mis novelas funciona como una factoría de ficción. Qué
+bien suena eso. Todo parte del impulso creador del autor, de mi. El
+*auteur*, uno no se siente autor, escritor, hasta que no lo han
+llamado de esa forma en francés. O 著 en japonés. ¿Que cómo se
+pronuncia? Lo acabo de hacer.
+
+Esquema general de la trama, personajes, ritmo, tono,
+ambientación... esas son las claves de una novela. Luego, se le envía
+a unos cuantos escritores fantasmas. Tacha escritores. Producefrases fantasmas. Porque
+o son escritores. No son *auteurs*. El *auteur* soy yo. Y ellos me
+mandan una propuesta, unos cuantos capítulos. Cada uno una versión
+diferente. Luego, vuelve a ellos, pero ninguno recibe su propia
+versión para editar y ampliar. Y al final de todo el camino, antes del
+The End y de la firma del contrato que se me está escapando por
+momento si no hago lo que tengo que hacer, reviso, pulo. 
+
+Cuando recibo las primeras regalías pago. Siempre pago, siempre
+tarde. Para escribir hay que sufrir. 
+
+Así que a sufrir leyendo las frases producidas por los
+producefrases. Más tarde tengo una llamada a Lituania. 
 
 ## Preguntas frecuentemente preguntadas
 
@@ -2386,6 +2649,23 @@ bueno, nuestra queli, pero yo enfrente.
 
 Pero vi al vampiro. El vampiro se la cargó. Fue un vampiro. No fui
 yo. 
+
+## Profesional
+
+No soy un avaro. Me gusta pagar a los profesionales por lo que hacen, sobre todo si yo no soy capaz de hacerlo. O, simplemente, no me apetece. Pero no soporto a la gente poco profesional. 
+
+Todo esto os puede parecer un arenque rojo. El cĺásico arenque que se le da al lector para despistarlo y apartarlo del final último. La ejecución. El objetivo. 
+
+¿Sabéis qué? A mi también. Porque la primera vez que llamé al teléfono me contestaron en lo que debía ser lituano y, cuando les pregunté por el tal Billy, me colgaron inmediatamente. Un arenque rojo debió coger el teléfono. Para apartarme del fin que quería conseguir. Los profesionales. Que quizás no lo eran tanto, si dejaban que cogiera el teléfono uno cualquiera.
+
+Pero hay que dar una segunda oportunidad. Hasta una tercera, si los hados te sonríen. A la segunda Billy el Báltico Balístico me contestó con el convenido "Nyet, pero sé por dónde pasea a su perro". Elegante, el detalle del can. A partir de ahí había que acercar el móvil al aparato para que transmitieran la información de contacto, claves de cifrado, horas de disponibilidad, como un chirrido que, como cuando los hace un grillo, tiene más información de la que uno pueda sospechar. Un detalle profesional, el del chirrido. 
+
+Nada de arenque rojo, pues. Directos al objetivo. Un paquete cifrado con fotos y coordenadas últimas. Y el dinero, claro. En una cuenta en las Caimán. Otro animal que, en estos ambientes, denota profesionalidad. Yo mismo lo uso. 
+
+Vuelta a mis galeradas. Vuelta a la escritura. Vuelta a vivir. Sólo me
+hacía falta que me proporcionaran un final para cerrar ese libro, el
+de "Demelza morirá porque a mis editores les molesta". 
+
 
 ## Esperando el turno
 
@@ -3674,6 +3954,100 @@ personas. Algunas personas habían escuchado un disparo, otras siete y
 otras ninguno. Para algunos Julia calló al suelo tras la primera
 campanada, para otras después de la séptima. Muchos pensaron que era
 parte de la narración. Pero no lo era. El cuento, verdaderamente, se había acabado para Julia.  
+
+## Encontrando el camino
+
+La labor de un escritor es hacer que sus personajes encuentren su
+propio camino en el mundo que ha creado para ellos. Ese es el
+problema. Estos lituanos tenían ya el mundo creado y han sido
+incapaces de encontrar el camino que los lleve a una chica española,
+con pinta de chica española, que habla español y que va dejando todo
+tipo de pistas de por dónde anda por Vilna y las excursiones que hace
+a Riga e incluso cuando se acercó a Kiev a hacer a saber qué.  
+
+"Que no la encontramos, jefe", insisten, mientras simultáneamente piden dinero, más dinero, siempre dinero. Dinero que no tengo y que no tendré si no consigo el contrato. Porque uno escribe para que le quieran, pero yo no escribo, lo hacen por mi mis Ivanes y Alexis y Yaivan allende el Atlántico y además, lo hago por el dinero. Y la fama. Y el dinero. Para hacer una gran novela, hace falta una gran muerte.
+
+Y estos lituanos son incapaces de proporcionármela. Lo tendré que hacer yo solo.
+
+Y volando en bajo coste. 
+
+
+## Volando voy, volando vengo
+
+Hay personas en el mundo cuyo único propósito en la vida parece ser banalizar todo lo que pueda tener glamour u ofrecer algo de lujo a las grises y uniformes vidas de los mortales. Crear diamantes en una fábrica, en vez de en las entrañas de la Tierra. Cruceros con bufé libre, en vez del oropel de las comidas a mesa y mantel con el capitán y los hundimientos por colisión con iceberg. 
+
+Y volar. 
+
+Volar puede ser lujoso, cómodo, una experiencia guardada en los
+anaqueles de ese sitio feliz al que uno va cuando su entorno o
+circunstancias se lo aconsejan. Pues el señor Ryan, el señor Easy y
+algunos otros señores se han dedicado a extraer de ellos cualquier
+brizna de comodidad, de tranquilidad. 
+
+De pudor.
+
+El viaje a Lituania pasaba por muchos países que no conocía y que
+nunca, si las circunstancias hubieran sido otras, habría querido
+visitar. Me ofrecía cierto consuelo el hecho que, de ese país, iba a
+conocer sólo el hecho de que los guardias de fronteras, si es que
+todavía tenían, usaran gorras perfectamente circulares u
+ovoides. Algunos países lo más que pueden ofrecerte es una estancia
+breve y aislada en un aeropuerto breve y aislado de los que suele
+frecuentar Ryanair.
+
+Cuando los frecuenta, claro, y no cancela sin ningún pudor el vuelo
+alegando escasez de pasaje. Cosa, por otro lado, totalmente
+natural. ¿Quién va a querer volar al lago Balatón en pleno mes de
+enero? Uno se lo imagina azotado por las ventiscas, con el esqueleto grisáceo
+de un navío gangrenado deshaciéndose en sus orillas, y sombras
+oscilantes que, en la distancia, pueden ser icebergs o algún
+francotirador soviético buscando capitalistas que matar por desconocer
+que la guerra fría terminó, empezó y al parecer terminó de nuevo.
+
+Impúdico es volar allí, impúdico es impedir hacerlo. "Le devolvemos el
+dinero". Me dijeron. "Lo verá en su tarjeta de crédito el mes que
+viene". 
+
+Lo que me dejaba aún con menos dinero. No es que me quedara poco. Es
+que, eventualmente, el retorno de inversión y las molestias
+ocasionadas por este trabajo literario podían ser demasiado escasas
+para seguir con él. 
+
+Pero todavía no habíamos llegado a ese punto. Así que me dirigí a la
+agencia de viajes que siempre suele haber, o solía haber, en los
+aeropuertos para evitar a gente que valora su tiempo y su salud, como yo,
+deterioro de la vista por el uso de aparatos electrónicos y paseos
+diversos por mostradores que sólo son capaces de ofrecer, como en los
+grandes almacenes, lo que está a la vista.
+
+"Puede ir en tren a París. Desde allí toma un vuelo hacia su
+destino". Le pregunté cuanto se tardaba, y me dijo que unas 12 horas,
+incluyendo el transbordo en Barcelona.Eso me situaba, como muy pronto,
+al día siguiente por la mañana en Lituania. Ya había pasado una
+quincena y un día más... un día más era un día más. Tenía que llegar
+hoy, esta tarde.
+
+"Puede intentarlo por Mallorca. De ahí, a Alemania hay decenas de
+vuelo diarios y a partir de ahí llega fácilmente a Lituania" Me dijo,
+exponiéndome una verdadera *blitzkrieg* turística,
+contenta de poder ser útil y de que hubiera alguien que la sacara de
+su tedio y le encargara un verdadero reto. "Es más barato que por
+París, además". Mencionada la palabra mágica, cerramos el trato aunque
+pareció algo renuente de que le pagara toda la cantidad en metálico. Y
+que no cerrara también el billete de vuelta. "Quién sabe lo que puedo
+tardar allí. Es un negocio complicado" Cuando existía el glamour, se
+podían sacar billetes con vuelta abierta. Alguien se lo había cargado
+junto con la posibilidad de elegir asiento y de recibir unos
+cacahuetes rancios, pero útiles para iniciar conversación con el
+compañero de asiento. Ya nadie habla. Porque no dan cacahuetes. Todo
+el mundo vuela como si fuera un trámite que hay que pasar, como el
+acné de la adolescencia que es el tránsito hacia la flor de la
+juventud. Y todo es culpa del señor Ryan y el señor Easy. Pronto
+descubriría que el señor Berlín también tenía culpa. Y mucha. 
+
+Salí de la agencia con tarjetas de embarque que me colocaban, o
+colocarían, o podían colocarme, más cerca de Demelza. Y a la tal
+Demelza, más cerca de su destino final. 
 
 ## Agradecimientos
 
