@@ -144,7 +144,7 @@ cosa de Ikea es?
   [Klingsbo](http://www.ikea.com/es/es/catalog/products/90128565/) -,
   dijo en voz alta. 
   
-  — ¿Y el resto? Espera, no me lo digas. Rebotados desde el piso de
+  —¿Y el resto? Espera, no me lo digas. Rebotados desde el piso de
   Almuñécar... - Roble no contestó. Su móvil seguía emitiendo sonidos
   y él seguía tecleando. - No hay app - dijo aaahhh - para eso,
   ¿verdad? 
@@ -153,9 +153,9 @@ Cecilio se rió de su propia gracia. Roble volvió al móvil, que acababa
 de emitir el tono que indicaba, de nuevo, que había llegado un
 mensaje.  
   
- — Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Cecilio. 
+ —Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Cecilio. 
  
- — ¿Y por qué no las echas tú con tu polla? - le contestó Cecilio,
+ —¿Y por qué no las echas tú con tu polla? - le contestó Cecilio,
  socarrón,  extendiendo la mano para recibir el
  móvil. Roble también sonrió, asumiendo la respuesta como parte de esa seña de
  identidad llamada *malafollá granaína* que todavía, después de dos
@@ -284,6 +284,13 @@ encontraba el cadáver. Los dos giraron la cabeza en esa
 dirección. Luego se miraron el uno al otro y finalmente siguieron uno
 escribiendo en el móvil y otro en el bloc.
 
+Huir tampoco es fácil
+---
+{: .writer}
+
+En realidad sí lo es. Y mancha mucho menos que cualquier
+cosa que uno haya hecho para necesitar embarcarse en tal huida.
+
 Durmiendo con un cadáver. Y luego despertando.
 ---
 
@@ -378,6 +385,35 @@ labios.
 que parecía no haber sido consciente hasta ese momento de que ella llevaba
 sólo una camiseta, miró hacia el sur y se ruborizó. Viejo verde. Joven
 inconsciente. Qué frío hacía, caray. 
+
+
+Consejos para una huida
+-----
+
+La gente piensa que lo más importante a la hora de huir es moverse muy
+rápidamente. No tienen ni idea. Lo más parecido a una huida que conocen es
+cuando han escapado de un ex cambiándose de acera.
+
+Lo más importante es no mearse. 
+
+Tener ganas de mear significa no poder estar centrado en el asunto entre manos
+para concentrarse en el asunto entre piernas. Significa que tienes que
+pararte. O significa que tienes que llevar un pañal.
+
+¿Qué pasa? La gente lleva pañal. Es un inconveniente, pero no tanto
+como mearse encima. Es la diferencia entre ser un hediondo y no
+serlo. 
+
+Pero lo mejor es no tener que hacérselo ni encima ni en el pañal.
+
+Ergo: nada de café. Nada de agua. Nada de colas ni bebidas energéticas
+ni diuréticos endulzados.
+
+—¿Desea tomar algo más?
+
+—Sí, un vasito de agua para después del café, si es tan amable.
+
+Porque ¿quién está  huyendo?. Yo no. Sólo soy un escritor.
 
 Café para dos
 -----
@@ -529,6 +565,37 @@ sus pulseras intercambiaran los datos de contacto; Roble dejó
 su mano entrelazada unos segundos más de lo estrictamente necesario. Tina no hizo ademán
 de soltarse. 
 
+Matar
+---
+
+—¿Haciendo sudokus? -, me pregunta un camarero en un área de servicio de la
+autovía, a la altura de Marbella. 
+
+No me gusta hablar con la gente. Corrijo. No me gusta hacer nada con
+la gente. Lo mío es hacerle *a* la gente. Pero a veces es inevitable
+que *la gente* te hable o te haga cosas.
+
+—No, escribiendo. 
+
+A veces contesto, si pienso que puedo darle una lección a alguien. Era
+un camarero joven, de mirada ilusa, que servilmente se esforzaba por
+satisfacer a la gente que pasaba por el café de carretera para nunca
+más volver. Del este, quizás. 
+
+—¿Escribe? ¿Novelas? - la *s*, un poco sibilante. - ¿Hay... ha publicado
+algo? 
+
+—Sí -, un sí para tres preguntas. Estaba empezando a cargarme. Me
+levanté para irme, dirigiéndome hacia la barra y dejándolo atrás.
+
+—Yo  escribo también. Y mataría por publicar -, dijo, suspirando y
+dejando de barrer por un momento.
+
+—A veces uno tiene que hacer lo que tiene que hacer -, le contesté.
+Sin mirarle. Dejé el dinero del café sobre la barra y me
+largué. Todavía me quedaba más de una hora para llegar al puerto de Algeciras y
+tomar el ferry a Marruecos.
+
 Fiambres y bocadillos
 ---
 
@@ -632,6 +699,35 @@ Quique había aprovechado para tirar unas cuantas fotos con el móvil.
 —Cuando me acuerde te la digo. Venga, puedes subir y echar unas
 fotos y cuando se le pase el berrinche te dejo cinco minutos con
 ella. Pero déjame a mi primero, hombre.
+
+Volver
+---
+
+El hogar es donde dejas el sombrero, ¿no? 
+
+Pero nadie usa sombrero hoy en día,
+así que tampoco existen los hogares de verdad. Pero sí hay un sitio a
+donde retornar, donde tienes unas pantuflas y dónde hay un sillón que,
+a base de ser utilizado para sentarte, se ha adaptado perfectamente a
+los contornos de tus nalgas. Y viceversa.
+
+A veces, el sillón es una persona.
+
+Cuando llego al puerto de Algeciras, a veces se ve el país que llamo,
+por lo pronto, mi hogar. A veces no. Hoy es de esos días. Hay
+nubarrones negros sobre el estrecho. De esos que los escritores suelen
+usar para reflejar un temperamento sombrío o un estado de ánimo
+tormentoso en los personajes. Pero sólo son nubes. Y yo me siento
+estupendamente. Por, ya saben. La misión cumplida y eso. 
+
+De repente, un rayo de sol abre las nubes y crea una isla de luz muy
+cerca de mi coche, dentro del que espero que la cola avance para
+introducirlo en las fauces del paquebote. 
+
+Es mentira. Sigue nublado. ¿Por qué diablos iba a salir un rayo de luz
+para nadie? Pero os he hecho creer que sí, ¿verdad? 
+
+Así somos los escritores.
 
 Asuntos propios
 ----
@@ -841,8 +937,6 @@ reconocimiento de voz de Roble ya había asociado la
 voz a un *podcast* aparecido en algún sitio, lo que le dio también un
 nombre y todas las demás coordenadas. El nick que usaba era Vicente
 Asterisco. 
-
-*Revisar* 
 
 —Además, lo mejor de los libros es que, en realidad, la gente *no los lee*, ¿te das
 cuenta? Satisfacen su necesidad inmediata de adquirir algo, por poco
@@ -1127,6 +1221,24 @@ Iba por la mitad de la cuesta cuando su pulsera vibró y en ella
 apareció un mensaje informándole de que se había encontrado una conexión
 entre las dos muertas. La real y la putativa. 
 
+<h2>#FAIL</h2>
+
+Los escritores debemos tener nuestras herramientas dispuestas. Como los cazadores, vigilamos un tema, colocamos trampas, circulamos alrededor del mismo, inquirimos, cavamos.
+
+Todo eso son metáforas. Pero a los escritores nos gustan las metáforas.
+
+En realidad, usamos alertas de Google, avisos de Twitter, seguimos por Facebook. A mi me gusta llevar también libreta: cuando algo sucede, móvil en mano, boli en la otra, apunto, resumo, esquematizo.
+
+Todo eso no son metáforas.
+
+En medio del mar, que todavía no era bravío y no parecía tener la intención de serlo, a pesar de los nubarrones, vibró brevemente el reloj. Alguna trampa había saltado, algo le había sucedido en torno a mi tema. Tema que se había quedado cerrado en Granada. Que debía de haberse quedado cerrado en Granada.
+
+Estalla un trueno en la lontananza, cae un rayo, el mar se encrespa.
+
+Un par de palabras en un tweet de @demechza: “Sigo viva”.
+
+El MF Zabaleta continúa su travesía hacia Tánger. Mi mente vuelve y mi cuerpo también lo hará en cuanto que pueda.
+
 ## Interludios y preludios
 
 Volviendo a su casa en Huétor Vega, en la periferia granadina, Cecilio
@@ -1216,6 +1328,26 @@ hacerlo. Ni de cometer errores gramaticales. Y faltas de ortografía.
 
 Realmente, era para matarla.
 
+## La página en blanco
+
+Cualquier escritor te hablará de ese momento angustioso en el que
+tienes que enfrentarte a una página y las teclas repelen las yemas de
+tus dedos como tu cerebro repele las ideas.
+
+Comenzar. Quizás no es problema de repulsión cerebral de ideas. Antes
+al contrario, las ideas se agolpan, se aglomeran, se enredan unas con
+otras, se pelean, pero, en una victoria pírrica, todas acaban vencidas
+y ninguna te arroja el artículo que seguido de un sustantivo y más
+adelante un verbo acabarían, de por sí, constituyendo una frase.
+
+Peor es recomenzar. Cuando, una vez terminado el trabajo, el editor, los
+primeros lectores, el querido y despreciado público, lo arrojan a la
+basura y hay que empezar de nuevo.
+
+La chica no ha muerto. No la he matado, corrijo. Volvemos al principio. 
+
+Y ahora es algo personal.
+
 ## En otro mundo
 
 Clases. Más clases. El alumno que, al final de la clase, se queda
@@ -1287,7 +1419,9 @@ publicarla antes de final de mes. Si no mantenías un ritmo de
 publicación continuo los lectores te acababan abandonando. Y él no
 quería que eso sucediera. Pero Tina le volvió a mandar un mensaje.
 
-“Y yo sola en el [Jaraiz](http://detapeoporgranada.blogspot.com.es/2010/04/jaraiz-editado.html)“ Era un bar del Realejo, no demasiado lejos de
+“Y yo sola en el
+[Jaraiz](http://detapeoporgranada.blogspot.com.es/2010/04/jaraiz-editado.html)“,
+le envió Tina en un mensaje. Era un bar del Realejo, no demasiado lejos de
 la comisaría; Roble lo conocía bien. “Tú verás.“
 
 El colocar la decisión en sus manos indicaba una ventana temporal que
@@ -1604,6 +1738,45 @@ cuando sus labios estaban todavía cerca de su oreja:
 
 —Nos veremos pronto. 
 
+## Los trabajos y los días
+
+En realidad, no soy escritor durante todas mis horas de vigilia. Nadie
+lo es. “¿Quiere usted escribir? Viva usted primero“, le dijo un
+periclitado escritor ruso a alguien que no pasó a la historia ni como
+escritor ni como vividor. Pero yo sí he seguido ese consejo. He vivido
+antes, vivo durante y viviré después de escribir. Y en vez de escribir, de hecho. 
+
+Por eso, en vista de la batida en retirada de Demelza la muerta
+putativa y la necesidad de replantear esa trama, me vuelvo a Larache,
+que es donde vivo una parte de esa vida. Toda la que puedo, de hecho. 
+
+Porque los escritores, en realidad, son gente aburrida que sólo sabe
+escribir sobre la escritura. Sus personajes son escritores que tienen
+problemas de escritores y fornican con otros escritores. Y todo esto
+sucede porque no hay gente como yo que les dice sobre qué tienen que
+escribir, les dan una cantidad precisa de directrices, les diseñan
+personajes personajes, les delinean escenas que
+ellos interpretan y muchas veces reinterpretan y vuelven a
+reinterpretar cuando no lo hacen suficientemente bien. 
+
+¿Qué pasa? ¿Está mal? ¿Es que Gaudí puso todos los ladrillos de la
+Sagrada Familia? ¿Norman Foster acristaló ese supositorio gigante de
+la City de Londres? 
+
+Ese es, precisamente, el error de los escritores, de casi todos
+ellos, de los otros escritores. Mi propio error al principio, cuando era joven, acababa de
+salir de la cárcel y pensaba que había que escribir desde las tripas y
+desde el corazón. Iluso. Hay que escribir desde el bolsillo. Y Gastón,
+Mauro, Yadiel, Yarianis, Brígida, Salvador, todos esos chicos y chicas
+que escriben lo que yo les digo y se editan y corrigen unos a otros
+hasta que yo coloco esa piedra angular, esa coma o esa frase que da el
+toque final a todo el edificio, no se engañan. Escriben porque yo les
+pago. Y yo les pago porque La Editorial me paga a mi.
+
+Pero sólo si hay contrato. Y no habrá uno nuevo hasta que se produzca esa muerte. Que
+me está resultando más difícil que las anteriores. Escribir es
+sufrir. 
+
 ## Sexo
 
 Y bastante explícito. Tina le fue dando un sneak preview, incluyendo
@@ -1718,7 +1891,7 @@ interjección granadina. Afú y doble afú con los amigos del novio de
 Demelza y la Demelza propiamente dicha. Fue inmediatamente a su móvil
 en la mesita de noche y empezó a actualizar todo lo que pudiera.
 
-—Nos veremos pronto. - oyó que decía según salía. 
+—Nos veremos pronto -, oyó que decía según salía. 
 
 ## Agradecimientos
 
