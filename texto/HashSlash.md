@@ -3198,7 +3198,7 @@ ella.
 
 —Pero ¿qué diablos pasa? - dijo Demelza, bajando la voz a la segunda
 sílaba de “diablos“, cayendo en la cuenta de que igual no era la forma
-más adecuanda de dirigirse a un agente de la ley; miró a Roble cuando
+más adecuada de dirigirse a un agente de la ley; miró a Roble cuando
 acabó de decirlo y éste le hizo un gesto.
 
 Los municipales no contestaron inmediatamente. Se llevaron el
