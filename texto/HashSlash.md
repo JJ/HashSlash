@@ -913,8 +913,6 @@ voz a un *podcast* aparecido en algún sitio, lo que le dio también un
 nombre y todas las demás coordenadas. El nick que usaba era Vicente
 Asterisco. 
 
-*Revisar* 
-
 —Además, lo mejor de los libros es que, en realidad, la gente *no los lee*, ¿te das
 cuenta? Satisfacen su necesidad inmediata de adquirir algo, por poco
 dinero, o de poseerlo para poder vanagloriarse de ello en las redes
@@ -1197,6 +1195,24 @@ el viaje hacia su casa, acompañando en su salida a Puri y al secretario.
 Iba por la mitad de la cuesta cuando su pulsera vibró y en ella
 apareció un mensaje informándole de que se había encontrado una conexión
 entre las dos muertas. La real y la putativa. 
+
+<h2>#FAIL</h2>
+
+Los escritores debemos tener nuestras herramientas dispuestas. Como los cazadores, vigilamos un tema, colocamos trampas, circulamos alrededor del mismo, inquirimos, cavamos.
+
+Todo eso son metáforas. Pero a los escritores nos gustan las metáforas.
+
+En realidad, usamos alertas de Google, avisos de Twitter, seguimos por Facebook. A mi me gusta llevar también libreta: cuando algo sucede, móvil en mano, boli en la otra, apunto, resumo, esquematizo.
+
+Todo eso no son metáforas.
+
+En medio del mar, que todavía no era bravío y no parecía tener la intención de serlo, a pesar de los nubarrones, vibró brevemente el reloj. Alguna trampa había saltado, algo le había sucedido en torno a mi tema. Tema que se había quedado cerrado en Granada. Que debía de haberse quedado cerrado en Granada.
+
+Estalla un trueno en la lontananza, cae un rayo, el mar se encrespa.
+
+Un par de palabras en un tweet de @demechza: “Sigo viva”.
+
+El MF Zabaleta continúa su travesía hacia Tánger. Mi mente vuelve y mi cuerpo también lo hará en cuanto que pueda.
 
 ## Interludios y preludios
 
@@ -1698,10 +1714,10 @@ cuando sus labios estaban todavía cerca de su oreja:
 ## Los trabajos y los días
 
 En realidad, no soy escritor durante todas mis horas de vigilia. Nadie
-lo es. “¿Quieres usted escribir? Viva usted primero“, le dijo un
+lo es. “¿Quiere usted escribir? Viva usted primero“, le dijo un
 periclitado escritor ruso a alguien que no pasó a la historia ni como
-escritor ni como vividor. Pero yo sí he seguido ese consejo. Vivo
-antes, durante y después de escribir. Y en vez de escribir, de hecho. 
+escritor ni como vividor. Pero yo sí he seguido ese consejo. He vivido
+antes, vivo durante y viviré después de escribir. Y en vez de escribir, de hecho. 
 
 Por eso, en vista de la batida en retirada de Demelza la muerta
 putativa y la necesidad de replantear esa trama, me vuelvo a Larache,
@@ -1711,7 +1727,8 @@ Porque los escritores, en realidad, son gente aburrida que sólo sabe
 escribir sobre la escritura. Sus personajes son escritores que tienen
 problemas de escritores y fornican con otros escritores. Y todo esto
 sucede porque no hay gente como yo que les dice sobre qué tienen que
-escribir, les dan tres o cuatro directrices, personajes, escenas, que
+escribir, les dan una cantidad precisa de directrices, les diseñan
+personajes personajes, les delinean escenas que
 ellos interpretan y muchas veces reinterpretan y vuelven a
 reinterpretar cuando no lo hacen suficientemente bien. 
 
@@ -1720,7 +1737,7 @@ Sagrada Familia? ¿Norman Foster acristaló ese supositorio gigante de
 la City de Londres? 
 
 Ese es, precisamente, el error de los escritores, de casi todos
-ellos. Mi propio error al principio, cuando era joven, acababa de
+ellos, de los otros escritores. Mi propio error al principio, cuando era joven, acababa de
 salir de la cárcel y pensaba que había que escribir desde las tripas y
 desde el corazón. Iluso. Hay que escribir desde el bolsillo. Y Gastón,
 Mauro, Yadiel, Yarianis, Brígida, Salvador, todos esos chicos y chicas
@@ -1729,7 +1746,7 @@ hasta que yo coloco esa piedra angular, esa coma o esa frase que da el
 toque final a todo el edificio, no se engañan. Escriben porque yo les
 pago. Y yo les pago porque La Editorial me paga a mi.
 
-Pero sólo si hay contrato. Que no habrá hasta que haya esa muerte. Que
+Pero sólo si hay contrato. Y no habrá uno nuevo hasta que se produzca esa muerte. Que
 me está resultando más difícil que las anteriores. Escribir es
 sufrir. 
 
@@ -1878,9 +1895,13 @@ bla bla.
 ## Escribir es sufrir
 
 Sufra usted primero, le dijo algún famoso escritor ruso a un no tan
-famoso escritor en ciernes. Cretino.
+famoso escritor en ciernes. Es posible que fuera un escritor
+diferente. O el mismo. O es posible que nadie entendiera lo que dijo
+el escritor en cuestión y lo interpretaran como que había dicho
+escribir, o sufrir, o ninguna de las dos cosas. Dijera lo que dijera,
+el escritor era un cretino.
 
-Pero cierto. 
+Pero dijo la verdad. 
 
 Sufrir para volver a encontrar el tema, seguirlo, perseguirlo y,
 finalmente, atenazarlo y terminarlo. Pero el sufrimiento se exacerba
@@ -1891,7 +1912,9 @@ vemos aparecer por Minsk. ¿Cómo puede haber llegado allí tan
 rápidamente? 
 
 Escribe, conocerás mundo. No lo dijo nadie, pero podía haberlo dicho
-Paul Theroux.
+Paul Theroux. Que sí dijo que no había visto pasar ningún tren al que
+no deseara subirse. También era un cretino. A este tren no me quiero
+subir. 
 
 Lituania está jodidamente lejos. Espera, eso es poco
 literario. Lituania está la hostia de lejos. 
@@ -1906,17 +1929,16 @@ Aunque los grandes escritores también lo son porque tienen grandes
 escritores a su
 sombra. [Escritores fantasma](http://es.wikipedia.org/wiki/Escritor_fantasma),
 los llaman. Ya los usaba para escribir las novelas que se publicaban
-bajo su nombre. ¿Por qué no usarlo para esto, esta obra literaria
+bajo mi nombre. ¿Por qué no usarlo para esto, esta obra literaria
 escrita sobre el papel en blanco de la realidad y con sangre? Lituania
 y asesinos a sueldo, si es que prácticamente una idea llevaba a la
 otra. 
 
-Envió desde el móvil un mensaje a sus contactos en México y Filipinas
-pidiéndoles nombres, “para documentación“. A los pocos minutos tenía
+Les  envié desde el móvil un mensaje a mis contactos en México y Filipinas
+pidiéndoles nombres de profesionales de ese gremio, “para documentación“. A los pocos minutos tenía
 los teléfonos de un par de ellos en Lituania. Y otros dos en
 Birmania. Nunca se sabía cuando podía venir bien un asesino a sueldo
 en Birmania.
-
 
 ## El vecino
 
