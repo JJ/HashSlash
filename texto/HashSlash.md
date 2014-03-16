@@ -2680,7 +2680,7 @@ yo.
 
 No soy un avaro. Cómo puedo haber escrito eso. Nadie es avaro. Ni
 siquiera, hoy en día,
-[ávaro](https://es.wikipedia.org/wiki/%C3%81varos). Corrigo. No soy avaro.
+[ávaro](https://es.wikipedia.org/wiki/%C3%81varos). Corrijo. No soy avaro.
 Me gusta pagar a los profesionales por lo que hacen, sobre todo si yo no soy capaz de hacerlo. O, simplemente, no me apetece. Pero no soporto a la gente poco profesional. 
 
 Todo esto os puede parecer un arenque rojo. El cĺásico arenque que se le da al lector para despistarlo y apartarlo del final último. La ejecución. El objetivo. 
