@@ -262,6 +262,7 @@ escribiendo en el móvil y otro en el bloc.
 
 Huir tampoco es fácil
 ---
+{: .writer}
 
 En realidad sí lo es. Y mancha mucho menos que cualquier
 cosa que uno haya hecho para necesitar embarcarse en tal huida.
