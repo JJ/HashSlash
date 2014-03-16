@@ -120,7 +120,7 @@ cosa de Ikea es?
   [Klingsbo](http://www.ikea.com/es/es/catalog/products/90128565/) -,
   dijo en voz alta. 
   
-  — ¿Y el resto? Espera, no me lo digas. Rebotados desde el piso de
+  —¿Y el resto? Espera, no me lo digas. Rebotados desde el piso de
   Almuñécar... - Roble no contestó. Su móvil seguía emitiendo sonidos
   y él seguía tecleando. - No hay app - dijo aaahhh - para eso,
   ¿verdad? 
@@ -129,9 +129,9 @@ Cecilio se rió de su propia gracia. Roble volvió al móvil, que acababa
 de emitir el tono que indicaba, de nuevo, que había llegado un
 mensaje.  
   
- — Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Cecilio. 
+ —Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Cecilio. 
  
- — ¿Y por qué no las echas tú con tu polla? - le contestó Cecilio,
+ —¿Y por qué no las echas tú con tu polla? - le contestó Cecilio,
  socarrón,  extendiendo la mano para recibir el
  móvil. Roble también sonrió, asumiendo la respuesta como parte de esa seña de
  identidad llamada *malafollá granaína* que todavía, después de dos
@@ -818,8 +818,6 @@ voz a un *podcast* aparecido en algún sitio, lo que le dio también un
 nombre y todas las demás coordenadas. El nick que usaba era Vicente
 Asterisco. 
 
-*Revisar* 
-
 —Además, lo mejor de los libros es que, en realidad, la gente *no los lee*, ¿te das
 cuenta? Satisfacen su necesidad inmediata de adquirir algo, por poco
 dinero, o de poseerlo para poder vanagloriarse de ello en las redes
@@ -1263,7 +1261,9 @@ publicarla antes de final de mes. Si no mantenías un ritmo de
 publicación continuo los lectores te acababan abandonando. Y él no
 quería que eso sucediera. Pero Tina le volvió a mandar un mensaje.
 
-“Y yo sola en el [Jaraiz](http://detapeoporgranada.blogspot.com.es/2010/04/jaraiz-editado.html)“ Era un bar del Realejo, no demasiado lejos de
+“Y yo sola en el
+[Jaraiz](http://detapeoporgranada.blogspot.com.es/2010/04/jaraiz-editado.html)“,
+le envió Tina en un mensaje. Era un bar del Realejo, no demasiado lejos de
 la comisaría; Roble lo conocía bien. “Tú verás.“
 
 El colocar la decisión en sus manos indicaba una ventana temporal que
@@ -2292,7 +2292,7 @@ se habría visto que era de los del Tulipán. y que con él no se podría
 matar más que a una mosca y si se tuviera mucho tino. Pero la huella
 mostraba que había estado allí y a lo mejor después de apartar ese
 cuchillo para coger el otro había espabilado y se había puesto los
-guantes de fregar de la misma cocina. - 
+guantes de fregar de la misma cocina. 
 
 —Joder, si es que... - Roble volvió a mostrar la huella, pulsó con el índice sobre
 ella para que volviera a aparecer la ficha de Ignacio. -  Nos metimos
@@ -2324,10 +2324,9 @@ cabeza y Roble se quedó impasible. - Clientes.
 
 Roble miró a Cecilio, dándole paso.
 
-—Míranos bien a la cara, Nachito - dijo, haciendo la V con los dedos
-índice y corazón,
-señalando a sus ojos y luego a Roble y a él - ¿Tenemos cara de golfos?
-- Y paró un momento, como esperando una respuesta. - ¿A que no? Es
+—Míranos bien a la cara, Nachito - dijo Cecilio, haciendo la V con los dedos
+índice y corazón, señalando a sus ojos y luego a Roble y a él -
+¿Tenemos cara de golfos? - Y paró un momento, como esperando una respuesta. - ¿A que no? Es
 porque no somos de narcóticos. Así que nos suda la polla lo que
 trapichees, cuánto y con quién lo hagas. Por lo pronto. Y porque
 queremos saber qué le pasó a la Ainhoa esta. Así que nos lo
@@ -2438,7 +2437,6 @@ que había coincidido en su época de subinspector en la brigada de
 seguridad ciudadana, antes de sacar las oposiciones a la escala
 ejecutiva.  Al sacar las oposiciones ella también había cambiado, en
 este caso a droga y crimen organizado.
-
 
 —González -, le contestaron desde el otro lado del teléfono.
 
