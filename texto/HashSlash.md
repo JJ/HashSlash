@@ -3167,9 +3167,80 @@ los dos se aparecían como faros que mostraban, al final de la
 carretera de la Sierra, el camino a los turistas en busca de nieve a su derecha o
 historia a su izquierda.
 
-La moto de Demelza torció a la derecha al final de la que todavía, después de una docena de años, era la nueva carretera de
-acceso a la Alhambra  y pasaron por
-delante de la casa, todavía precintada, de Demelza, en busca de la
+Estaban enfilando la curva a la vista del hotel Maciá cuando un agente
+les salió al encuentro, haciéndoles indicación de que se pararan a su
+derecha. “Joder“, pensó Roble, repetidamente. 
+
+Eran policías locales que habían montado un pequeño
+control. Buscando. 
+
+—Por favor, desciendan del ciclomotor - les indicó uno de los agentes,
+cubierto de una gruesa cazadora y con la boina calada hasta más allá
+de las orejas. Hacía mucho frío y su compañero pateaba el suelo
+buscando un aumento de la temperatura por sacudida molecular, o
+simplemente sustituir la sensación de frío por la de un golpe.
+
+Demelza no dijo nada. Se bajó y rebuscó debajo del asiento los
+papeles. Roble se quedó allí, con las manos enfundadas en los
+bolsillo, pensando en si hacer valer o no la carta madero y
+decidiéndose por no hacerlo. Demelza lo miró y él se encogió de
+hombros, fue su forma de hacérselo saber.
+
+Los agentes llevaron a cabo la liturgia de identificación de vehículo,
+conductor, hablando por la radio en voz baja, separándose y haciendo
+una serie de gestos principalmente encaminados a que los detenidos se
+pusieran nerviosos sin razón alguna. El otro agente trajo el
+alcoholímetro y le hizo soplar a Demelza. Eso ya fue demasiado para
+ella.
+
+—Pero ¿qué diablos pasa? - dijo Demelza, bajando la voz a la segunda
+sílaba de “diablos“, cayendo en la cuenta de que igual no era la forma
+más adecuanda de dirigirse a un agente de la ley; miró a Roble cuando
+acabó de decirlo y éste le hizo un gesto.
+
+Los municipales no contestaron inmediatamente. Se llevaron el
+alcoholímetro, anotaron en una tableta algo, siguieron afanándose
+yendo y viniendo y preguntando cosas por la radio y buscando cosas en
+la tableta; también paraban a otros conductores, un coche, dos
+bicicletas, una moto más, que se quedaban, ateridos, esperando que les
+tocara el turno de ser procesados.
+
+Finalmente les hablaron.
+
+—Pueden circular -, les dijo un agente. Demelza y Roble se dirigieron
+a la moto -, no, en la moto, no -, dijo y miró al otro agente, que le
+dirigió un gesto que seguramente querría decir “siempre pican“ -, ésta
+queda inmovilizada por incumplir la ordenanza municipal de ruidos y
+sonidos.
+
+Roble se sorprendió. ¡Pero si era eléctrica y no emitía más que un
+zumbido! 
+
+—Agente, si no... - empezó a decirle Roble. Pero el agente no hizo
+caso y continuó.
+
+—Si no la llevan a un concesionario autorizado que la dote de alguno
+de los sonidos obligatorios para ciclomotores de esta cilindrada,
+tendrá que abonar una multa adicional y podremos volver a
+inmovilizarla.
+
+Roble abrió la boca y miró a Demelza, que estaba echándose ya a
+ andar con el casco debajo del brazo. 
+ 
+ —¡Espere! - dijo el agente; se acercó a ella y le alargó un papel -
+ Puede abonar la multa cuando desee pero usté verá, hay un descuento
+ por pronto pago.
+ 
+ Demelza le arrebató el papel de las manos y se lo metió en un
+ bolsillo, arrugado. Roble se puso a su altura.
+ 
+ —Es que no puedo soportar los sonidos que venden, qué quieres que te
+ diga. Y además, no encajan con el tuneado. Cualquiera que pongo me pone de los nervios. Así que los quito
+ y si me tienen que poner una multa, la pago y listo. 
+ 
+ Roble siguió andando con ella. No estaban lejos de la casa donde
+ había sucedido el asesinato. Un minuto más tarde pasaron por
+delante ella, todavía precintada, en busca de la
 papelera, colgada en una farola muy cerca del bar donde, un par de
 días antes, Roble se había tomado un café con Tina. 
 
