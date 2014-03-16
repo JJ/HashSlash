@@ -2,6 +2,7 @@ branches:
   except:
     - gh-pages
 language: ruby
+before_install: gem install kramdown
 rvm:
   - 1.9.3
 
