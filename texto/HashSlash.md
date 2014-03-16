@@ -2363,14 +2363,14 @@ para sí.
 ## Tradiciones acendradas
 
 Tengo un gran respeto por el gremio de los asesinos. Tradicionalmente,
-nos han inspirado a nuestro gremio, el de los escritores y, con ello,
+han sido fuente de inspiración para nuestro gremio, el de los escritores y, con ello,
 proporcionado un flujo de caja saneado. El gremio de los escritores,
 si no fuera por el gremio de los asesinos, tendría que convertirse, él
 mismo, en asesino. Ja ja. Eso ha tenido gracia. 
 
 Pero ese respeto por el gremio no se tiene, necesariamente, que
 trasladar individualmente a todos y cada uno de sus
-componentes. Vengan con referencias o no, los asesinos son
+asociados. Vengan con referencias o no, los asesinos son
 avariciosos, descuidados y poco profesionales. A veces, de lo primero
 se deducía lo segundo y también lo tercero. O de lo primero lo segundo
 y lo tercero. Por eso me enervó que el primer contacto lo quisieran
@@ -2385,7 +2385,9 @@ finalmente me avine a llamar, usando la frase que me habían indicado,
 hablo ruso. Lo aprendí para poder leer a Tolstoi en su versión
 original. Es lo que todo escritor debe hacer.
 
-Es mentira. Lo aprendí para que me poder acceder a contratos de los servicios de seguridad rusos en mi fase de mercenario.  Mercenario profesional.
+Es mentira. Lo aprendí para que me poder acceder a contratos de los
+servicios de seguridad rusos en la época en que, para escribir, tuve
+que trabajar de mercenario.  Mercenario profesional.
 
 Y eso sí es verdad. Fui mercenario, sí. “¿Quiere usted escribir? Viva
 usted primero“, ¿no os lo he dicho antes? ¿Es que no leéis? No, no
@@ -2456,9 +2458,9 @@ llamado de esa forma en francés. O 著 en japonés. ¿Que cómo se
 pronuncia? Lo acabo de hacer.
 
 Esquema general de la trama, personajes, ritmo, tono,
-ambientación... esas son las claves de una novela. Luego, se le envía
+ambientación... Esas son las claves de una novela. Luego, se le envía
 a unos cuantos escritores fantasmas. Tacha escritores. Producefrases fantasmas. Porque
-o son escritores. No son *auteurs*. El *auteur* soy yo. Y ellos me
+no son escritores. No son *auteurs*. El *auteur* soy yo. Y ellos me
 mandan una propuesta, unos cuantos capítulos. Cada uno una versión
 diferente. Luego, vuelve a ellos, pero ninguno recibe su propia
 versión para editar y ampliar. Y al final de todo el camino, antes del
@@ -2676,7 +2678,10 @@ yo.
 
 ## Profesional
 
-No soy un avaro. Me gusta pagar a los profesionales por lo que hacen, sobre todo si yo no soy capaz de hacerlo. O, simplemente, no me apetece. Pero no soporto a la gente poco profesional. 
+No soy un avaro. Cómo puedo haber escrito eso. Nadie es avaro. Ni
+siquiera, hoy en día,
+[ávaro](https://es.wikipedia.org/wiki/%C3%81varos). Corrigo. No soy avaro.
+Me gusta pagar a los profesionales por lo que hacen, sobre todo si yo no soy capaz de hacerlo. O, simplemente, no me apetece. Pero no soporto a la gente poco profesional. 
 
 Todo esto os puede parecer un arenque rojo. El cĺásico arenque que se le da al lector para despistarlo y apartarlo del final último. La ejecución. El objetivo. 
 
