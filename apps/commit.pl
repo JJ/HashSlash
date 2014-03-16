@@ -20,7 +20,7 @@ my $git = Git->repository;
 
 my $branch =  $git->command(qw/rev-parse --abbrev-ref HEAD/);
 say "Pre-commit hook (falso) en $branch";
-if ( $branch =~ /(master|muerta)/ ) {
+if ( $branch =~ /(master|muerta|writer)/ ) {
   my $changed = $git->command(qw/diff --name-status/);
   my @changed_files = ($changed =~ /\s*\w\s+(\S+)/g);
   if ( $words ~~ @changed_files ) {

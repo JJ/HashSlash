@@ -543,7 +543,8 @@ de soltarse.
 Matar
 ---
 
-—¿Haciendo sudokus? 
+—¿Haciendo sudokus? -, me pregunta un camarero en un área de servicio de la
+autovía, a la altura de Marbella. 
 
 No me gusta hablar con la gente. Corrijo. No me gusta hacer nada con
 la gente. Lo mío es hacerle *a* la gente. Pero a veces es inevitable
@@ -562,13 +563,13 @@ algo?
 —Sí -, un sí para tres preguntas. Estaba empezando a cargarme. Me
 levanté para irme, dirigiéndome hacia la barra y dejándolo atrás.
 
-—Yo  escribo también. Y mataría por publicar. - dijo, suspirando y
+—Yo  escribo también. Y mataría por publicar -, dijo, suspirando y
 dejando de barrer por un momento.
 
 —A veces uno tiene que hacer lo que tiene que hacer -, le contesté.
 Sin mirarle. Dejé el dinero del café sobre la barra y me
-largué. Todavía me quedaba más de una hora para llegar al puerto y
-tomar el ferry.
+largué. Todavía me quedaba más de una hora para llegar al puerto de Algeciras y
+tomar el ferry a Marruecos.
 
 Fiambres y bocadillos
 ---
@@ -677,7 +678,7 @@ ella. Pero déjame a mi primero, hombre.
 Volver
 ---
 
-Casa es donde dejas el sombrero, ¿no? 
+El hogar es donde dejas el sombrero, ¿no? 
 
 Pero nadie usa sombrero hoy en día,
 así que tampoco existen los hogares de verdad. Pero sí hay un sitio a
@@ -688,14 +689,15 @@ los contornos de tus nalgas. Y viceversa.
 A veces, el sillón es una persona.
 
 Cuando llego al puerto de Algeciras, a veces se ve el país que llamo,
-por lo pronto, mi casa. A veces no. Hoy es de esos días. Hay
+por lo pronto, mi hogar. A veces no. Hoy es de esos días. Hay
 nubarrones negros sobre el estrecho. De esos que los escritores suelen
 usar para reflejar un temperamento sombrío o un estado de ánimo
 tormentoso en los personajes. Pero sólo son nubes. Y yo me siento
-estupendamente. 
+estupendamente. Por, ya saben. La misión cumplida y eso. 
 
 De repente, un rayo de sol abre las nubes y crea una isla de luz muy
-cerca de mi coche, donde espero para subir al ferry.
+cerca de mi coche, dentro del que espero que la cola avance para
+introducirlo en las fauces del paquebote. 
 
 Es mentira. Sigue nublado. ¿Por qué diablos iba a salir un rayo de luz
 para nadie? Pero os he hecho creer que sí, ¿verdad? 
