@@ -41,7 +41,9 @@ diag( "Testing Text::HashSlash $Text::HashSlash::VERSION in $dir" );
 #$speller->add_dic("$dir/words.dic");
 $speller->set_option('personal',"$dir/.aspell.es.pws");
 
-my @words = split /\s+/, $hashslash->text;
+my $clean_text = $hashslash->text;
+$clean_text =~  s/\{:.+?\}//g;
+my @words = split /\s+/, $clean_text;
 my $word_re = qr/([a-zA-Z'áéíóúÁÉÍÓÚñÑü]+)/;
 
 for my $w (@words) {
