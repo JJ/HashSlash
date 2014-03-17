@@ -1456,36 +1456,36 @@ a todo el mundo incómodo, así que Demelza, con esa frase, lo había
 pateado de forma contundente para que se batiera de nuevo en retirada.  
 
 —No habrás sido tú, Roble -, dijo Tina, que volvió precisamente en ese
-momento. Tocándose la nariz. La gente se toca la nariz por todo tipo
+momento. Tocándose la nariz con el dorso del dedo. La gente se toca la nariz por todo tipo
 de razones válidas, pensó Roble. Incluso cuando salen del cuarto de
 baño. También hay todo tipo de razones válidas para preguntarle a los
 de Narcóticos qué sabían de la tal Tina. Que probablemente no sabrían
-nada. Pero sabrían quién podría saber o no. Al final, tendría que
+nada. Pero sabrían quién podría saber. O quizás no. Al final, tendría que
 gastar sus duramente ganados bitcoins, es decir, duramente ganados
 como en que se los ha ganado el mismo Roble fuera de nómina en asuntos
 que están, o a veces no, relacionados con la misma, en preguntarle a alguien en
-`tupregunta.onion`, que tenían el lema *La información quiere ser
+`tupregunta.onion`, una web que tenía el lema *La información quiere ser
 cara*. 
 
-Pero sólo lo haría si podía ayudar a encontrar al asesino. O le tocaba
+Pero sólo lo haría si podía ayudar a encontrar al asesino. O Tina le tocaba
 mucho las narices. Que, ahora mismo, no parecía ser el caso; le
 lanzaba puyas, probando, jugando un juego que, antes de que apareciera
 Demelza, parecía que tenía un fin y un final claro. Ahora, todas las
 opciones estaban abiertas. Pero la partida había empezado y las cartas
 estaban encima de la mesa. Había que jugarlas, porque el que se sale
-de la partida es un rajado y además si no lo haces la metáfora se jode
+de la partida es un rajado y además si lo haces la metáfora se jode
 por las costuras. 
 
-—La verdad es que... -, hizo una pausa, esperando que Tina lo
+—La verdad es que... -, dijo Roble. E hizo una pausa, esperando que Tina lo
 interrumpiera. No lo hizo, a su pesar. Ella y Demelza lo miraban con
 curiosidad, Tina parpadeando frenéticamente, en lo que podía ser un
 mensaje o un simple tic nervioso. No le acabó de gustar a Roble esa
 expectación, ni ese aparentemente consciente esfuerzo de Tina en no
 hacer lo que en ella resultaba natural, llenar huecos. Habría quedado
-bastante estúpido si no hubiera terminado, así que siguió -... Tenemos
+bastante estúpido si no hubiera terminado la frase, así que siguió continuó con -... Tenemos
 un perfil. Pistas. No mucho. 
 
-—Durante la fiesta. Tuvo que ser durante la fiesta. ¿Es que no viste a
+—Durante la fiesta. Tuvo que ser durante la fiesta -, dijo Tina. - ¿Es que no viste a
 nadie raro, Roble? Con tu olfato de policía, porque los policías
 tenéis olfato, no, aunque, la verdad, al rato de fiesta yo estaba
 como, ¿quién huele así? Por favor, qué diablos, quién los traería, y,
@@ -1493,8 +1493,8 @@ por cierto, ¿quién te trajo a ti?
 
 —¿Yo? - preguntó Roble - Yo no...
 
-—¿No? Entonces ¿no eres amigo de esta? - dijo, señalando a Demelza. En
-ese momento, sin razón aparente, el Kevin emitió una risita -
+—¿No? Entonces ¿no eres amigo de esta? - dijo Tina, señalando a Demelza. En
+ese momento, sin razón aparente, el Kevin emitió una risita. Demelza puso los ojos en blanco, pero no dijo nada. -
 Entonces, esta mañana... 
 
 Paró un instante y se quedó mirando con los ojos abiertos a
@@ -1514,19 +1514,19 @@ personalmente, que evidentemente quiere terminar el trabajo, o que no
 pide en carné de identidad, como es natural, llega, un golpe certero
 y todo termina así, de repente, sales por donde has venido, nadie te
 ve, nadie te conoce... Pero también era posible que quisieran matar
-precisamente a esa persona. O a otra totalmente diferente. 
+precisamente a esa persona. O a otra totalmente diferente. O a una persona aleatoria.
 
 —No es descartable -, contestó Roble. 
 
 —Qué mono, no es descartable, oye, y qué descartáis entonces, ¿así lo
-decís, descartar? - dijo Tina
+decís, descartar? - dijo Tina.
 
 —¿Qué habéis descartado entonces? - preguntó Demelza.
 
 Kevin la miró. Roble no contestó, posó el codo en la mesa y la
 barbilla sobre su mano. Escuchando. 
 
-—Nosotros tampoco te hemos descartado a ti, caballero - dijo Tina -
+—Nosotros tampoco te hemos descartado a ti, guapito - dijo Tina -
 ¡Somos todos un grupito de presuntos asesinos! ¿Nos hacemos un grupo
 de WhatsApp con ese nombre, “Los presuntos de la muerte“?  
 
@@ -1535,24 +1535,24 @@ bueno escuchando, no sólo por el hecho físico de hacerlo, que eso lo
 hace cualquiera, sino porque transmitía desde su postura, su mirada,
 sus sonidos guturales de continuación del discurso, "Te estoy
 escuchando". En el gremio de escuchadores se habría llevado el premio
-de Escuchador Más Valioso. Si no eso, el que más polvos había
+de Escuchador Más Valioso. Si no de eso, el que más polvos había
 conseguido escuchando. Que tampoco era mal mérito. Por lo pronto,
 estaba claro que entre todos los presuntos de la muerte, había dos
 personas nerviosas. 
 
-—Kevin tiene unos amigos -, dijo Demelza, y a Tina le dio la risita -
+—Para descartar presuntos, o para descartarnos, o para buscar a más presuntos, Kevin tiene unos amigos -, dijo Demelza, y a Tina le dio la risita -
 que nos pueden ayudar. 
 
 Roble miró a Demelza y luego a Kevin, que seguía con la cabeza gacha
-concentrado en lo que fuera, robar un banco central, derribar cerdos
+concentrado intensamente en lo que fuera, robar un banco central, derribar cerdos
 con pájaros, programar un virus que destruyera las reservas mundiales
 de elixir contra la alopecia. 
 
-—Lo bueno de estos tíos - , "Son buenos", intervino Kevin, con
+—Lo bueno de estos tíos -, dijo Demelza, "Son buenos", intervino Kevin, con
 brevedad y hablando muy rápido, como esas voces que de repente se
 cruzan en la radio y que dicen "estroncio, rubidio y cesio" en medio
 de una retransmisión deportiva, dejándole la impresión de que, aunque
-no parece que haya nadie más ahí, entre tú y el que habla, sí lo hay y
+no parece que haya nadie más ahí, entre el que habla y tu receptor, sí lo hay y
 puede aparecer en el momento más inesperado -, es que son capaces de
 buscarte la información que quieras. Cobran caros. En una
 cosa que se llama bitcoins, ¿lo conocéis? - Todos pusieron cara de
@@ -1563,11 +1563,11 @@ si conoces a alguien...
 —¡Yo misma! -, dijo Tina. -A veces es como, caray, conoces a un tío, y dices
 joder, es un tío guay, y lo miras en Facebook, y es como, esto no
 puede ser verdad, ¿y si es caníbal o le huelen los pies o...? ¿Eso lo
-hacen tus colegas, Kevin? ¿Lo harían por mi?
+hacen tus colegas friquis, Kevin? ¿Lo harían por mi?
 
 —A alguien que quiera pagar, quería decir... - aclaró Demelza. 
 
-Tina sólo se rió, pero inmediatamente empezó a hablarle a Roble de
+Tina sólo se rió, pero inmediatamente comenzó a hablarle a Roble de
 algo llamado nanomateriales, lo que no tardó en provocar bostezos a
 Demelza que se propagaron inmediatamente a Kevin, en una frecuencia creciente, como el parto inminente de una marcha. Se levantaron para irse unos minutos  
  más tarde, y en el momento que Demelza le dio dos besos a Roble le dijo,
