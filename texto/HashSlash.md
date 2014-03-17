@@ -3638,6 +3638,11 @@ Marisol se levantó de su sillón y se le acercó para darle un par de besos.
 —Sí, eso dicen mis gatos - dijo ella, volviendo a su sillón.
 
 
+## Las páginas amarillas 
+
+Roble pensó que el que se tratara de un profesional simplificaba mucho el resto de la investigación. O, por decirlo de otra forma, la cerraba. Porque un verdadero profesional no se dejaría coger tan fácilmente, así que Roble podía dedicarse a temas más creativos o pecuniarios. Que podían ser lo mismo. Porque, siendo realistas, no tenía la más mínima oportunidad. Si tuvieran la cara, quizás. Pero no tenían ni eso.
+
+
 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
