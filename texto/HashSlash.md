@@ -63,11 +63,16 @@ casi los mismos, con el doble de RTs.
 de Roble variara.
 
 —[Gynnsam](http://www.ikea.com/es/es/catalog/products/50134950/)-,
-dijo Roble, esforzándose en hacer una n lo suficientemente larga como para que pareciera el doble, mostrándole de nuevo la pantalla del móvil a
+dijo Roble, esforzándose en hacer una *n* lo suficientemente larga
+como para que pareciera el doble y mostrándole de nuevo la pantalla del
+móvil a 
 Cecilio, que lo cogió y se alzó las gafas, entornando a la vez un
 poco los ojos.
 
-—No, el mango es así como triangular, y no tiene las tachuelas -, dijo Cecilio. Se
+—No, el mango es así como triangular, y no tiene las tachuelas -, dijo
+Cecilio. 
+
+Se
 levantó con el móvil en la mano y fue a la habitación donde se encontraba el cadáver. Se oyó el
 chasquido de la aplicación al hacer una foto. Roble arrugó los labios y alzó
 las cejas.
@@ -115,7 +120,7 @@ cosa de Ikea es?
   [Klingsbo](http://www.ikea.com/es/es/catalog/products/90128565/) -,
   dijo en voz alta. 
   
-  — ¿Y el resto? Espera, no me lo digas. Rebotados desde el piso de
+  —¿Y el resto? Espera, no me lo digas. Rebotados desde el piso de
   Almuñécar... - Roble no contestó. Su móvil seguía emitiendo sonidos
   y él seguía tecleando. - No hay app - dijo aaahhh - para eso,
   ¿verdad? 
@@ -124,9 +129,9 @@ Cecilio se rió de su propia gracia. Roble volvió al móvil, que acababa
 de emitir el tono que indicaba, de nuevo, que había llegado un
 mensaje.  
   
- — Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Cecilio. 
+ —Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Cecilio. 
  
- — ¿Y por qué no las echas tú con tu polla? - le contestó Cecilio,
+ —¿Y por qué no las echas tú con tu polla? - le contestó Cecilio,
  socarrón,  extendiendo la mano para recibir el
  móvil. Roble también sonrió, asumiendo la respuesta como parte de esa seña de
  identidad llamada *malafollá granaína* que todavía, después de dos
@@ -813,8 +818,6 @@ voz a un *podcast* aparecido en algún sitio, lo que le dio también un
 nombre y todas las demás coordenadas. El nick que usaba era Vicente
 Asterisco. 
 
-*Revisar* 
-
 —Además, lo mejor de los libros es que, en realidad, la gente *no los lee*, ¿te das
 cuenta? Satisfacen su necesidad inmediata de adquirir algo, por poco
 dinero, o de poseerlo para poder vanagloriarse de ello en las redes
@@ -1258,7 +1261,9 @@ publicarla antes de final de mes. Si no mantenías un ritmo de
 publicación continuo los lectores te acababan abandonando. Y él no
 quería que eso sucediera. Pero Tina le volvió a mandar un mensaje.
 
-“Y yo sola en el [Jaraiz](http://detapeoporgranada.blogspot.com.es/2010/04/jaraiz-editado.html)“ Era un bar del Realejo, no demasiado lejos de
+“Y yo sola en el
+[Jaraiz](http://detapeoporgranada.blogspot.com.es/2010/04/jaraiz-editado.html)“,
+le envió Tina en un mensaje. Era un bar del Realejo, no demasiado lejos de
 la comisaría; Roble lo conocía bien. “Tú verás.“
 
 El colocar la decisión en sus manos indicaba una ventana temporal que
@@ -1694,13 +1699,13 @@ en la mesita de noche y empezó a actualizar todo lo que pudiera.
 ## El camino hacia la policía
 
 Cecilio se aburría con la perorata de uno de sus tutorizados. Ley
-blablabla código blablabla caso blablabla. Se puso a pensar en sus
-casos. Una agresión por dos encapuchados, uno de ellos posiblemente
+blablabla código blablabla caso blablabla. Se puso a pensar en los
+casos que tenía abiertos en ese momento. Una agresión por dos encapuchados, uno de ellos posiblemente
 una mujer, a un conductor de la Rober. Un robo en un bufete de
 abogados. El asesinato de una chica. ¿Cómo se llamaba? Demelza. No,
 esa era la chica no-muerta. No zombie, simplemente que no era ella la
 que había muerto. ¿O Demelza era la que había muerto y la otra la que
-no? 
+no? No, Ainhoa era la muerta. Eso era. 
 
 Muerta de un tajo, por cuchillo. Una carnicería. ¿Sería carnicero el
 asesino? ¿Matarife? Matarife lo era de por sí, pero ¿matarife de
@@ -2287,7 +2292,7 @@ se habría visto que era de los del Tulipán. y que con él no se podría
 matar más que a una mosca y si se tuviera mucho tino. Pero la huella
 mostraba que había estado allí y a lo mejor después de apartar ese
 cuchillo para coger el otro había espabilado y se había puesto los
-guantes de fregar de la misma cocina. - 
+guantes de fregar de la misma cocina. 
 
 —Joder, si es que... - Roble volvió a mostrar la huella, pulsó con el índice sobre
 ella para que volviera a aparecer la ficha de Ignacio. -  Nos metimos
@@ -2319,10 +2324,9 @@ cabeza y Roble se quedó impasible. - Clientes.
 
 Roble miró a Cecilio, dándole paso.
 
-—Míranos bien a la cara, Nachito - dijo, haciendo la V con los dedos
-índice y corazón,
-señalando a sus ojos y luego a Roble y a él - ¿Tenemos cara de golfos?
-- Y paró un momento, como esperando una respuesta. - ¿A que no? Es
+—Míranos bien a la cara, Nachito - dijo Cecilio, haciendo la V con los dedos
+índice y corazón, señalando a sus ojos y luego a Roble y a él -
+¿Tenemos cara de golfos? - Y paró un momento, como esperando una respuesta. - ¿A que no? Es
 porque no somos de narcóticos. Así que nos suda la polla lo que
 trapichees, cuánto y con quién lo hagas. Por lo pronto. Y porque
 queremos saber qué le pasó a la Ainhoa esta. Así que nos lo
@@ -2433,7 +2437,6 @@ que había coincidido en su época de subinspector en la brigada de
 seguridad ciudadana, antes de sacar las oposiciones a la escala
 ejecutiva.  Al sacar las oposiciones ella también había cambiado, en
 este caso a droga y crimen organizado.
-
 
 —González -, le contestaron desde el otro lado del teléfono.
 
@@ -3164,9 +3167,80 @@ los dos se aparecían como faros que mostraban, al final de la
 carretera de la Sierra, el camino a los turistas en busca de nieve a su derecha o
 historia a su izquierda.
 
-La moto de Demelza torció a la derecha al final de la que todavía, después de una docena de años, era la nueva carretera de
-acceso a la Alhambra  y pasaron por
-delante de la casa, todavía precintada, de Demelza, en busca de la
+Estaban enfilando la curva a la vista del hotel Maciá cuando un agente
+les salió al encuentro, haciéndoles indicación de que se pararan a su
+derecha. “Joder“, pensó Roble, repetidamente. 
+
+Eran policías locales que habían montado un pequeño
+control. Buscando. 
+
+—Por favor, desciendan del ciclomotor - les indicó uno de los agentes,
+cubierto de una gruesa cazadora y con la boina calada hasta más allá
+de las orejas. Hacía mucho frío y su compañero pateaba el suelo
+buscando un aumento de la temperatura por sacudida molecular, o
+simplemente sustituir la sensación de frío por la de un golpe.
+
+Demelza no dijo nada. Se bajó y rebuscó debajo del asiento los
+papeles. Roble se quedó allí, con las manos enfundadas en los
+bolsillo, pensando en si hacer valer o no la carta madero y
+decidiéndose por no hacerlo. Demelza lo miró y él se encogió de
+hombros, fue su forma de hacérselo saber.
+
+Los agentes llevaron a cabo la liturgia de identificación de vehículo,
+conductor, hablando por la radio en voz baja, separándose y haciendo
+una serie de gestos principalmente encaminados a que los detenidos se
+pusieran nerviosos sin razón alguna. El otro agente trajo el
+alcoholímetro y le hizo soplar a Demelza. Eso ya fue demasiado para
+ella.
+
+—Pero ¿qué diablos pasa? - dijo Demelza, bajando la voz a la segunda
+sílaba de “diablos“, cayendo en la cuenta de que igual no era la forma
+más adecuada de dirigirse a un agente de la ley; miró a Roble cuando
+acabó de decirlo y éste le hizo un gesto.
+
+Los municipales no contestaron inmediatamente. Se llevaron el
+alcoholímetro, anotaron en una tableta algo, siguieron afanándose
+yendo y viniendo y preguntando cosas por la radio y buscando cosas en
+la tableta; también paraban a otros conductores, un coche, dos
+bicicletas, una moto más, que se quedaban, ateridos, esperando que les
+tocara el turno de ser procesados.
+
+Finalmente les hablaron.
+
+—Pueden circular -, les dijo un agente. Demelza y Roble se dirigieron
+a la moto -, no, en la moto, no -, dijo y miró al otro agente, que le
+dirigió un gesto que seguramente querría decir “siempre pican“ -, ésta
+queda inmovilizada por incumplir la ordenanza municipal de ruidos y
+sonidos.
+
+Roble se sorprendió. ¡Pero si era eléctrica y no emitía más que un
+zumbido! 
+
+—Agente, si no... - empezó a decirle Roble. Pero el agente no hizo
+caso y continuó.
+
+—Si no la llevan a un concesionario autorizado que la dote de alguno
+de los sonidos obligatorios para ciclomotores de esta cilindrada,
+tendrá que abonar una multa adicional y podremos volver a
+inmovilizarla.
+
+Roble abrió la boca y miró a Demelza, que estaba echándose ya a
+ andar con el casco debajo del brazo. 
+ 
+ —¡Espere! - dijo el agente; se acercó a ella y le alargó un papel -
+ Puede abonar la multa cuando desee pero usté verá, hay un descuento
+ por pronto pago.
+ 
+ Demelza le arrebató el papel de las manos y se lo metió en un
+ bolsillo, arrugado. Roble se puso a su altura.
+ 
+ —Es que no puedo soportar los sonidos que venden, qué quieres que te
+ diga. Y además, no encajan con el tuneado. Cualquiera que pongo me pone de los nervios. Así que los quito
+ y si me tienen que poner una multa, la pago y listo. 
+ 
+ Roble siguió andando con ella. No estaban lejos de la casa donde
+ había sucedido el asesinato. Un minuto más tarde pasaron por
+delante ella, todavía precintada, en busca de la
 papelera, colgada en una farola muy cerca del bar donde, un par de
 días antes, Roble se había tomado un café con Tina. 
 
