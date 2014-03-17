@@ -1702,13 +1702,13 @@ en la mesita de noche y empezó a actualizar todo lo que pudiera.
 ## El camino hacia la policía
 
 Cecilio se aburría con la perorata de uno de sus tutorizados. Ley
-blablabla código blablabla caso blablabla. Se puso a pensar en sus
-casos. Una agresión por dos encapuchados, uno de ellos posiblemente
+blablabla código blablabla caso blablabla. Se puso a pensar en los
+casos que tenía abiertos en ese momento. Una agresión por dos encapuchados, uno de ellos posiblemente
 una mujer, a un conductor de la Rober. Un robo en un bufete de
 abogados. El asesinato de una chica. ¿Cómo se llamaba? Demelza. No,
 esa era la chica no-muerta. No zombie, simplemente que no era ella la
 que había muerto. ¿O Demelza era la que había muerto y la otra la que
-no? 
+no? No, Ainhoa era la muerta. Eso era. 
 
 Muerta de un tajo, por cuchillo. Una carnicería. ¿Sería carnicero el
 asesino? ¿Matarife? Matarife lo era de por sí, pero ¿matarife de
