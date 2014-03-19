@@ -1232,8 +1232,7 @@ podía averiguar sin haber publicado.
 Habían pasado treinta personas por la fiesta antes de las tres, veintitrés
 después. Varios sin identificar, porque aparecían en todas las fotos
 de espaldas o, simplemente, porque no tenían ninguna foto publicada y
-asociada a un perfil
-que permitiera hacerlo.
+asociada a un perfil que permitiera hacerlo.
 
 Como en el chiste en que la persona busca las llaves debajo de la
 farola porque hay más luz, estaba tratando de concentrarse en las
@@ -1897,7 +1896,11 @@ suyo. Hacía tiempo que él había entrado en la policía, pero la policía
 no acababa de entrar en él, al menos esos aspectos ritualísticos y
 folclóricos.  
 
-—Torres -, dijo uno de los agentes, el más corpulento, levantando un dedo,- y este es Quesada. - Con las gafas Google identificó al muchacho. Ignacio Salido, aunque en sus perfiles en redes sociales había poco movimiento desde años atrás. Le hizo varias fotos y comenzó a cotejarlas con las que había de la fiesta. 
+—Torres -, dijo uno de los agentes, el más corpulento, levantando un
+dedo,- y este es Quesada. - Con las gafas Google identificó al
+muchacho. Ignacio Salido, aunque en sus perfiles en redes sociales
+había poco movimiento desde años atrás. Le hizo varias fotos y comenzó
+a cotejarlas con las que había de la fiesta.  
 
 Torres le dijo en un aparte
 
@@ -3640,8 +3643,23 @@ Marisol se levantó de su sillón y se le acercó para darle un par de besos.
 
 ## Las páginas amarillas 
 
-Roble pensó que el que se tratara de un profesional simplificaba mucho el resto de la investigación. O, por decirlo de otra forma, la cerraba. Porque un verdadero profesional no se dejaría coger tan fácilmente, así que Roble podía dedicarse a temas más creativos o pecuniarios. Que podían ser lo mismo. Porque, siendo realistas, no tenía la más mínima oportunidad. Si tuvieran la cara, quizás. Pero no tenían ni eso.
+Roble pensó que el que se tratara de un profesional simplificaba mucho
+el resto de la investigación. O, por decirlo de otra forma, la
+cerraba. Porque un verdadero profesional no se dejaría coger tan
+fácilmente, así que Roble podía dedicarse a temas más creativos o
+pecuniarios. Que podían ser lo mismo. Porque, siendo realistas, no
+tenía la más mínima oportunidad. Si tuvieran la apariencia física, quizás. Pero no
+tenían ni eso. 
 
+Pero eso no quería decir que no pudieran tenerlo. Desde el primer día
+sus duendes de la web profunda habían estado etiquetando las imágenes
+que tenía de la fiesta. Rostros en el marasmo de detrás de un selfie,
+personas que sostienen un cigarro en una mano y una copa en la otra y
+que se entrevén entre una oreja y otra, vídeos panorámicos sin ton ni
+son que recorren una multitud y se quedan con la primera fila y con la
+segunda. Ya tenía una lista de personas y ahora también tenía un
+perfil: un perfil profesional. Así que era cuestión de cotejar. O de
+eliminar, más bien. 
 
 
 
