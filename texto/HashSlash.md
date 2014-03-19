@@ -1187,7 +1187,10 @@ Pero era joven y todo parecía bonito y nuevo y brillante y eso debía
 de haber empujado a Ainhoa a comenzar con la fan-fiction de un tema
 que, bien pensado, se prestaba a ello. 
 
-Su aplicación YouWriteNow! le advirtió que ya iba siendo hora de que revisara lo escrito, así que se puso a leer algunos fragmentos. Empezaba a hablar de 
+Su aplicación YouWriteNow! le advirtió que ya iba siendo hora de que
+revisara lo escrito de su novela-en-curso unos días antes. Pero,
+sintiéndose travieso por un día, no lo hizo. Buscó lo que Ainhoa había
+escrito y se puso a leer algunos fragmentos. Empezaba a hablar de 
 mecapenes ya en el segundo párrafo. Y, al parecer, no dejaba de
 hacerlo. Ni de cometer errores gramaticales. Y faltas de ortografía.
 
@@ -3658,7 +3661,7 @@ Pero eso no quería decir que no pudieran tenerlo. Desde el primer día
 sus duendes de la web profunda habían estado etiquetando las imágenes
 que tenía de la fiesta. Rostros en el marasmo de detrás de un selfie,
 personas que sostienen un cigarro en una mano y una copa en la otra y
-que se entrevén entre una oreja y otra, vídeos panorámicos sin ton ni
+que se entrenvén entre una oreja y otra, vídeos panorámicos sin ton ni
 son que recorren una multitud y se quedan con la primera fila y con la
 segunda. Ya tenía una lista de personas y ahora también tenía un
 perfil: un perfil profesional. Así que era cuestión de cotejar. O de
