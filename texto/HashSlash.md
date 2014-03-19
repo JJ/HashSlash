@@ -365,6 +365,7 @@ inconsciente. Qué frío hacía, caray.
 
 Consejos para una huida
 -----
+{: .writer}
 
 La gente piensa que lo más importante a la hora de huir es moverse muy
 rápidamente. No tienen ni idea. Lo más parecido a una huida que conocen es
@@ -543,6 +544,7 @@ de soltarse.
 
 Matar
 ---
+{: .writer}
 
 —¿Haciendo sudokus? -, me pregunta un camarero en un área de servicio de la
 autovía, a la altura de Marbella. 
@@ -551,14 +553,19 @@ No me gusta hablar con la gente. Corrijo. No me gusta hacer nada con
 la gente. Lo mío es hacerle *a* la gente. Pero a veces es inevitable
 que *la gente* te hable o te haga cosas.
 
-—No, escribiendo. 
+—No, escribiendo -, le contesto, tras dejarle claro con la pausa antes
+de la contestación que no tengo las más exiguas ganas de interaccionar
+con él; y si la pausa no es suficiente, la mirada. Que tampoco será
+suficiente, porque quien es camarero no lo es precisamente por haber
+hecho un máster.  
 
-A veces contesto, si pienso que puedo darle una lección a alguien. Era
-un camarero joven, de mirada ilusa, que servilmente se esforzaba por
+Y por eso es el tipo de personas a las que suelo contestar; a veces lo
+hago, si pienso que puedo darle una lección a alguien. Era
+un joven, de mirada clara e ilusa, que servilmente se esforzaba por
 satisfacer a la gente que pasaba por el café de carretera para nunca
 más volver. Del este, quizás. 
 
-—¿Escribe? ¿Novelas? - la *s*, un poco sibilante. - ¿Hay... ha publicado
+—¿Escribe? ¿Novelas? - la *s*, un poco sibilante, balcánica o del Cáucaso. - ¿Hay... ha publicado
 algo? 
 
 —Sí -, un sí para tres preguntas. Estaba empezando a cargarme. Me
@@ -568,6 +575,7 @@ levanté para irme, dirigiéndome hacia la barra y dejándolo atrás.
 dejando de barrer por un momento.
 
 —A veces uno tiene que hacer lo que tiene que hacer -, le contesté.
+
 Sin mirarle. Dejé el dinero del café sobre la barra y me
 largué. Todavía me quedaba más de una hora para llegar al puerto de Algeciras y
 tomar el ferry a Marruecos.
@@ -678,6 +686,7 @@ ella. Pero déjame a mi primero, hombre.
 
 Volver
 ---
+{:writer}
 
 El hogar es donde dejas el sombrero, ¿no? 
 
@@ -1305,6 +1314,7 @@ hacerlo. Ni de cometer errores gramaticales. Y faltas de ortografía.
 Realmente, era para matarla.
 
 ## La página en blanco
+{:writer}
 
 Cualquier escritor te hablará de ese momento angustioso en el que
 tienes que enfrentarte a una página y las teclas repelen las yemas de
@@ -1320,7 +1330,8 @@ Peor es recomenzar. Cuando, una vez terminado el trabajo, el editor, los
 primeros lectores, el querido y despreciado público, lo arrojan a la
 basura y hay que empezar de nuevo.
 
-La chica no ha muerto. No la he matado, corrijo. Volvemos al principio. 
+La chica no ha muerto. No la he matado, corrijo. Volvemos al principio
+de la obra. 
 
 Y ahora es algo personal.
 
