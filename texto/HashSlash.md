@@ -2995,7 +2995,7 @@ Y había un tío en su garaje.
 
 Y alguien estaba llamando a la puerta. Con los nudillos. Se sobresaltó
 con el sonido que nunca había escuchado antes en esta casa. Todo el mundo
-pasaba las pulseras con chips NFC por la placa que, además, permitían identificar de quién se
+pasaba las pulseras con chips NFC por la placa que, además, permitían identificar de quién se 
 trataba. Bueno, y luego estaba Demelza que se saltaba el sistema
 directamente. Sin embargo, no le acabó de sonar mal el golpe de algo
 sobre una sólida puerta metálica. También tenía su ID implícito:
@@ -3025,7 +3025,7 @@ su garaje, concretamente.
 
 Roble señaló a su izquierda y le indicó.
 
-—Por ahí. Garaje. - dijo, y cerró la puerta.
+—Por ahí. Garaje -, dijo, y cerró la puerta.
 
 Inmediatamente envió un mensaje de voz a Demelza. Es posible que
 Demelza no lo escuchara correctamente, porque a mitad de la grabación
@@ -3047,7 +3047,7 @@ en la puerta.
 ## Visitas a horas intempestivas
 
 Roble se sorprendió de que Demelza hubiera decidido usar el
-método convencional, al menos por esta vez. También de que hubiera
+método convencional de llamar a la puerta, al menos por esta vez. También de que hubiera
 tardado tan poco en llegar desde su mensaje. O estaba muy cerca, o
 corría mucho. O tenía moto.
 
@@ -3293,7 +3293,7 @@ para abrir la puerta, unido por un cable que salía verticalmente de
 él, llegaba al techo y continuaba, en el ángulo entre pared y techo,
 hacia el interior del garaje.
 
-Mientras Demelza deconstruía la entrada a su garaje, Roble ensuciaba
+Mientras Demelza deconstruía las paredes de la entrada a su garaje, Roble ensuciaba
 sus
 [pantalones Oliver Spencer](http://oliverspencer.co.uk/drawstring-trouser-blake-olive-ost48)
 con el cieno de grasa y polvo que había en el suelo de la rampa;
@@ -3664,7 +3664,9 @@ segunda. Ya tenía una lista de personas y ahora también tenía un
 perfil: un perfil profesional. Así que era cuestión de cotejar. O de
 eliminar, más bien. 
 
+Como tendría que eliminar el problema que habitaba su garaje. Era un poco como una caries en sus estadios iniciales. Sólo la notas de vez en cuando y el resto del tiempo no hace sentir su presencia, pero está ahí. Ahora, cuando se hace notar es cuando tienes que tener analgésicos suficientemente fuertes cerca. 
 
+Se comenzaron a oir 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
