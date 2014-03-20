@@ -1789,20 +1789,19 @@ Roble estaba fuera de turno, pero tras desayunar tostadas con flor de
 sal del Himalaya y aceite de oliva virgen extra extraído en frío de
 olivos 
 armenios se pasó por la comisaría para ver si
-había llegado algún informe nuevo. Había cierta gente que se negaba a
+había llegado algún informe nuevo. Había cierto tipo de gente que se negaba a
 dejar nada en un servidor web o enviarla por correo electrónico, así
-que algunas veces no quedaba más remedio. Y luego, estaba la ley de
+que algunas veces no quedaba más remedio que situarse físicamenge en el mismo lugar en el que estuvieran dichos informes. Y luego, estaba la ley de
 protección de datos, que, en general, hacía más difícil acceder a
 información en la comisaría que comprarla o buscarla en la web
-profunda. Pero a veces no había más remedio que usar la de la
-comisaría, porque era la única que tenía valor probatorio. Y, al
+profunda. Lo que te permitía avanzar rápidamente, pero a veces no había más remedio que usar la que hubiera llegado por canales oficiales, porque era la única que tenía valor probatorio. Y, al
 final, saber quién era el malo estaba bien, pero lo que realmente le
 ponía cachondo a Roble era que el mismo perpetrador, y todo el mundo,
 supieran que había sido el propio Roble el que había conseguido las
-pruebas, tirado del hilo, andado el camino que lleva a la condena.
+pruebas, tirado del hilo y andado el camino que lleva a la condena. Y para andar ese camino no había más remedio que hacerlo con los zapatones de policía al que exigían leer, personalmente en persona, los informes en al misma comisaría. 
 
-Porque solía ser Roble. Cecilio... Cecilio estaba ahí, cumplía su
-trabajo, también andaba el camino, o al menos movía las piernas, pero nunca había ideas,
+Era el tipo de labor que podría haber delegado el Cecilio o en alguno de los otros compañeros del turno. Pero quien empaquetaba a los malos solía ser Roble. Cecilio... Cecilio estaba ahí, cumplía su
+trabajo, también andaba el camino, o al menos movía las piernas, pero nunca llegaba al final a base de ideas,
 asociaciones, saltos lógicos. De hecho, a veces ni siquiera estaba
 ahí. Cuando no era su turno, o cuando era su turno y tenía su mente en
 alguna clase o en algún otro manual para preparar oposiciones. Que
