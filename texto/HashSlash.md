@@ -3658,7 +3658,7 @@ Pero eso no quería decir que no pudieran tenerlo. Desde el primer día
 sus duendes de la web profunda habían estado etiquetando las imágenes
 que tenía de la fiesta. Rostros en el marasmo de detrás de un selfie,
 personas que sostienen un cigarro en una mano y una copa en la otra y
-que se entrenvén entre una oreja y otra, vídeos panorámicos sin ton ni
+que se entrevén entre una oreja y otra, vídeos panorámicos sin ton ni
 son que recorren una multitud y se quedan con la primera fila y con la
 segunda. Ya tenía una lista de personas y ahora también tenía un
 perfil: un perfil profesional. Así que era cuestión de cotejar. O de
@@ -3666,7 +3666,30 @@ eliminar, más bien.
 
 Como tendría que eliminar el problema que habitaba su garaje. Era un poco como una caries en sus estadios iniciales. Sólo la notas de vez en cuando y el resto del tiempo no hace sentir su presencia, pero está ahí. Ahora, cuando se hace notar es cuando tienes que tener analgésicos suficientemente fuertes cerca. 
 
-Se comenzaron a oir 
+Se comenzaron a oir golpes en la puerta metálica del
+garaje. Afortunadamente, era media mañana y no era lo más ruidoso que
+circulaba por el vecindario a esas horas. Lo más ruidoso solían ser
+reliquias que, de alguna forma, se habían mantenido más que por su
+relevancia comercial, por la textura sonora que añadían a las calles
+de la ciudad: la camioneta que repartía las bombonas de butano, el
+afilador e, incluso, una vez, la troupe calé con un miembro de la raza
+caprina. Escenas todas ellas merecedoras de la etiqueta #vintage y que
+le habían granjeado bastantes *me gusta* en las fotos que había hecho
+en Instagram. 
+
+Lo que no iba a conseguir con lo que fuera que estuviera aporreando la
+puerta de su garaje. Con insistencia. Roble pensó que no estaba
+preparado para esto. Los cuadricópteros tardarían en llegar y ni
+siquiera tenía cámaras que apuntaran hacia la calle. Y cuando uno no
+está preparado para un problema, lo mejor es ignorarlo. Desde su
+pulsera activó la aplicación de radio en un canal de *trash metal*, lo
+que ahogó cualquier ruido metálico e incluso interfirió con las ondas
+cerebrales de Roble impidiendo todo pensamiento y llevándolo,
+momentáneamente, a un estado bastante zen.
+
+
+
+
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
