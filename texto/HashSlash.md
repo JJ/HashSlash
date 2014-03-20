@@ -2998,7 +2998,7 @@ Y había un tío en su garaje.
 
 Y alguien estaba llamando a la puerta. Con los nudillos. Se sobresaltó
 con el sonido que nunca había escuchado antes en esta casa. Todo el mundo
-pasaba las pulseras con chips NFC por la placa que, además, permitían identificar de quién se
+pasaba las pulseras con chips NFC por la placa que, además, permitían identificar de quién se 
 trataba. Bueno, y luego estaba Demelza que se saltaba el sistema
 directamente. Sin embargo, no le acabó de sonar mal el golpe de algo
 sobre una sólida puerta metálica. También tenía su ID implícito:
@@ -3028,7 +3028,7 @@ su garaje, concretamente.
 
 Roble señaló a su izquierda y le indicó.
 
-—Por ahí. Garaje. - dijo, y cerró la puerta.
+—Por ahí. Garaje -, dijo, y cerró la puerta.
 
 Inmediatamente envió un mensaje de voz a Demelza. Es posible que
 Demelza no lo escuchara correctamente, porque a mitad de la grabación
@@ -3050,7 +3050,7 @@ en la puerta.
 ## Visitas a horas intempestivas
 
 Roble se sorprendió de que Demelza hubiera decidido usar el
-método convencional, al menos por esta vez. También de que hubiera
+método convencional de llamar a la puerta, al menos por esta vez. También de que hubiera
 tardado tan poco en llegar desde su mensaje. O estaba muy cerca, o
 corría mucho. O tenía moto.
 
@@ -3296,7 +3296,7 @@ para abrir la puerta, unido por un cable que salía verticalmente de
 él, llegaba al techo y continuaba, en el ángulo entre pared y techo,
 hacia el interior del garaje.
 
-Mientras Demelza deconstruía la entrada a su garaje, Roble ensuciaba
+Mientras Demelza deconstruía las paredes de la entrada a su garaje, Roble ensuciaba
 sus
 [pantalones Oliver Spencer](http://oliverspencer.co.uk/drawstring-trouser-blake-olive-ost48)
 con el cieno de grasa y polvo que había en el suelo de la rampa;
@@ -3661,11 +3661,36 @@ Pero eso no quería decir que no pudieran tenerlo. Desde el primer día
 sus duendes de la web profunda habían estado etiquetando las imágenes
 que tenía de la fiesta. Rostros en el marasmo de detrás de un selfie,
 personas que sostienen un cigarro en una mano y una copa en la otra y
-que se entrenvén entre una oreja y otra, vídeos panorámicos sin ton ni
+que se entrevén entre una oreja y otra, vídeos panorámicos sin ton ni
 son que recorren una multitud y se quedan con la primera fila y con la
 segunda. Ya tenía una lista de personas y ahora también tenía un
 perfil: un perfil profesional. Así que era cuestión de cotejar. O de
 eliminar, más bien. 
+
+Como tendría que eliminar el problema que habitaba su garaje. Era un poco como una caries en sus estadios iniciales. Sólo la notas de vez en cuando y el resto del tiempo no hace sentir su presencia, pero está ahí. Ahora, cuando se hace notar es cuando tienes que tener analgésicos suficientemente fuertes cerca. 
+
+Se comenzaron a oir golpes en la puerta metálica del
+garaje. Afortunadamente, era media mañana y no era lo más ruidoso que
+circulaba por el vecindario a esas horas. Lo más ruidoso solían ser
+reliquias que, de alguna forma, se habían mantenido más que por su
+relevancia comercial, por la textura sonora que añadían a las calles
+de la ciudad: la camioneta que repartía las bombonas de butano, el
+afilador e, incluso, una vez, la troupe calé con un miembro de la raza
+caprina. Escenas todas ellas merecedoras de la etiqueta #vintage y que
+le habían granjeado bastantes *me gusta* en las fotos que había hecho
+en Instagram. 
+
+Lo que no iba a conseguir con lo que fuera que estuviera aporreando la
+puerta de su garaje. Con insistencia. Roble pensó que no estaba
+preparado para esto. Los cuadricópteros tardarían en llegar y ni
+siquiera tenía cámaras que apuntaran hacia la calle. Y cuando uno no
+está preparado para un problema, lo mejor es ignorarlo. Desde su
+pulsera activó la aplicación de radio en un canal de *trash metal*, lo
+que ahogó cualquier ruido metálico e incluso interfirió con las ondas
+cerebrales de Roble impidiendo todo pensamiento y llevándolo,
+momentáneamente, a un estado bastante zen.
+
+
 
 
 
