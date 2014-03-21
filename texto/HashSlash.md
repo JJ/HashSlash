@@ -3686,7 +3686,16 @@ que ahogó cualquier ruido metálico e incluso interfirió con las ondas
 cerebrales de Roble impidiendo todo pensamiento y llevándolo,
 momentáneamente, a un estado bastante zen.
 
+Estado zen que desapareció con la repentina pérdida de un riff, algo que causaba que la armonía metálica hubiera desaparecido. Desde su móvil, desde la cama, probó diferentes ecualizaciones. Nada, la ausencia seguía ahí. O la presencia seguía sin seguir. Apagó. Habían dejado de llamar a la puerta del garaje. Otro cliente satisfecho. O satisfecho con la existencia de la ausencia de Nacho. O ausencia de existencia. Satisfecho, en todo caso.
 
+Y Roble no lo iba a estar menos. Por pocotiempo. El cardiómetro de su pulsera ya había detectado la aceleración del corazón inherente al estado de vigilia y estaba transmitiendo a sus diferentes apps tal hecho; estas a su vez estaban pasando al mismo estado y empezando a recordarle a Roble sus obligaciones.
+
+* Comer, pero no mucho.
+* Escribir en cantidad y calidad.
+* Hacer algo de dinero, con que lo hiciera en cantidad era suficiente.
+* Hacer ejercicio.
+
+Todas esas apps de estilo de vida, a su vez orquestadas por otra app que las priorizó, callaron cuando tomó un zumo de granada, garabateó en su móvil notas para escribirlas más tarde, escaneó informes de la comisaría y los subió a un sitio mientras tomaba un segundo vaso de zumo y, finalmente, para satisfacer al último, al más exigente, momentáneamente, se puso las zapatillas de deporte, cuyos chips NFT se conectaron con la pulsera, tranquilizándola y diciéndole "Eh, ¡que ya va a hacer ejercicio! ¡De veras! ¿No lo ves? ¡Se ha puesto las zapatillas!"
 
 
 
