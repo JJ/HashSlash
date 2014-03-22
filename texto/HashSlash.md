@@ -3717,11 +3717,13 @@ Había un asunto más que debería haber ocupado su tiempo. Pero no tenía app p
 
 —¿Así de fácil? - preguntó Cecilio.
 
-—Así de jodido. Vete tú a saber quién lo envia, quién lo recibe, qué pinta tiene el paquete, cuando lo hacen... generalmente vienen de Asia, generalmente vienen de un laboratorio farmacéutico legal, generalmente en un paquete pequeño... Pero puede ser otra cosa. Si fuera así, los trincaríamos siempre...
+—Así de jodido. Vete tú a saber quién lo envía, quién lo recibe, qué pinta tiene el paquete, cuando lo hacen... generalmente vienen de Asia, generalmente vienen de un laboratorio farmacéutico legal, generalmente en un paquete pequeño... Pero puede ser otra cosa. Si fuera así, los trincaríamos siempre...
 
 —Pero... -, dijo Cecilio.
 
 —Manzanas, Cécil. Que el tema es jodido, pero ya ha ido nuestro compañero Ginés, por mal nombre el Cabraloca -, y se rió al decir esto-, a preguntarle al tal Nacho. 
+
+Trabajo que se quitaba de encima, pensó Cecilio. Trabajo inútil, además, porque ya podían preguntarle lo que fuera, que poco le iba a decir a él. Ahora, al Cabraloca, a ese sí que le cantaría hasta la Traviata. 
 
 
 
