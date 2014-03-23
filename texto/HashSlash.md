@@ -2164,7 +2164,7 @@ minuto...
 para no dejarse a sí mismo terminar la frase. 
 
 Roble se terminó de un trago la tónica de origen eslovaco que una distribuidora
-estaba promocinando en esos momentos por los bares granadinos
+estaba promocionando en esos momentos por los bares granadinos
  y eructó quedamente, emitiendo una pequeña y prácticamente invisible
  nube de gas y tapándose
 la boca pudorosamente. La tónica era de la misma marca que figuraba en
