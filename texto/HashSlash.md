@@ -688,7 +688,7 @@ ella. Pero déjame a mi primero, hombre.
 
 Volver
 ---
-{:writer}
+{: .writer}
 
 El hogar es donde dejas el sombrero, ¿no? 
 
@@ -1224,13 +1224,13 @@ Iba por la mitad de la cuesta cuando su pulsera vibró y en ella
 apareció un mensaje informándole de que se había encontrado una conexión
 entre las dos muertas. La real y la putativa. 
 
-<h2>#FAIL</h2>
+<h2 class='writer'>#FAIL</h2>
 
 Los escritores debemos tener nuestras herramientas dispuestas. Como los cazadores, vigilamos un tema, colocamos trampas, circulamos alrededor del mismo, inquirimos, cavamos.
 
 Todo eso son metáforas. Pero a los escritores nos gustan las metáforas.
 
-En realidad, usamos alertas de Google, avisos de Twitter, seguimos por Facebook. A mi me gusta llevar también libreta: cuando algo sucede, móvil en mano, boli en la otra, apunto, resumo, esquematizo.
+En realidad, usamos alertas de Google, avisos de Twitter, seguimos por Facebook. A mi me gusta llevar también una libreta con un nombre en código en la portada: cuando algo sucede, móvil en mano, boli en la otra, apunto, resumo, esquematizo, anoto.
 
 Todo eso no son metáforas.
 
@@ -1240,7 +1240,7 @@ Estalla un trueno en la lontananza, cae un rayo, el mar se encrespa.
 
 Un par de palabras en un tweet de @demechza: “Sigo viva”.
 
-El MF Zabaleta continúa su travesía hacia Tánger. Mi mente vuelve y mi cuerpo también lo hará en cuanto que pueda.
+El MF Zabaleta continúa su travesía hacia Tánger. Mi mente vuelve a Granada y mi cuerpo también lo hará en cuanto que pueda.
 
 ## Interludios y preludios
 
@@ -1332,7 +1332,7 @@ hacerlo. Ni de cometer errores gramaticales. Y faltas de ortografía.
 Realmente, era para matarla.
 
 ## La página en blanco
-{:writer}
+{: .writer}
 
 Cualquier escritor te hablará de ese momento angustioso en el que
 tienes que enfrentarte a una página y las teclas repelen las yemas de
@@ -1744,6 +1744,7 @@ cuando sus labios estaban todavía cerca de su oreja:
 —Nos veremos pronto. 
 
 ## Los trabajos y los días
+{: .writer}
 
 En realidad, no soy escritor durante todas mis horas de vigilia. Nadie
 lo es. “¿Quiere usted escribir? Viva usted primero“, le dijo un
