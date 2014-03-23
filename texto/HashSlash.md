@@ -2709,6 +2709,7 @@ Pero vi al vampiro. El vampiro se la cargó. Fue un vampiro. No fui
 yo. 
 
 ## Profesional
+{: .writer}
 
 No soy un avaro. Cómo puedo haber escrito eso. Nadie es avaro. Ni
 siquiera, hoy en día,
@@ -3119,6 +3120,7 @@ Cecilio era feliz por definición. Pero a veces se acostaba con una
 sonrisa en los labios que duraba al menos hasta el día siguiente. De
 hecho, más que cualquier pensamiento o inquietud relacionado con
 heridas y cuchillos.
+
 
 ## Víctimas de libro
 
@@ -4016,9 +4018,10 @@ campanada, para otras después de la séptima. Muchos pensaron que era
 parte de la narración. Pero no lo era. El cuento, verdaderamente, se había acabado para Julia.  
 
 ## Encontrando el camino
+{: .writer}
 
 La labor de un escritor es hacer que sus personajes encuentren su
-propio camino en el mundo que ha creado para ellos. Ese es el
+propio camino en el mundo que él ha creado para ellos. Ese es el
 problema. Estos lituanos tenían ya el mundo creado y han sido
 incapaces de encontrar el camino que los lleve a una chica española,
 con pinta de chica española, que habla español y que va dejando todo
@@ -4033,6 +4036,7 @@ Y volando en bajo coste.
 
 
 ## Volando voy, volando vengo
+{: .writer}
 
 Hay personas en el mundo cuyo único propósito en la vida parece ser banalizar todo lo que pueda tener glamour u ofrecer algo de lujo a las grises y uniformes vidas de los mortales. Crear diamantes en una fábrica, en vez de en las entrañas de la Tierra. Cruceros con bufé libre, en vez del oropel de las comidas a mesa y mantel con el capitán y los hundimientos por colisión con iceberg. 
 
