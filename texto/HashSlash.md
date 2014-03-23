@@ -1792,20 +1792,19 @@ Roble estaba fuera de turno, pero tras desayunar tostadas con flor de
 sal del Himalaya y aceite de oliva virgen extra extraído en frío de
 olivos 
 armenios se pasó por la comisaría para ver si
-había llegado algún informe nuevo. Había cierta gente que se negaba a
+había llegado algún informe nuevo. Había cierto tipo de gente que se negaba a
 dejar nada en un servidor web o enviarla por correo electrónico, así
-que algunas veces no quedaba más remedio. Y luego, estaba la ley de
+que algunas veces no quedaba más remedio que situarse físicamente en el mismo lugar en el que estuvieran dichos informes. Y luego, estaba la ley de
 protección de datos, que, en general, hacía más difícil acceder a
 información en la comisaría que comprarla o buscarla en la web
-profunda. Pero a veces no había más remedio que usar la de la
-comisaría, porque era la única que tenía valor probatorio. Y, al
+profunda. Lo que te permitía avanzar rápidamente, pero a veces no había más remedio que usar la que hubiera llegado por canales oficiales, porque era la única que tenía valor probatorio. Y, al
 final, saber quién era el malo estaba bien, pero lo que realmente le
 ponía cachondo a Roble era que el mismo perpetrador, y todo el mundo,
 supieran que había sido el propio Roble el que había conseguido las
-pruebas, tirado del hilo, andado el camino que lleva a la condena.
+pruebas, tirado del hilo y andado el camino que lleva a la condena. Y para andar ese camino no había más remedio que hacerlo con los zapatones de policía al que exigían leer, personalmente en persona, los informes en al misma comisaría. 
 
-Porque solía ser Roble. Cecilio... Cecilio estaba ahí, cumplía su
-trabajo, también andaba el camino, o al menos movía las piernas, pero nunca había ideas,
+Era el tipo de labor que podría haber delegado el Cecilio o en alguno de los otros compañeros del turno. Pero quien empaquetaba a los malos solía ser Roble. Cecilio... Cecilio estaba ahí, cumplía su
+trabajo, también andaba el camino, o al menos movía las piernas, pero nunca llegaba al final a base de ideas,
 asociaciones, saltos lógicos. De hecho, a veces ni siquiera estaba
 ahí. Cuando no era su turno, o cuando era su turno y tenía su mente en
 alguna clase o en algún otro manual para preparar oposiciones. Que
@@ -2152,35 +2151,45 @@ para sí.
 
 ## Kevin, el asesino
 
-—¿Quién es el asesino? ¿El Kevin? - preguntó, Cecilio.
+—¿Quién es el asesino? ¿El Kevin? -, preguntó Cecilio.
 
-—¿Kevin? No, - contestó Roble. - Te mando todo.
+—¿Kevin? No -, contestó Roble. - Te mando todo.
 
 —¡No! - dijo Cecilio. - No me lo mandes, ¡cuéntamelo! Joer, que es un
 minuto...
 
 —No. No lo es -, dijo Roble. - Por eso te lo mando. Léelo. 
 
-—Pero... 
+—Pero... -, dijo Cecilio, pasándose la palma de la mano por la boca
+para no dejarse a sí mismo terminar la frase. 
 
-Roble se terminó la tónica de origen eslovaco que se estaba bebiendo
-de un trago y eructó quedamente, emitiendo una pequeña y prácticamente invisible nube gas y tapándose
-la boca pudorosamente. La tónica era de la misma marca que adornaba los carteles
-del bar y que se presentaba, en una botella saliendo de un baño de
+Roble se terminó de un trago la tónica de origen eslovaco que una distribuidora
+estaba promocinando en esos momentos por los bares granadinos
+ y eructó quedamente, emitiendo una pequeña y prácticamente invisible
+ nube de gas y tapándose
+la boca pudorosamente. La tónica era de la misma marca que figuraba en
+los carteles que compartían las paredes del bar con fotos de vírgenes
+dolientes y del propietario con famosos periclitados. En los carteles
+la tónica se presentaba en una botella saliendo de un baño de
 burbujas de metacrilato, a los lados de los grifos de los barriles de
 Alhambra. Cecilio nunca entendería esas ganas por probar lo nuevo,
 siempre. Lo nuevo *nunca* es mejor. Cecilio estuvo varios años sin
 probar la
 [milnoh](http://misterbackstage.wordpress.com/2012/07/17/grxperience-blogtrip-2012-la-memoria-definitiva-granada-sensacion-experiencia-emocion-engagement/alhambra-1925/). Tuvo
-que leer la cifra, y escucharla, y probar buchitos, varias veces, para
+que leer repetidamente la cifra, y escucharla, y probar buchitos, varias veces, para
 convencerse de que, bueno, vale, de vez en cuando, la pediría en vez
-de la caña de Alhambra de toda la vida. Por extensión, se sentía incapaz de entender a Roble, que después de unos años seguía siendo "el nuevo". Iba
+de la caña de Alhambra de toda la vida. En particular, se sentía
+incapaz de entender a Roble, que después de unos años seguía siendo
+"el nuevo". En general y en particular el hecho de que no quisiera,
+nunca, resumirle algo en dos palabras y menos cuando, total, era
+incapaz de meter más de eso en una frase. Por eso iba 
 a volverse con sus colegas, los de siempre, los que llaman al pan,
 pan, al vino, vino y a la cerveza, Alhambra, cuando Roble le dijo:
 
 —¿Vienes al interrogatorio?
 
-—Pero...
+—Pero... -, dijo, volviéndose a pasar la palma de la mano por la
+boca, frotándose los labios. 
 
 Pero no estoy de servicio, pensó Cecilio. Tengo cita con el profesor
 de los niños en una hora aproximadamente. Por la tarde, más clases, ni
@@ -3690,7 +3699,44 @@ que ahogó cualquier ruido metálico e incluso interfirió con las ondas
 cerebrales de Roble impidiendo todo pensamiento y llevándolo,
 momentáneamente, a un estado bastante zen.
 
+Estado zen que desapareció con la repentina pérdida de un riff, algo que causaba que la armonía metálica hubiera desaparecido. Desde su móvil, desde la cama, probó diferentes ecualizaciones. Nada, la ausencia seguía ahí. O la presencia seguía sin seguir. Apagó. Habían dejado de llamar a la puerta del garaje. Otro cliente satisfecho. O satisfecho con la existencia de la ausencia de Nacho. O ausencia de existencia. Satisfecho, en todo caso.
 
+Y Roble no lo iba a estar menos. Por poco tiempo. El cardiómetro de su pulsera ya había detectado la aceleración del corazón inherente al estado de vigilia y estaba transmitiendo a sus diferentes apps tal hecho; estas a su vez estaban pasando al mismo estado y empezando a recordarle a Roble sus obligaciones.
+
+* Comer, pero no mucho.
+* Escribir en cantidad y calidad.
+* Mantener su cuenta en bitcoins a un nivel aceptable.
+* Hacer ejercicio.
+
+Todas esas apps de estilo de vida, a su vez orquestadas por otra app que las priorizó, callaron cuando tomó un zumo de granada, garabateó en su móvil notas para escribirlas más tarde, escaneó informes de la comisaría y los subió a un sitio mientras tomaba un segundo vaso de zumo y, finalmente, para satisfacer al último, al más exigente, momentáneamente, se puso las zapatillas de deporte, cuyos chips NFC se conectaron con la pulsera, tranquilizándola y diciéndole "Eh, ¡que ya va a hacer ejercicio! ¡De veras! ¿No lo ves? ¡Se ha puesto las zapatillas!"
+
+Había un asunto más que debería haber ocupado su tiempo. Pero no tenía app para ello. Así que no ocupó ni un minuto de su mente mientras trotaba por las cuestas pedregosas del Barranco del Abogado y sacaba foto de algún graffiti surgido en la última noche. 
+
+## El correo del M
+
+—No, no eres pesao, Cécil, pregunta -, dijo Marisol, al teléfono.
+
+—A ver. El M este, ¿quién lo lleva? ¿Cómo... cómo va? Es que no tengo ni idea por dónde empezar, Marisol, de veras -, dijo Cecilio-, afú...
+
+—Pues por un lado -, dijo Marisol-, o por el otro -, dijo, y soltó una carcajada.
+
+—O por el de más allá -, continuó Cecilio -, lavín, compae, que no lo veo.
+
+—El Nacho ese. ¿No le pasó una raya? ¿Dónde la pilló? -, preguntó Marisol.
+
+—El Nacho ese está más zumbao que una pandereta en Nochebuena. No se entera, o no quiere enterarse. ¿Por el otro lado?
+
+—Pues es más jodido. Estas drogas sintéticas son jodidas -, dijo Marisol -, no es cuestión de buscar a los clanes turcos como con la heroína, o a los nigerianos como con las pastillas, o a los españoles como con todas, va todo por Internet. Lo pides a un laboratorio y te lo manda por correo normal. Pagas como pilles y listo. 
+
+—¿Así de fácil? - preguntó Cecilio.
+
+—Así de jodido. Vete tú a saber quién lo envía, quién lo recibe, qué pinta tiene el paquete, cuando lo hacen... generalmente vienen de Asia, generalmente vienen de un laboratorio farmacéutico legal, generalmente en un paquete pequeño... Pero puede ser otra cosa. Si fuera así, los trincaríamos siempre...
+
+—Pero... -, dijo Cecilio.
+
+—Manzanas, Cécil. Que el tema es jodido, pero ya ha ido nuestro compañero Ginés, por mal nombre el Cabraloca -, y se rió al decir esto-, a preguntarle al tal Nacho. 
+
+Trabajo que se quitaba de encima, pensó Cecilio. Trabajo inútil, además, porque ya podían preguntarle lo que fuera, que poco le iba a decir a él. Ahora, al Cabraloca, a ese sí que le cantaría hasta la Traviata. 
 
 
 
