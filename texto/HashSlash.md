@@ -2148,35 +2148,45 @@ para sí.
 
 ## Kevin, el asesino
 
-—¿Quién es el asesino? ¿El Kevin? - preguntó, Cecilio.
+—¿Quién es el asesino? ¿El Kevin? -, preguntó Cecilio.
 
-—¿Kevin? No, - contestó Roble. - Te mando todo.
+—¿Kevin? No -, contestó Roble. - Te mando todo.
 
 —¡No! - dijo Cecilio. - No me lo mandes, ¡cuéntamelo! Joer, que es un
 minuto...
 
 —No. No lo es -, dijo Roble. - Por eso te lo mando. Léelo. 
 
-—Pero... 
+—Pero... -, dijo Cecilio, pasándose la palma de la mano por la boca
+para no dejarse a sí mismo terminar la frase. 
 
-Roble se terminó la tónica de origen eslovaco que se estaba bebiendo
-de un trago y eructó quedamente, emitiendo una pequeña y prácticamente invisible nube gas y tapándose
-la boca pudorosamente. La tónica era de la misma marca que adornaba los carteles
-del bar y que se presentaba, en una botella saliendo de un baño de
+Roble se terminó de un trago la tónica de origen eslovaco que una distribuidora
+estaba promocinando en esos momentos por los bares granadinos
+ y eructó quedamente, emitiendo una pequeña y prácticamente invisible
+ nube de gas y tapándose
+la boca pudorosamente. La tónica era de la misma marca que figuraba en
+los carteles que compartían las paredes del bar con fotos de vírgenes
+dolientes y del propietario con famosos periclitados. En los carteles
+la tónica se presentaba en una botella saliendo de un baño de
 burbujas de metacrilato, a los lados de los grifos de los barriles de
 Alhambra. Cecilio nunca entendería esas ganas por probar lo nuevo,
 siempre. Lo nuevo *nunca* es mejor. Cecilio estuvo varios años sin
 probar la
 [milnoh](http://misterbackstage.wordpress.com/2012/07/17/grxperience-blogtrip-2012-la-memoria-definitiva-granada-sensacion-experiencia-emocion-engagement/alhambra-1925/). Tuvo
-que leer la cifra, y escucharla, y probar buchitos, varias veces, para
+que leer repetidamente la cifra, y escucharla, y probar buchitos, varias veces, para
 convencerse de que, bueno, vale, de vez en cuando, la pediría en vez
-de la caña de Alhambra de toda la vida. Por extensión, se sentía incapaz de entender a Roble, que después de unos años seguía siendo "el nuevo". Iba
+de la caña de Alhambra de toda la vida. En particular, se sentía
+incapaz de entender a Roble, que después de unos años seguía siendo
+"el nuevo". En general y en particular el hecho de que no quisiera,
+nunca, resumirle algo en dos palabras y menos cuando, total, era
+incapaz de meter más de eso en una frase. Por eso iba 
 a volverse con sus colegas, los de siempre, los que llaman al pan,
 pan, al vino, vino y a la cerveza, Alhambra, cuando Roble le dijo:
 
 —¿Vienes al interrogatorio?
 
-—Pero...
+—Pero... -, dijo, volviéndose a pasar la palma de la mano por la
+boca, frotándose los labios. 
 
 Pero no estoy de servicio, pensó Cecilio. Tengo cita con el profesor
 de los niños en una hora aproximadamente. Por la tarde, más clases, ni
