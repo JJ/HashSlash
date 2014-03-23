@@ -1314,7 +1314,7 @@ hacerlo. Ni de cometer errores gramaticales. Y faltas de ortografía.
 Realmente, era para matarla.
 
 ## La página en blanco
-{:writer}
+{: .writer}
 
 Cualquier escritor te hablará de ese momento angustioso en el que
 tienes que enfrentarte a una página y las teclas repelen las yemas de
@@ -2690,6 +2690,7 @@ Pero vi al vampiro. El vampiro se la cargó. Fue un vampiro. No fui
 yo. 
 
 ## Profesional
+{: .writer}
 
 No soy un avaro. Cómo puedo haber escrito eso. Nadie es avaro. Ni
 siquiera, hoy en día,
