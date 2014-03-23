@@ -392,6 +392,7 @@ ni diuréticos endulzados.
 
 Porque ¿quién está  huyendo?. Yo no. Sólo soy un escritor.
 
+
 Café para dos
 -----
 
@@ -684,9 +685,10 @@ Quique había aprovechado para tirar unas cuantas fotos con el móvil.
 fotos y cuando se le pase el berrinche te dejo cinco minutos con
 ella. Pero déjame a mi primero, hombre.
 
+
 Volver
 ---
-{:writer}
+{: .writer}
 
 El hogar es donde dejas el sombrero, ¿no? 
 
@@ -713,6 +715,7 @@ Es mentira. Sigue nublado. ¿Por qué diablos iba a salir un rayo de luz
 para nadie? Pero os he hecho creer que sí, ¿verdad? 
 
 Así somos los escritores.
+
 
 Asuntos propios
 ----
@@ -874,6 +877,21 @@ tópicos que contenían. Sin embargo, la respuesta fue
 
 Con casi treinta años de policía, Cecilio pensó que la condición
 humana nunca dejaría de sorprenderle.
+
+
+## Condición humana
+{: .writer}
+
+La condición humana. Nada nuevo, nada que me sorprenda. Me sorprendía cuando era un chaval ahí, en Barbate. Todavía siento algo cuando veo en la autovía las indicaciones que lo mencionan, Barbate, 32 kilómetros, salida Barbate Norte, como si hubiera suficiente Barbate para que tuviera un norte y un sur. Además, Barbate es sólo Sur, un sur profundo donde todo el mundo es como tiene que ser y hace lo que tiene que hacer.
+
+Ese algo que siento no es realmente algo. Sentimental, quiero decir. Es simplemente un asalto a las neuronas de los recuerdos, o más bien coma una pieza de un puzzle que encaja, dejando el retrato de una persona completo. El retrato es mío, claro. 
+
+La pieza es pequeñita, pero tiene los bordes dentados. Como las piedras que le tiramos, desde las marismas del río, al helicóptero. Y lo hicimos porque teníamos que hacerlo, porque el helicóptero de la Benemérita iba a descender e impedirnos que cargáramos los fardos que acababan de descargar de la lanzadera. Fardos que eran la vida de mi familia durante un par de meses. Uno, si mi tío se pasaba bebiendo, que solía pasarse, pero sólo Fino La Ina, de la mejor calidad. Decía, el pobre, que cuando uno pillaba la curda de Fino La Ina se creía marqués o duque de Medina Sidonia. Si la pillaba de vino de Chiclana, le daba por ponerse a cavar zanjas. Y él no era de cavar zanjas, sino de cargar fardos en la playa o en las furgonetas debajo de los tomates para llevarlos a cualquier lugar, a donde se consumiera grifa de la buena. A cualquier lugar. Allí mismo, yo también la fumaba, primero mezclando las chinas con el tabaco, luego la hierba que criaba en el huerto de mi casa. Qué feliz estaba mi madre, al final está sentando la cabeza, míralo, sembrando cebollinos o ¿qué es lo que estás sembrando, hijo? Cebollinos, mamá, cebollinos, qué va a ser. Pa la pipirrana. Incluso se lo dijo a mi padre durante los diez minutos de lucidez que transcurrían entre que llegaba de trabajar en el atún y se idiotizaba con el vaso lleno de Don Simón blanco, siempre blanco, le parecía más fino, enfrente de la tele.
+
+No era a esta familia a la que iba a salvar la vida cuando, con el tirachinas y los balines en los bolsillos de los pantalones, pantalones de esos de la mili, que eran los mejores para ir a las recogidas en la playa, me unía a la mitad del pueblo esperando a las lanzaderas. A la Silvia y al Rafael nadie los salvaba ya de esa vida en una casamata de garbanzos con bacalao y vino en cartones o en botellas que rellenan en la bodega. Era a mi, primero, y segundo, al tío Isma, el hermano de mi madre que me regaló un Rólex el día de mi comunión y desde entonces fue mi héroe. Y mi patrón, al que entregaba todo lo que ganaba, luego la mitad, luego algo. Y cuando volví de la cárcel, nada. El duque Ismael era, entonces, un filósofo renegrido que, a la puerta de las tabernas, te cantaba o te narraba historias inventadas por un chato de vino. 
+
+Tampoco me sorprendió. ¿Cómo podía sorprenderme? Sí me sorprendería que siguiera vivo ahora, casi veinte años más tarde. O no, porque no pienso salirme de mi ruta para comprobarlo. 
+
 
 ## Identidad
 
@@ -1206,13 +1224,13 @@ Iba por la mitad de la cuesta cuando su pulsera vibró y en ella
 apareció un mensaje informándole de que se había encontrado una conexión
 entre las dos muertas. La real y la putativa. 
 
-<h2>#FAIL</h2>
+<h2 class='writer'>#FAIL</h2>
 
 Los escritores debemos tener nuestras herramientas dispuestas. Como los cazadores, vigilamos un tema, colocamos trampas, circulamos alrededor del mismo, inquirimos, cavamos.
 
 Todo eso son metáforas. Pero a los escritores nos gustan las metáforas.
 
-En realidad, usamos alertas de Google, avisos de Twitter, seguimos por Facebook. A mi me gusta llevar también libreta: cuando algo sucede, móvil en mano, boli en la otra, apunto, resumo, esquematizo.
+En realidad, usamos alertas de Google, avisos de Twitter, seguimos por Facebook. A mi me gusta llevar también una libreta con un nombre en código en la portada: cuando algo sucede, móvil en mano, boli en la otra, apunto, resumo, esquematizo, anoto.
 
 Todo eso no son metáforas.
 
@@ -1222,7 +1240,7 @@ Estalla un trueno en la lontananza, cae un rayo, el mar se encrespa.
 
 Un par de palabras en un tweet de @demechza: “Sigo viva”.
 
-El MF Zabaleta continúa su travesía hacia Tánger. Mi mente vuelve y mi cuerpo también lo hará en cuanto que pueda.
+El MF Zabaleta continúa su travesía hacia Tánger. Mi mente vuelve a Granada y mi cuerpo también lo hará en cuanto que pueda.
 
 ## Interludios y preludios
 
@@ -1726,6 +1744,7 @@ cuando sus labios estaban todavía cerca de su oreja:
 —Nos veremos pronto. 
 
 ## Los trabajos y los días
+{: .writer}
 
 En realidad, no soy escritor durante todas mis horas de vigilia. Nadie
 lo es. “¿Quiere usted escribir? Viva usted primero“, le dijo un
@@ -3102,6 +3121,7 @@ sonrisa en los labios que duraba al menos hasta el día siguiente. De
 hecho, más que cualquier pensamiento o inquietud relacionado con
 heridas y cuchillos.
 
+
 ## Víctimas de libro
 
 Las víctimas de las novelas de Roble eran, en realidad, suicidas que
@@ -3998,9 +4018,10 @@ campanada, para otras después de la séptima. Muchos pensaron que era
 parte de la narración. Pero no lo era. El cuento, verdaderamente, se había acabado para Julia.  
 
 ## Encontrando el camino
+{: .writer}
 
 La labor de un escritor es hacer que sus personajes encuentren su
-propio camino en el mundo que ha creado para ellos. Ese es el
+propio camino en el mundo que él ha creado para ellos. Ese es el
 problema. Estos lituanos tenían ya el mundo creado y han sido
 incapaces de encontrar el camino que los lleve a una chica española,
 con pinta de chica española, que habla español y que va dejando todo
@@ -4015,6 +4036,7 @@ Y volando en bajo coste.
 
 
 ## Volando voy, volando vengo
+{: .writer}
 
 Hay personas en el mundo cuyo único propósito en la vida parece ser banalizar todo lo que pueda tener glamour u ofrecer algo de lujo a las grises y uniformes vidas de los mortales. Crear diamantes en una fábrica, en vez de en las entrañas de la Tierra. Cruceros con bufé libre, en vez del oropel de las comidas a mesa y mantel con el capitán y los hundimientos por colisión con iceberg. 
 
