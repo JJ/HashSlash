@@ -392,6 +392,7 @@ ni diuréticos endulzados.
 
 Porque ¿quién está  huyendo?. Yo no. Sólo soy un escritor.
 
+
 Café para dos
 -----
 
@@ -684,6 +685,7 @@ Quique había aprovechado para tirar unas cuantas fotos con el móvil.
 fotos y cuando se le pase el berrinche te dejo cinco minutos con
 ella. Pero déjame a mi primero, hombre.
 
+
 Volver
 ---
 {:writer}
@@ -713,6 +715,7 @@ Es mentira. Sigue nublado. ¿Por qué diablos iba a salir un rayo de luz
 para nadie? Pero os he hecho creer que sí, ¿verdad? 
 
 Así somos los escritores.
+
 
 Asuntos propios
 ----
@@ -874,6 +877,21 @@ tópicos que contenían. Sin embargo, la respuesta fue
 
 Con casi treinta años de policía, Cecilio pensó que la condición
 humana nunca dejaría de sorprenderle.
+
+
+## Condición humana
+{: .writer}
+
+La condición humana. Nada nuevo, nada que me sorprenda. Me sorprendía cuando era un chaval ahí, en Barbate. Todavía siento algo cuando veo en la autovía las indicaciones que lo mencionan, Barbate, 32 kilómetros, salida Barbate Norte, como si hubiera suficiente Barbate para que tuviera un norte y un sur. Además, Barbate es sólo Sur, un sur profundo donde todo el mundo es como tiene que ser y hace lo que tiene que hacer.
+
+Ese algo que siento no es realmente algo. Sentimental, quiero decir. Es simplemente un asalto a las neuronas de los recuerdos, o más bien coma una pieza de un puzzle que encaja, dejando el retrato de una persona completo. El retrato es mío, claro. 
+
+La pieza es pequeñita, pero tiene los bordes dentados. Como las piedras que le tiramos, desde las marismas del río, al helicóptero. Y lo hicimos porque teníamos que hacerlo, porque el helicóptero de la Benemérita iba a descender e impedirnos que cargáramos los fardos que acababan de descargar de la lanzadera. Fardos que eran la vida de mi familia durante un par de meses. Uno, si mi tío se pasaba bebiendo, que solía pasarse, pero sólo Fino La Ina, de la mejor calidad. Decía, el pobre, que cuando uno pillaba la curda de Fino La Ina se creía marqués o duque de Medina Sidonia. Si la pillaba de vino de Chiclana, le daba por ponerse a cavar zanjas. Y él no era de cavar zanjas, sino de cargar fardos en la playa o en las furgonetas debajo de los tomates para llevarlos a cualquier lugar, a donde se consumiera grifa de la buena. A cualquier lugar. Allí mismo, yo también la fumaba, primero mezclando las chinas con el tabaco, luego la hierba que criaba en el huerto de mi casa. Qué feliz estaba mi madre, al final está sentando la cabeza, míralo, sembrando cebollinos o ¿qué es lo que estás sembrando, hijo? Cebollinos, mamá, cebollinos, qué va a ser. Pa la pipirrana. Incluso se lo dijo a mi padre durante los diez minutos de lucidez que transcurrían entre que llegaba de trabajar en el atún y se idiotizaba con el vaso lleno de Don Simón blanco, siempre blanco, le parecía más fino, enfrente de la tele.
+
+No era a esta familia a la que iba a salvar la vida cuando, con el tirachinas y los balines en los bolsillos de los pantalones, pantalones de esos de la mili, que eran los mejores para ir a las recogidas en la playa, me unía a la mitad del pueblo esperando a las lanzaderas. A la Silvia y al Rafael nadie los salvaba ya de esa vida en una casamata de garbanzos con bacalao y vino en cartones o en botellas que rellenan en la bodega. Era a mi, primero, y segundo, al tío Isma, el hermano de mi madre que me regaló un Rólex el día de mi comunión y desde entonces fue mi héroe. Y mi patrón, al que entregaba todo lo que ganaba, luego la mitad, luego algo. Y cuando volví de la cárcel, nada. El duque Ismael era, entonces, un filósofo renegrido que, a la puerta de las tabernas, te cantaba o te narraba historias inventadas por un chato de vino. 
+
+Tampoco me sorprendió. ¿Cómo podía sorprenderme? Sí me sorprendería que siguiera vivo ahora, casi veinte años más tarde. O no, porque no pienso salirme de mi ruta para comprobarlo. 
+
 
 ## Identidad
 
