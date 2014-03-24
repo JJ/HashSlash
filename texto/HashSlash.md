@@ -2769,6 +2769,35 @@ Vuelta a mis galeradas. Vuelta a la escritura. Vuelta a vivir. Sólo me
 hacía falta que me proporcionaran un final para cerrar ese libro, el
 de "Demelza morirá porque a mis editores les molesta". 
 
+Que no entiendo tal molestia. ¿Vende mil, dos mil, veinte mil copias
+de esos opúsculos obscenos y mal pergeñados? ¿Qué más da? ¿No venden
+ellos diez, veinte, cincuenta mil copias de opúsculos obscenos y mal
+pergeñados?
+
+Además, ¿no les sirve la propia muerta? Es pregunta retórica. No les
+sirve, porque si les hubiera servido me habrían dirigido hacia ella,
+no hacia Demelza. Tan chalada como ella, ¿de qué escribiría? Lo podría
+averiguar pero, ¿para qué? Otra escritora chalada muerta. No será la
+última. Ni la última que yo haga.
+
+Al menos a esta hay que agradecerle el buen humor con el que se tomó
+todo el tema. Los profesionales agradecemos eso en los clientes. Se
+reía, se miraba la mano, decía qué grandeeeee, miró el cuchillo y se
+echó a reír, qué navajitaaaaa, decía mientras la volvía de espaldas. Y
+ahí tenía que haberme dado cuenta de que no era ella. Pero sólo había
+un pequeño flexo encendido, de esos pequeñitos que se enganchan al
+ordenador, monísimos, inútiles, una mujer en la penumbra, todas son
+iguales, le alcé la camiseta buscándole el espacio intercostal en el
+que se encuentra el corazón, y todavía se reía hasta que dejó de
+hacerlo. 
+
+Fue cuando yo empecé a reírme. Todavía tenía una sonrisa cuando salí
+por la puerta de la calle. Los profesionales sonreímos cuando se ha
+hecho un trabajo bien. Por eso he borrado la sonrisa de mi cara. Y no
+la volveré a poner hasta que... Bueno, ya lo sabéis. 
+
+Buscando profesionales que sonrían sólo cuando deban hacerlo.
+
 
 ## Esperando el turno
 
