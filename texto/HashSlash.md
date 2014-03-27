@@ -1058,6 +1058,23 @@ la barbilla a la amalgama de dos chicas. Cecilio abrió las manos
 indicándole que no tenía ni idea y le hizo dos gestos simétricos con
 la cabeza indicándole que se largara.
 
+## Motivaciones
+
+La ciudad de la infancia. Barbate. Tú sales de ella, para siempre, pero ella no sale de ti. Larache, en realidad, es Barbate. 
+
+No te estoy diciendo esto, en realidad. Lo estoy pensando. Tampoco lo estoy pensando, lo está pensando un personaje. Y todo esto te da igual porque no has estado nunca ni en Larache ni en Barbate. Los dos se parecen un poco a Algeciras, donde llego y devuelvo el coche alquilado, que son unos geniales vehículos con la anonimidad programada de serie. En Barbate no había donde alquilar coches, pero los olores, la luz, el aire que sopla durante semanas y hace que la gente se vuelva loca o que hace que no haya nada que echarse a la boca si no haces algo que, si la ocsa viene mal dada, te pondrá enfrente de un juez.
+
+Y luego enfrente de una puerta grande con las palabras Prisión Provincial encima, aunque cuando entras lo haces en una furgoneta y no llegas a verlo, ni siquiera cuando pasas al otro lado. Sólo hay rejas y tedio y gente que sabe mucho y otras que ignoran hasta el planeta en el que viven. Como en cualquier otro sitio, en el ferry que me llevará a mi casa. 
+
+Pero allí me hice la persona que soy.
+
+Lo que también es mentira. Porque me hice lo que soy allí, aquél día en clase de lengua y literatura en el que presté atención, un día que me saqué mocos y no me vio nadie y cuando me tomé mi primer café.
+
+Y es que nadie recuerda su primer café. ¿Por qué recuerdan su primer beso y su primer polvo y no su primer café? Ese primer café fue el que te inició en una vida de adicción y de electrodomésticos y de psiconáutica cafeínica que durará toda tu vida. El que hizo que, veinte años más tarde, fueras incapaz hasta de hacerte un café hasta que no te hicieras el primer café. Pero nadie se acuerda. Y el primer café sí que te hace la persona que eres. No la cárcel. 
+
+Pero sí hay una posibilidad, quizás remota, de que yo no hubiera sido escritor si no hubiera estado en la cárcel. Si la costa del Atlántico y el Levante no me hubieran colocado enfrente de un juez. Si no hubiera tirado con un tirachinas un rodamiento de bolas a un helicóptero de vigilancia aduanera. Mira, como ese que se ve. Por babor.
+
+
 ## Vuelta al ruedo
 
 —¿Quién es la muerta? - preguntó Roble.
