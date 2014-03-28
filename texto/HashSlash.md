@@ -3711,7 +3711,7 @@ Había un asunto más que debería haber ocupado su tiempo. Pero no tenía app p
 
 ## El correo del M
 
-—No, no eres pesao, Cécil, pregunta -, dijo Marisol, al teléfono.
+—No, no te está haciendo pesao, Cécil, pregunta -, dijo Marisol, al teléfono. - Por el momento.
 
 —A ver. El M este, ¿quién lo lleva? ¿Cómo... cómo va? Es que no tengo ni idea por dónde empezar, Marisol, de veras -, dijo Cecilio-, afú...
 
@@ -3721,21 +3721,25 @@ Había un asunto más que debería haber ocupado su tiempo. Pero no tenía app p
 
 —El Nacho ese. ¿No le pasó una raya? ¿Dónde la pilló? -, preguntó Marisol.
 
-—El Nacho ese está más zumbao que una pandereta en Nochebuena. No se entera, o no quiere enterarse. ¿Por el otro lado?
+—El Nacho ese está más zumbao que una pandereta en Nochebuena. No se entera, o no quiere enterarse. Por ese lao, ná pelao,- dijo Cecilio, haciendo una pausa para ver si la broma había hecho efecto - ¿Por el otro lao?
 
-—Pues es más jodido. Estas drogas sintéticas son jodidas -, dijo Marisol -, no es cuestión de buscar a los clanes turcos como con la heroína, o a los nigerianos como con las pastillas, o a los españoles como con todas, va todo por Internet. Lo pides a un laboratorio y te lo manda por correo normal. Pagas como pilles y listo. 
+—Pues es más jodido. Estas drogas sintéticas son jodidas -, dijo Marisol -, no es cuestión de buscar a los clanes turcos que la mueven como con la heroína, o a los nigerianos como con las pastillas, o a los españoles como con todas, va todo por Internet. Lo pides a un laboratorio y te lo manda por correo normal. Pagas como pilles y listo. 
 
 —¿Así de fácil? - preguntó Cecilio.
 
-—Así de jodido. Vete tú a saber quién lo envía, quién lo recibe, qué pinta tiene el paquete, cuando lo hacen... generalmente vienen de Asia, generalmente vienen de un laboratorio farmacéutico legal, generalmente en un paquete pequeño... Pero puede ser otra cosa. Si fuera así, los trincaríamos siempre...
+—Así de jodido. Vete tú a saber quién lo envía, quién lo recibe, qué pinta tiene el paquete, cuando lo hacen... generalmente vienen de Asia, generalmente los envía un laboratorio farmacéutico legal, generalmente en un paquete pequeño... Pero, particularmente, puede venir, lo pueden enviar, lo pueden empaquetar como buenamente vean. Si no fuera así, los trincaríamos siempre...
 
 —Pero... -, dijo Cecilio.
 
-—Manzanas, Cécil. Que el tema es jodido, pero ya ha ido nuestro compañero Ginés, por mal nombre el Cabraloca -, y se rió al decir esto-, a preguntarle al tal Nacho. 
+—Menos peros y más manzanas, Cécil. Que el tema es jodido, pero ya ha ido nuestro compañero Ginés, por mal nombre el Cabraloca -, y se rió al decir esto-, a preguntarle al tal Nacho. 
 
 Trabajo que se quitaba de encima, pensó Cecilio. Trabajo inútil, además, porque ya podían preguntarle lo que fuera, que poco le iba a decir a él. Ahora, al Cabraloca, a ese sí que le cantaría hasta la Traviata. 
 
+## Cabras en la puerta
 
+Roble se acercó a su casa con los gritos y los golpes en la puerta del garage aumentando en volumen. Con los auriculares Bose QuietComfort 4x lo único que escuchaba, hasta que llegó a unos metros de la casa, fue el sonido contundente de una batucada alternando, para cambiar de fase, con la grabación de un amanecer en algún punto remoto del Amazonas, lo que escuchan los que ya lo han escuchado todo. Pero los golpes que alguien daba con un objeto metálico en la puerta del garaje hacían vibrar el mismo aire por lo que Roble dio la vuelta a la casa.
+
+Y se encontró con su compañero el Cabraloca que, con la culata de su Beretta, golpeaba la puerta del garaje, llamando a gritos a Nacho. 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
