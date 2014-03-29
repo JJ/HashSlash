@@ -3220,9 +3220,9 @@ la tableta; también paraban a otros conductores, un coche, dos
 bicicletas, una moto más, que se quedaban, ateridos, esperando que les
 tocara el turno de ser procesados.
 
-Finalmente les hablaron.
+Finalmente se dignaron a hablar con ellos. 
 
-—Pueden circular -, les dijo un agente. Demelza y Roble se dirigieron
+—Pueden circular -, les dijo uno de los agentes. Demelza y Roble se dirigieron
 a la moto -, no, en la moto, no -, dijo y miró al otro agente, que le
 dirigió un gesto que seguramente querría decir “siempre pican“ -, ésta
 queda inmovilizada por incumplir la ordenanza municipal de ruidos y
@@ -3231,59 +3231,60 @@ sonidos.
 Roble se sorprendió. ¡Pero si era eléctrica y no emitía más que un
 zumbido! 
 
-—Agente, si no... - empezó a decirle Roble. Pero el agente no hizo
+—Agente, si no... - empezó a decirle Roble. Pero el agente no le hizo
 caso y continuó.
 
-—Si no la llevan a un concesionario autorizado que la dote de alguno
+—Si, cuando la recojan del depósito municipal, no la llevan de forma inmediata a un concesionario autorizado que la dote de alguno
 de los sonidos obligatorios para ciclomotores de esta cilindrada,
-tendrá que abonar una multa adicional y podremos volver a
+tendrá que abonar una multa adicional -, dijo, y señaló con el dedo a Demelza-, y podremos volver a
 inmovilizarla.
 
 Roble abrió la boca y miró a Demelza, que estaba echándose ya a
- andar con el casco debajo del brazo. 
+ andar, alejándose de la escena, con el casco debajo del brazo. 
  
- —¡Espere! - dijo el agente; se acercó a ella y le alargó un papel -
- Puede abonar la multa cuando desee pero usté verá, hay un descuento
+ —¡Espere! -. dijo el agente; Demelza deceleró un poco el paso para que el agente la alcanzara, pero no llegó a pararse. El agente tuvo que dar una carrerilla y le alargó un papel -
+ Puede abonar la multa -, dijo, parando para recuperar el resuello -, cuando desee pero usté verá, hay un descuento
  por pronto pago.
  
  Demelza le arrebató el papel de las manos y se lo metió en un
- bolsillo, arrugado. Roble se puso a su altura.
+ bolsillo, arrugado. Roble dio unas zancadas y se puso a su altura.
  
  —Es que no puedo soportar los sonidos que venden, qué quieres que te
- diga. Y además, no encajan con el tuneado. Cualquiera que pongo me pone de los nervios. Así que los quito
+ diga. Y además, no encajan con el tuneado. Cualquiera que le meto me pone de los nervios. Así que va sin sonido
  y si me tienen que poner una multa, la pago y listo. 
  
- Roble siguió andando con ella. No estaban lejos de la casa donde
+ Roble siguió andando, ahora un paso por delante de lla. No estaban lejos de la casa de Demelza, donde
  había sucedido el asesinato. Un minuto más tarde pasaron por
-delante ella, todavía precintada, en busca de la
+delante de ella, todavía precintada, en busca de la
 papelera, colgada en una farola muy cerca del bar donde, un par de
-días antes, Roble se había tomado un café con Tina. 
+días antes, Roble se había tomado un café con Tina. Detrás de ellos, el cielo tras Sierra Nevada comenzaba a azulear de forma imperceptible, haciendo destacar las montañas como ausencias en él. 
 
-Roble despegó la papelera de su soporte, le quitó la tapa de plástico de color
+Demelza se paró delante de la papelera; Roble la miró durante un momento, como pensando si había un app para interaccionar con ese tipo de artefactos físicos, y la  despegó de su soporte. Le quitó la tapa de plástico de color
 naranja y vertió su contenido en la acera. Un anciano en zapatillas,
 bata y gorro militar ruso que paseaba a su
 perro lo miró con gesto desabrido.  El perro, sin embargo,  se acercó moviendo la cola a olfatear
-el montón de basura del suelo. 
+el montón de basura del suelo. El gesto desabrido y los tirones de la correa se los llevó el perro.
 
-Roble empezó a desbrozarlos y volver a meterlos en la papelera, que
+Roble suspiró, se arrodilló y empezó a coger cosas del montón del suelo. Los sacudía  y volvía a meterlos en la papelera, que
 había vuelto a enganchar a su soporte, pero se paró en cuanto que
-llegó a algo húmedo y pegajoso. Demelza continuó quitando bolsas con
+llegó a algo húmedo y pegajoso, agarrándolo con dos dedos y echándolo, en un arco preciso, a donde  había procedido. Se levantó y se sacudió con energía las rodillas mientras pensaba la forma de lavarse las manos a esas horas. Mientras tanto, Demelza continuó su labor quitando del montón bolsas con
 contenido rezumante, papeles desgarrados, una batería de un móvil,
 restos de tela, bolsas de plástico vacías, cuatro yogures todavía
-enganchados y sin caducar, un resto de un bocadillo de Nocilla con los
+enganchados en su pack y con fecha de caducidad en el futuro, un resto de un sandwich de Nocilla con los
 bordes del pan recortados cuidadosamente, y, finalmente, nada.
 
-—Tu garaje.
+Demelza se levantó y sacó un frasquito de colonia de su bolso; se echó un poco en las manos y se restregó vigorosamente. Un olor a infancia y a multinacional del cosmético se trató de imponer al olor grasiento que había dejado la pila de basura en la acera. Miró a Roble.
+
+—Tu garaje -, dijo éste. 
 
 —¿Por qué? Si no podemos entrar en la casa -, dijo Demelza. - Bueno,
 igual tú sí.
 
-Roble emprendió el camino, dejándole a Demelza con la moto, la tapa
-de la papelera y unas ganas terribles de lavarse las manos. Demelza
-miró a los bares a ambos lados de la carretera, pero todavía no habían
-abierto, así que se montó en la moto, adelantando a Roble por el
-camino. Lo esperó en la rampa de entrada al garaje, que estaba a la
-izquierda de la puerta de entrada.
+Roble emprendió el camino, dejándole a Demelza con la tapa
+de la papelera y unas ganas terribles de darse una ducha. Demelza
+miró a los bares a ambos lados de la calle, pero todavía no habían
+abierto, así que se siguió a Roble, unos pasos más atrás. La rampa de entrada al garaje, que estaba a la
+izquierda de la puerta de entrada, allí lo alcanzó. Roble, brazos en jarras, lanzaba miradas a paredes y techo, aparentemente al azar. 
 
 —¿Qué hay que buscar? - preguntó Demelza.
 
@@ -3340,7 +3341,7 @@ hueco para esconder algo y luego lo hubiera retirado.
 
 —Muy pro - dijo Roble.
 
-Efectivamente, parecía un trabajo profesional; una vez enterrados ahí,
+Demelza no vio más que dos desconchones. Lo que, posiblemente, podía deberse a la profesionalidad del trabajo; una vez enterrados ahí,
 se podía saber cuando un vehículo entraba o salía por el orden por el
 que pasaba por las balizas. Y no había muchos más vehículos en el
 garaje. Ninguno, de hecho.
