@@ -3761,6 +3761,22 @@ ligeramente de los auriculares, que se desprendieron de sus orejas de
 forma grácil y con un alejamiento repentino del sonido de una
 madrugada amazónica.
 
+El Cabraloca se guardó la pistola en la sobaquera. De alguna forma y
+con el mismo gesto, se sacó un cigarrillo electrónico y empezó a
+emitir nubes de vapor lo que, junto con la gabardina negra, las botas
+de cuero y la
+cabellera ondulada, le daba un cierto aire cyberpunk. Si le hubieran
+asomado puntillas por las bocamangas habría podido perfectamente
+encajar en un evento de *cosplay*.
+
+—¿Tú no tenías turno hoy, Roble? He visto a tu compañero en la
+comisaría -, le dijo a Roble.
+
+—Ignacio Salido -, dijo Roble. No sabía si él sabía que ésa era su
+casa. Pero sí tenía que saber, o podría saber, que Ignacio había
+aparecido en su investigación del crimen de Ainhoa. Soltar el nombre a
+ver qué sabía parecía el curso de acción más prudente, por el
+momento. 
 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt

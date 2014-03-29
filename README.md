@@ -24,7 +24,7 @@ pertenece a esta primera serie.
 * La segunda serie incluye los dos puntos de vista anterior, aunque
 los libros no abarcan el mismo intervalo temporal y añade la narración
 en primera persona de un personaje, el
-Escritor. [#Slash, la muerta de verdad]](https://www.amazon.es/dp/B00IBIYHC0?tag=atalaya-21&camp=3634&creative=24822&linkCode=as4&creativeASIN=B00IBIYHC0&adid=1QPHCEY5JGN96X9AM0MN&)
+Escritor. [#Slash, la muerta de verdad](https://www.amazon.es/dp/B00IBIYHC0?tag=atalaya-21&camp=3634&creative=24822&linkCode=as4&creativeASIN=B00IBIYHC0&adid=1QPHCEY5JGN96X9AM0MN&)
 es el primer libro de esa segunda serie.
 * La tercera serie elimina al escritor e incluye los monólogos de un
   tercer personaje,
