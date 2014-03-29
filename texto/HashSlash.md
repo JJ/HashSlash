@@ -1,4 +1,4 @@
-<!--- -*-  eval: (typopunct-mode 1); eval: (typopunct-change-language: spanish) -*- -->
+<!--- -*-  eval: (typopunct-mode 1); eval: (typopunct-change-language: english) -*- -->
 
 <h1>#slash</h1>
 
@@ -3737,9 +3737,31 @@ Trabajo que se quitaba de encima, pensó Cecilio. Trabajo inútil, además, porq
 
 ## Cabras en la puerta
 
-Roble se acercó a su casa con los gritos y los golpes en la puerta del garage aumentando en volumen. Con los auriculares Bose QuietComfort 4x lo único que escuchaba, hasta que llegó a unos metros de la casa, fue el sonido contundente de una batucada alternando, para cambiar de fase, con la grabación de un amanecer en algún punto remoto del Amazonas, lo que escuchan los que ya lo han escuchado todo. Pero los golpes que alguien daba con un objeto metálico en la puerta del garaje hacían vibrar el mismo aire por lo que Roble dio la vuelta a la casa.
+Roble se acercó a su casa con los gritos y los golpes en la puerta del
+garaje aumentando en volumen. Sólo empezó a escucharlos cuando llegó a
+unos metros de la misma, cuando casi podía ver, reflejado en los
+cristales oscuros de la estancia principal, quién lo producía. Antes,
+con los auriculares Bose QuietComfort 4x, 
+lo único que escuchaba era
+el sonido contundente de una batucada alternando, para cambiar de
+fase, con la grabación de un amanecer en algún punto remoto del
+Amazonas, lo que escuchan los que ya lo han escuchado todo. Pero los
+golpes que alguien daba con un objeto metálico en la puerta del garaje
+hacían vibrar el mismo aire por lo que Roble dio la vuelta a la casa. 
 
-Y se encontró con su compañero el Cabraloca que, con la culata de su Beretta, golpeaba la puerta del garaje, llamando a gritos a Nacho. 
+Y se encontró con su compañero el Cabraloca que, con la culata de su
+Beretta, golpeaba la puerta del garaje, llamando a gritos a Nacho.
+Roble suponía que era Nacho porque entre veinte insultos como
+“drogata”, “yonqui de los cojones” y
+“cabrón”  a veces decía “Nachito” o “Nachete”. Además, en el garaje de
+Roble no habitaban más “yonquis de los cojones”.
+
+—Gil -, le dijo Roble al Cabraloca, sin ademán de darle la mano; tiró
+ligeramente de los auriculares, que se desprendieron de sus orejas de
+forma grácil y con un alejamiento repentino del sonido de una
+madrugada amazónica.
+
+
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
