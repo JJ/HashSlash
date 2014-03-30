@@ -3280,7 +3280,7 @@ Demelza se levantó y sacó un frasquito de colonia de su bolso; se echó un poc
 —¿Por qué? Si no podemos entrar en la casa -, dijo Demelza. - Bueno,
 igual tú sí.
 
-Roble emprendió el camino, dejándo a Demelza con la tapa
+Roble emprendió el camino, dejando a Demelza con la tapa
 de la papelera y unas ganas terribles de darse una ducha. Demelza
 miró a los bares a ambos lados de la calle, pero todavía no habían
 abierto, así que se siguió a Roble, unos pasos más atrás. La rampa de entrada al garaje, que estaba a la
