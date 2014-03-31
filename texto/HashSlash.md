@@ -3253,7 +3253,7 @@ Roble abrió la boca y miró a Demelza, que estaba echándose ya a
  diga. Y además, no encajan con el tuneado. Cualquiera que le meto me pone de los nervios. Así que va sin sonido
  y si me tienen que poner una multa, la pago y listo. 
  
- Roble siguió andando, ahora un paso por delante de lla. No estaban lejos de la casa de Demelza, donde
+ Roble siguió andando, ahora un paso por delante de ella. No estaban lejos de la casa de Demelza, donde
  había sucedido el asesinato. Un minuto más tarde pasaron por
 delante de ella, todavía precintada, en busca de la
 papelera, colgada en una farola muy cerca del bar donde, un par de
@@ -3280,7 +3280,7 @@ Demelza se levantó y sacó un frasquito de colonia de su bolso; se echó un poc
 —¿Por qué? Si no podemos entrar en la casa -, dijo Demelza. - Bueno,
 igual tú sí.
 
-Roble emprendió el camino, dejándole a Demelza con la tapa
+Roble emprendió el camino, dejando a Demelza con la tapa
 de la papelera y unas ganas terribles de darse una ducha. Demelza
 miró a los bares a ambos lados de la calle, pero todavía no habían
 abierto, así que se siguió a Roble, unos pasos más atrás. La rampa de entrada al garaje, que estaba a la
@@ -3290,7 +3290,7 @@ izquierda de la puerta de entrada, allí lo alcanzó. Roble, brazos en jarras, l
 
 —Cualquier cosa -, contestó Roble. 
 
-—¿Cualquier cosa como...? - preguntó Demelza.
+—¿Cualquier cosa como? -, preguntó Demelza.
 
 —Cualquier cosa -, respondió Roble.
 
@@ -3312,12 +3312,13 @@ arriba en la pared.
 
 Demelza siguió mirando de forma dispersa, a esta pared, a aquel techo,
 a la farola que había a la derecha de la salida y que tanto le
-fastidiaba. A los papeles con chips NFC que había pegados en la farola y que le
+fastidiaba, cuando, distraída, olvidaba que se encontraba ahí y
+enfilaba la rampa en diagonal. A los papeles con chips NFC que había pegados en la farola y que le
 hacían saltar anuncios en su móvil cuando pasaba por allí,
 ofreciéndole alquiler de pisos en esa zona, masajes y cerrajeros 24
 horas. 
 
-Roble se fijaba, especialmente, en un desconchón en la pared de la
+Pero Roble se había fijado, especialmente, en un desconchón en la pared de la
 izquierda de la rampa, a la altura aproximada del pecho. Miró hacia su
 derecha y bajó por la rampa. Se paró muy cerca de la puerta y se fijó
 en otro desconchón, más o menos del mismo tamaño y más o menos a la
@@ -3328,30 +3329,35 @@ cosas en él.
 desconchones. 
 
 —No -, contestó Demelza -, bueno, ahora sí, y ese, y ese, - dijo,
-señalando a diversos desconchones irregulares por toda la rampa y en
-la puerta - y todos esos
-roces de ahí, que ahora que lo pienso, si estamos solas, ¿quién
+señalando a diversos desconchones de formas irregulares por toda la rampa y en
+la misma puerta - y todos esos
+roces de ahí, que ahora que lo pienso, si estamos solas en el bloque, ¿quién
 coño...?
 
-Pero Demelza se dio cuenta de lo que decía. Dos desconchones, un
-pequeño círculo, pero con una pequeña cavidad excavada en la pared. Los otros
-desconchones eran simplemente descamaciones de la pintura o roces que
-dejaban restos de pintura. Aquí parecía que alguien hubiera hecho un
-hueco para esconder algo y luego lo hubiera retirado.
+Pero Demelza se percató de los desconchones que indicaba Roble. Dos desconchones, cada
+uno de ellos  de forma aproximadamente circular pero convertida en
+estrella por los bordes irregulares, pero con una pequeña cavidad de
+la misma forma excavada en la pared. Roble había visto que el resto de los desperfectos eran
+simplemente descamaciones superficiales de la pintura o roces que
+dejaban rayajos del color de lo que los hubiera producido. En esos dos parecía que alguien hubiera hecho un
+hueco para esconder algo, lo hubiera tapado con pintura y luego lo hubiera retirado.
 
-—Muy pro - dijo Roble.
+—Muy pro -, dijo Roble.
 
-Demelza no vio más que dos desconchones. Lo que, posiblemente, podía deberse a la profesionalidad del trabajo; una vez enterrados ahí,
-se podía saber cuando un vehículo entraba o salía por el orden por el
+Sin embargo, Demelza no vio más que dos desconchones. Lo que,
+posiblemente, podía deberse a la profesionalidad del trabajo.  Roble
+coligió que una vez enterrados ahí quien recibiera la señal 
+podía deducir cuando un vehículo entraba o salía por el orden por el
 que pasaba por las balizas. Y no había muchos más vehículos en el
 garaje. Ninguno, de hecho.
 
-Alguien que se dedicaba habitualmente a la caza y asesinato había estado siguiendo los movimientos de
-Demelza. Y alguien más, menos profesional. El menos profesional podía
+Y de ahí, Roble dedujo que alguien que se dedicaba habitualmente a la caza y asesinato había estado siguiendo los movimientos de
+Demelza. Y alguien más, menos profesional, por la baliza que había
+encontrado la propia Demelza en la moto. El menos profesional podía
 haber sido Ainhoa, pensó Roble. Y el más profesional, el asesino. O
 asesina. O asesinos. Y en cualquiera de las hipótesis, Roble no sabía
-por dónde empezar. Pero al menos sabía que no era Tina, ni Nacho, ni
-ninguno de los que se habían investigado hasta ahora.
+por dónde empezar a buscarlos. Pero al menos sabía que no era Tina, ni Nacho, ni
+ninguno de los que habían aparecido en las apuestas hasta ahora.
 
 
 ## Interrogatorios posiblemente superfluos
@@ -3697,7 +3703,13 @@ que ahogó cualquier ruido metálico e incluso interfirió con las ondas
 cerebrales de Roble impidiendo todo pensamiento y llevándolo,
 momentáneamente, a un estado bastante zen.
 
-Estado zen que desapareció con la repentina pérdida de un riff, algo que causaba que la armonía metálica hubiera desaparecido. Desde su móvil, desde la cama, probó diferentes ecualizaciones. Nada, la ausencia seguía ahí. O la presencia seguía sin seguir. Apagó. Habían dejado de llamar a la puerta del garaje. Otro cliente satisfecho. O satisfecho con la existencia de la ausencia de Nacho. O ausencia de existencia. Satisfecho, en todo caso.
+Estado zen que desapareció con la repentina pérdida de un riff, algo
+que causaba que la armonía metálica hubiera desaparecido. Desde su
+móvil, desde la cama, probó diferentes ecualizaciones. Nada, la
+ausencia seguía ahí. O la presencia seguía sin seguir. Apagó. Habían
+dejado de llamar a la puerta del garaje. Otro cliente satisfecho. O
+satisfecho con la existencia de la ausencia de Nacho. O ausencia de
+existencia. Satisfecho, en todo caso. 
 
 Y Roble no lo iba a estar menos. Por poco tiempo. El cardiómetro de su pulsera ya había detectado la aceleración del corazón inherente al estado de vigilia y estaba transmitiendo a sus diferentes apps tal hecho; estas a su vez estaban pasando al mismo estado y empezando a recordarle a Roble sus obligaciones.
 
