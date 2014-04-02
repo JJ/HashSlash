@@ -3799,11 +3799,38 @@ Podían pasar así unas horas. Así que Roble se volvió a poner los auriculares
 
 ## Correos y farmacias
 
-—¿Que quiere usted que le solicite a correos qué? - preguntó, son una voz uniforme, la jueza al teléfono.
+—¿Que quiere usted que le solicite a Correos qué? - preguntó, son una voz uniforme, la jueza al teléfono.
 
-—Todos los envíos con origen en Asia y destino en Granada o alrededores y que procedan, o no, de un laboratorio farmacéutico, fábrica de productos médicos o particulares con algunos vínculos con alguna de las dos. 
+—Todos los envíos con origen en Asia y destino en Granada o
+alrededores y que procedan, o no, de un laboratorio farmacéutico,
+fábrica de productos médicos o particulares con algunos vínculos con
+alguna de las dos -, contetño Cecilio.
 
 Cecilio se imaginaba que habría muchos. Pero por algún lado habría que empezar. 
+
+—Y háblame de tú, por favor -, le añadió Cecilio cuando fue consciente
+del comienzo de la frase.
+
+—Vale. ¿En serio que quieres que le solicite a Correos eso? ¿En serio?
+
+—Ah, y a empresas de mensajería. Todas las que pueda -, añadió Cecilio.
+
+—A ver si lo he entendido bien. Quiere saber quién recibió esa
+droga. Que, al parecer, la mandan por correo -, dijo la jueza.
+
+—Afirmativo -, dijo Cecilio. Le gustaba decir afirmativo. Incluso en
+casa. Cuando lo decía, toda la familía era consciente de que era
+policía. 
+
+—Pero ¿y si lo mandan por correo a Murcia y luego lo traen en coche?
+¿O a Madrid? - , preguntó la jueza. - Es un poner.
+
+Cecilio se quedó pensando un momento.
+
+—Es cierto. ¿Los puede meter también en la solicitud de información?
+
+—¿En serio? -, preguntó de nuevo la jueza.
+
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
