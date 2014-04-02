@@ -3833,6 +3833,15 @@ Cecilio se quedó pensando un momento.
 
 —¿En serio? -, preguntó de nuevo la jueza.
 
+## La red
+
+¿Por qué? Se preguntaba Roble. ¿Por qué?
+
+Un asesino profesional es una cosa seria. Es un... bueno, un profesional. Se le contrata por una razón potente: deudas, ajustes de cuentas; una inversión potente que requiere también un retorno de inversión de acuerdo con ello. 
+
+Retorno de inversión, eso es lo que mueve el mundo. ¿Cuanto estaba invirtiendo en este asesinato? Su pulsera no paraba de vibrar. Estaba feliz con la cantidad de kilómetros corridos. A NoFlab le gustaban las cuestas. Y a él le gustaba que le librara de la grasa corporal, esa maldición que comenzaba en la treintena y ya no le abandonaba. 
+
+Su frigorífico le avisaba, por ejemplo, de niveles peligrosamente bajos de frutas y verduras frescas y lácteos. Se arriesgaba a que sus niveles de calcio descendieran a niveles peligrosos. Y él no quería que pasara eso.
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
