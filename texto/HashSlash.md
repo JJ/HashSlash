@@ -1360,7 +1360,7 @@ marchó de casa. Ya repasaría los temas por el camino.
 {: .writer}
 
 Igual que Larache es mi Barbate ideal, Marruecos es lo que España
-debería ser. No descarto que lo sea en el futuro, pero ahora todavía
+debería ser. No descarto que lo sea en el futuro. Alguno de los dos. Pero ahora todavía
 no lo es. España es un país de necios gobernado por necios. Marruecos
 es un país de personas inteligentes gobernado por alguien que es más
 inteligente todavía. Que utilice esa inteligencia para hacerse rico y
@@ -1541,6 +1541,16 @@ Necesitaba otro enfoque. Y si Tina no se lo daba, él sí iba a darle a
 ella algo si se lo permitía. Le mandó un mensaje de vuelta.
 
 “Estoy ahí en quince minutos.“
+
+## Sombreros
+
+Es que tampoco tengo gustos complicados. Por eso Miriam, cuando llego, no hace nunca nada complicado. Eso sí, lo hace siempre que se lo digo. Mañana, tarde o noche. Cualquier necesidad que un hombre pueda tener. O creer tener. 
+
+Quizás me ame. Pero, sinceramente, no es algo que me preocupe. El amor es una necesidad complicada. En la cárcel aprendí a no tenerlas. Las necesidades complicadas causaban, de forma totalmente natural, muchas complicaciones. Y en la cárcel casi todas las necesidades eran complicadas. El tabaco era complicado. El sexo era complicado. La soledad y la compañía, todo era complicado. El tedio era complicado, lo era la excitación. 
+
+A la ausencia de todo deseo le llaman los japoneses *zen*. No aspiro a tanto. Yo deseo. Deseo publicar, ver en un escaparate los libros del Escritor. Y para cumplir ese deseo, y que se siga cumpliendo, a veces hay que desear otras cosas y a veces son complicadas. Deseo que Demelza muera, porque así me lo han pedido, y es la condición para cumplir mis otros deseos.
+
+Pero ahora deseo olvidarme de todo ello por unos momentos. Y no es un deseo complicado, porque estoy en Larache y en Larache está Miriam. 
 
 ## Mientras tanto, en un lugar de la periferia granadina
 
