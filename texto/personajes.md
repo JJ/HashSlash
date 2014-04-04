@@ -1,6 +1,9 @@
+<<<<<<< HEAD
 ---
 layout: index
 ---
+=======
+>>>>>>> 0ce3f8b30b5d5f917cac5c576b097457e0f316c6
 Personajes de HashSlash
 ===========
 
