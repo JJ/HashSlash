@@ -1,9 +1,6 @@
-<<<<<<< HEAD
 ---
 layout: index
 ---
-=======
->>>>>>> 0ce3f8b30b5d5f917cac5c576b097457e0f316c6
 <!--- -*-  eval: (typopunct-mode 1); eval: (typopunct-change-language: english) -*- -->
 
 <h1>#slash</h1>
@@ -3839,8 +3836,6 @@ Cecilio se quedó pensando un momento.
 
 —¿En serio? -, preguntó de nuevo la jueza.
 
-<<<<<<< HEAD
-=======
 ## La red
 
 ¿Por qué? Se preguntaba Roble. ¿Por qué?
@@ -3849,8 +3844,18 @@ Un asesino profesional es una cosa seria. Es un... bueno, un profesional. Se le 
 
 Retorno de inversión, eso es lo que mueve el mundo. ¿Cuanto estaba invirtiendo en este asesinato? Su pulsera no paraba de vibrar. Estaba feliz con la cantidad de kilómetros corridos. A NoFlab le gustaban las cuestas. Y a él le gustaba que le librara de la grasa corporal, esa maldición que comenzaba en la treintena y ya no le abandonaba. 
 
-Su frigorífico le avisaba, por ejemplo, de niveles peligrosamente bajos de frutas y verduras frescas y lácteos. Se arriesgaba a que sus niveles de calcio descendieran a niveles peligrosos. Y él no quería que pasara eso.
->>>>>>> 0ce3f8b30b5d5f917cac5c576b097457e0f316c6
+Su frigorífico le avisaba, por ejemplo, de niveles peligrosamente
+bajos de frutas y verduras frescas y lácteos. Se arriesgaba a que sus
+niveles de calcio descendieran a niveles peligrosos. Y él no quería
+que pasara eso. Usó la app del supermercado gourmet que solía usar para solicitar un envío de
+todo lo que faltara y dedicó escasamente cinco minutos a añadir alguna
+oferta del día. Guayabas. Podía ser interesante. No parecía haber
+ninguna baya de propiedades extraordinarias de moda últimamente, así
+que que volvió a pedir bayas goji, tan pasadas de moda que volvían a
+estar de moda. 
+
+Ya cubiertas las primeras necesidades físicas, comprobó el horario de trabajo en
+el móvil. Estaba otra vez de turno. 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
