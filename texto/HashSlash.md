@@ -2183,7 +2183,7 @@ incapaz de meter más de eso en una frase. Por eso iba
 a volverse con sus colegas, los de siempre, los que llaman al pan,
 pan, al vino, vino y a la cerveza, Alhambra, cuando Roble le dijo:
 
-—¿Vienes al interrogatorio?
+—¿Vienes al interrogatorio? - le preguntó Roble.
 
 —Pero... -, dijo, volviéndose a pasar la palma de la mano por la
 boca, frotándose los labios. 
@@ -2197,46 +2197,46 @@ Pero quería saber quién era el asesino. Aunque fuera sólo por eso, lo
 siguió. Aunque cuando vieron desde la sala contigua a la de
 interrogatorios al detenido, preguntó al agente
 
-—¿Quién es ese tío?
+—¿Quién es ese tío? - preguntó Cecilio. 
 
 ## Preguntas frecuentemente preguntadas
 
-Cecilio nunca había entendido bien el tema de los interrogatorios. Si
+Cecilio nunca había entendido bien la razón de ser de los interrogatorios. Si
 el tío no es culpable, ¿qué quieres que te diga? Si acaso, se sentirá
 culpable de algo, de haberse meado en el portal del vecino, pongamos
 por caso, y ese
 sentimiento de culpa le hará sentirse nervioso y parecer culpable a
-los ojos de quien interroga. Y
+los ojos de quien interroga. Que perderá, por tanto, el tiempo miserablemente. Y
 si lo es, hay que ser muy estúpido para confesarlo. Que no es que los
 chorizos no sean estúpidos. En muchas ocasiones son chorizos precisamente
-por eso. Pero también son estúpidos veteranos, curtidos ante
+por eso. Pero también son estúpidos veteranos, curtidos ante preguntas inoportunas de
 profesores, padres y figuras de autoridad diversas como para que,
-cuando llegue uno y le diga “¿Dónde estuviste el día de autos?“ no te
+cuando llegue un notas con placa y le pregunte “¿Dónde estuviste el día de autos?“ no te
 contesten “Pues matando al muerto“, sino “No, jefe, no me gusta la
-fórmula uno“.
+fórmula uno“. Divertido, un gran chiste. Pero también una pérdida de tiempo.
 
 Además, el Ignacio este no parecía culpable. Parecía un pringao. Cecilio se
 puso las gafas de cerca para echarle un vistazo al
-expediente. Un camello de poca monta. Pero, las huellas. Y... ¿qué
+expediente policial, que alguien había rescatado de los archivos. Un camello de poca monta. Pero, las huellas. Y... ¿qué
 diablos es el MXE?
 
-Como era cierto que no Cecilio no tenía ni idea, se quedó en su
-despacho, viendo en la pantalla del ordenador el calabozo donde Roble
-interrogaba al tal Ignacio, mientras miraba los informes del forense y de la científica. No
+Como era cierto que Cecilio no tenía ni idea, se quedó en su
+despacho, con el calabozo donde Roble
+interrogaba al tal Ignacio en la pantalla del ordenador, mientras leía en diagonal los informes del forense y la científica. No
 entendía nada. Pero daba igual. Bajaría a los calabozos en un rato,
 le abrirían la celda con mucha ceremonia, dejaría una
 carpeta encima de la mesa a los lados de la cual estaban Roble y el
 tal Ignacio, miraría a uno y a otro negando con la cabeza, como
-diciendo "En menudo embolao te has metío, macho" Y el acusado haría lo
-que tenía que hacer, que con toda seguridad sería nada y
-excusarse. Pero, quién sabe. A lo mejor en esta ocasión les había
+diciendo "En menudo embolao te has metío, macho". Y el acusado haría lo
+que tenía que hacer, que con toda seguridad sería nada e imaginar 
+e inmediatamente contar excusas. Pero, quién sabe. A lo mejor en esta ocasión les había
 tocado el tonto, que, como en los chistes de Gila, y tras muchas indirectas, acaba confesando. 
 
 Entre página relativamente incomprensible y otra totalmente
 incomprensible, miraba y escuchaba a Roble preguntándole al acusado. El chaval valía para
-esto. No entendía por qué, pero valía.  
+esto. No entendía por qué, pero valía. Igual él si conseguía algo, aparte de perder el tiempo.  
 
-—Esta persona es la que has asesinado -, le dijo, mostrándole
+—Esta persona es la que has asesinado -, le decía Roble, mostrándole
 diferentes fotos extraídas de los perfiles en redes sociales, de su
 perfil en una página de *fan fiction*, vestidos florales, sola, con un
 grupo de amigas, con unas gafas sin cristal, ojos rojos por el flash,
@@ -2244,9 +2244,9 @@ una baraja de fotos extendida sobre la mesa, sota, con un tipo al que
 le echaba el brazo por encima, caballo, un *selfie* con un primer plano haciendo morritos
 con Demelza, rey, con la cara en un charco de sangre, la regla de los
 tercios haciendo que el cuchillo ocupase uno de los puntos
-importantes. Ignacio murmulló, pero Roble le interrumpió. 
+importantes. Ignacio murmuró, pero Roble le interrumpió. 
 
-—Tus huellas -, en esta ocasión un tablet que mostraba una foto de un
+—Tus huellas -, y en esta ocasión una tableta que mostraba una foto de un
 pañuelo de seda y, haciendo el gesto con los dedos, la ampliación
 hasta  que la huella de Ignacio se hizo bien visible; dos pulsaciones con el índice sobre la misma
 que enlazaban con la ficha policial de Ignacio, en la que aparecía mal
