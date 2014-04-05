@@ -2862,10 +2862,10 @@ cosa.
 
 De vuelta, otro chirrido con instrucciones para realizar los contactos
 sucesivos. Evitar arenques. Y precio final. Para comprar arenques o lo
-que sea que coman, de forma preferente, esos profesoionales balísticos
+que sea que coman, de forma preferente, esos profesionales balísticos
 bálticos. Una aplicación del móvil me lo muestra todo, pero el
 mensaje, si dejas de tocarlo, se borra. Un gran invento para los que
-trabjan en nuestro ramo. Creo que stá inspirado en un estúpido
+trabajan en nuestro ramo. Creo que está inspirado en un estúpido
 programa para adolescentes que tuvo sus días de fama, o sus segundos,
 hace unos años. O al revés. Nunca me han preocupado mucho esas cosas.
 
