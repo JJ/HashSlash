@@ -2503,6 +2503,7 @@ para sí.
 —Significa que ya tenemos al asesino.
 
 ## Tradiciones acendradas
+{: .writer}
 
 Tengo un gran respeto por el gremio de los asesinos. Tradicionalmente,
 han sido fuente de inspiración para nuestro gremio, el de los escritores y, con ello,
@@ -2584,6 +2585,7 @@ interrogatorios al detenido, preguntó al agente
 —¿Quién es ese tío?
 
 ## Leyendo
+{: .writer}
 
 Uno de los aspectos desagradables de ser escritor es la cantidad de
 bazofia que tiene uno la obligación de leer. No me refiero a lo que escriben mis
@@ -2825,47 +2827,47 @@ siquiera, hoy en día,
 [ávaro](https://es.wikipedia.org/wiki/%C3%81varos). Corrijo. No soy avaro.
 Me gusta pagar a los profesionales por lo que hacen, sobre todo si yo no soy capaz de hacerlo. O, simplemente, no me apetece. Pero no soporto a la gente poco profesional. 
 
-Todo esto os puede parecer un arenque rojo. El cĺásico arenque que se le da al lector para despistarlo y apartarlo del final último. La ejecución. El objetivo. 
+Todo esto os puede parecer un arenque rojo. El cĺásico arenque que se
+le da al lector para despistarlo y apartarlo del final último. La
+ejecución. El objetivo.  
 
-¿Sabéis qué? A mi también. Porque la primera vez que llamé al teléfono me contestaron en lo que debía ser lituano y, cuando les pregunté por el tal Billy, me colgaron inmediatamente. Un arenque rojo debió coger el teléfono. Para apartarme del fin que quería conseguir. Los profesionales. Que quizás no lo eran tanto, si dejaban que cogiera el teléfono uno cualquiera.
+¿Sabéis qué? A mi también. Porque la primera vez que llamé al teléfono
+me contestaron en lo que debía ser lituano y, cuando les pregunté por
+la persona que tenía por mal nombre Billy, me colgaron
+inmediatamente. 
+Arenque rojo fue, pues, quien descolgó
+el teléfono. Para apartarme del fin que quería conseguir. La
+contratación, previo acuerdo de los términos pecuniarios y otros
+aspectos contractuales, de los
+profesionales. Que quizás no lo eran tanto, si dejaban que cogiera el
+teléfono uno cualquiera. 
 
-Pero hay que dar una segunda oportunidad. Hasta una tercera, si los hados te sonríen. A la segunda Billy el Báltico Balístico me contestó con el convenido "Nyet, pero sé por dónde pasea a su perro". Elegante, el detalle del can. A partir de ahí había que acercar el móvil al aparato para que transmitieran la información de contacto, claves de cifrado, horas de disponibilidad, como un chirrido que, como cuando los hace un grillo, tiene más información de la que uno pueda sospechar. Un detalle profesional, el del chirrido. 
+Pero hay que dar una segunda oportunidad. Hasta una tercera, si está
+en tu temperamento. Pero ciertamente a la segunda Billy el Báltico
+Balístico me contestó con el convenido "Nyet, pero sé por dónde pasea
+a su perro". Elegante, el detalle del can. A partir de ahí había que
+acercar el móvil al aparato para, usando un método de transmisión
+sonoro que se puede usar aunque no tengas a mano ese invento moderno
+de la Internet,  transmitir la información de contacto, claves de
+cifrado, horas de disponibilidad y otros posibles términos de acuerdo.
+Cualquiera a la escucha, es decir, las dos partes y todo servicio de
+seguridad de un país que merezca tener tal nombre, oiría un chirrido que, como cuando los hace un grillo, tiene más información de la que uno pueda sospechar. Un detalle profesional, el del chirrido. 
 
-Nada de arenque rojo, pues. Directos al objetivo. Un paquete cifrado con fotos y coordenadas últimas. Y el dinero, claro. En una cuenta en las Caimán. Otro animal que, en estos ambientes, denota profesionalidad. Yo mismo lo uso. 
+Nada de arenque rojo, pues. Directos al objetivo. Yo les envío en tal
+chirrido fotos y coordenadas últimas. Y una pequeña, pequeñísima,
+simbólica, parte del dinero, claro. No el dinero en sí. Una clave que
+les permitirá acceder a un depósito en una cuenta en las Caimán. Otro
+animal que, en estos ambientes, denota profesionalidad. Yo no uso otra
+cosa. 
 
-Vuelta a mis galeradas. Vuelta a la escritura. Vuelta a vivir. Sólo me
-hacía falta que me proporcionaran un final para cerrar ese libro, el
-de "Demelza morirá porque a mis editores les molesta". 
-
-Que no entiendo tal molestia. ¿Vende mil, dos mil, veinte mil copias
-de esos opúsculos obscenos y mal pergeñados? ¿Qué más da? ¿No venden
-ellos diez, veinte, cincuenta mil copias de opúsculos obscenos y mal
-pergeñados?
-
-Además, ¿no les sirve la propia muerta? Es pregunta retórica. No les
-sirve, porque si les hubiera servido me habrían dirigido hacia ella,
-no hacia Demelza. Tan chalada como ella, ¿de qué escribiría? Lo podría
-averiguar pero, ¿para qué? Otra escritora chalada muerta. No será la
-última. Ni la última que yo haga.
-
-Al menos a esta hay que agradecerle el buen humor con el que se tomó
-todo el tema. Los profesionales agradecemos eso en los clientes. Se
-reía, se miraba la mano, decía qué grandeeeee, miró el cuchillo y se
-echó a reír, qué navajitaaaaa, decía mientras la volvía de espaldas. Y
-ahí tenía que haberme dado cuenta de que no era ella. Pero sólo había
-un pequeño flexo encendido, de esos pequeñitos que se enganchan al
-ordenador, monísimos, inútiles, una mujer en la penumbra, todas son
-iguales, le alcé la camiseta buscándole el espacio intercostal en el
-que se encuentra el corazón, y todavía se reía hasta que dejó de
-hacerlo. 
-
-Fue cuando yo empecé a reírme. Todavía tenía una sonrisa cuando salí
-por la puerta de la calle. Los profesionales sonreímos cuando se ha
-hecho un trabajo bien. Por eso he borrado la sonrisa de mi cara. Y no
-la volveré a poner hasta que... Bueno, ya lo sabéis. 
-
-Buscando profesionales que sonrían sólo cuando deban hacerlo.
-
+De vuelta, otro chirrido con instrucciones para realizar los contactos
+sucesivos. Evitar arenques. Y precio final. Para comprar arenques o lo
+que sea que coman, de forma preferente, esos profesoionales balísticos
+bálticos. Una aplicación del móvil me lo muestra todo, pero el
+mensaje, si dejas de tocarlo, se borra. Un gran invento para los que
+trabjan en nuestro ramo. Creo que stá inspirado en un estúpido
+programa para adolescentes que tuvo sus días de fama, o sus segundos,
+hace unos años. O al revés. Nunca me han preocupado mucho esas cosas.
 
 ## Esperando el turno
 
@@ -3015,6 +3017,51 @@ contestador y concertando citas para el día siguiente.
 
 Y entonces sí terminó el turno. Una tarde bien aprovechada. Mientras
 tanto, ¿qué diablos habría estado haciendo Roble? 
+
+## Escribir es reescribir
+{: .writer}
+
+Tras mis contactos «profesionales», vuelta a mis galeradas. Vuelta a la escritura. Vuelta a vivir. Sólo me
+hace falta que los peritos tanatogénicos lituanos me proporcionen un final para cerrar ese libro, el
+de "Demelza morirá porque a mis editores les molesta". 
+
+Que no entiendo tal molestia. ¿Vende mil, dos mil, veinte mil copias
+de esos opúsculos obscenos y mal pergeñados? ¿Qué más da? ¿No venden
+ellos diez, veinte, cincuenta mil copias más de opúsculos obscenos y mal
+pergeñados? ¿No es la competencia sana y estimulante en el mundo
+capitalista del que alegremente forman parte?
+
+Además, ¿no les sirve la propia muerta, la verdadera muerta? Es pregunta retórica. No les
+sirve, porque si les hubiera servido me habrían dirigido hacia ella,
+no hacia Demelza. Tan chalada y escritora como ella, según he leído en
+los absurdos panegíricos que se han publicado sobre ella. ¿De qué escribiría? Lo podría
+averiguar pero, ¿para qué? Otra orate juntaletras difunta. No será la
+última. Ni la última por mi mano.
+
+Al menos a la muerta verdadera hay que agradecerle el buen humor con el que se tomó
+todo el tema. Los profesionales agradecemos eso en los clientes. Se
+reía, se miraba la mano, decía qué grandeeeee, miró el cuchillo y se
+echó a reír, qué navajitaaaaa, decía mientras la volvía de
+espaldas. Mala escritora, seguro. Ninguna buena escritora habría
+querido que esas fueran sus últimas palabras. Aunque las de mi
+admirado Huxley, después de que su mujer le proporcionara un chute de
+LSD, no habrán sido memorables, por eso, oficialmente, sólo dijo «LSD,
+100 miligramos intramuscular». Qué palabras tan asépticas y qué viaje
+dentro de un viaje. 
+
+Y con esas palabras tenía que haberme dado cuenta de que no era Demelza. Pero sólo había
+un pequeño flexo encendido, de esos pequeñitos que se enganchan al
+ordenador, monísimos, inútiles, una mujer en la penumbra, todas son
+iguales, le alcé la camiseta buscándole el espacio intercostal en el
+que se encuentra el corazón, y todavía se reía hasta que dejó de
+hacerlo. 
+
+Fue cuando yo empecé a reírme. Todavía tenía una sonrisa cuando salí
+por la puerta de la calle. Los profesionales sonreímos cuando se ha
+hecho un trabajo bien. Por eso he borrado la sonrisa de mi cara. Y no
+la volveré a poner hasta que... Bueno, ya lo sabéis. 
+
+Buscando profesionales que sonrían sólo cuando deban hacerlo.
 
 ## Lo que Roble había estado haciendo
 
