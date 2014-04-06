@@ -2618,7 +2618,7 @@ llamado de esa forma en francés. O 著 en japonés. ¿Que cómo se
 pronuncia? Lo acabo de hacer.
 
 Esquema general de la trama, personajes, ritmo, tono,
-ambientación... Esas son las claves de una novela. Luego, se le envía
+ambientación... Esas son las claves de una novela. Lo realmente creativo. El resto lo puede hacer cualquiera. Por eso, los *auteurs*, a continuación, se lo envían
 a unos cuantos escritores fantasmas. Tacha escritores. Producefrases fantasmas. Porque
 no son escritores. No son *auteurs*. El *auteur* soy yo. Y ellos me
 mandan una propuesta, unos cuantos capítulos. Cada uno una versión
@@ -3322,6 +3322,16 @@ sonrisa en los labios que duraba al menos hasta el día siguiente. De
 hecho, más que cualquier pensamiento o inquietud relacionado con
 heridas y cuchillos.
 
+## Cae la noche
+{: .writer}
+
+En Marruecos, la noche cae muy rápidamente. En el enero tibio y en el julio abrasador, es cuando la gente sale a la calle. Siendo gente los hombres, claro. Hay noches en las que quiero salir a escuchar. Cuando necesito ideas. Hay otras en las que quiero salir a que me escuchen. No son muchas.
+
+Ser escuchado es adictivo, en realidad. Los escritores somos. Son. Somos adictos a esa droga. Diría que somos, son adictos a escucharse a sí mismos, pero eso lo son sólo los poetas, quizás porque nadie, en realidad, los lee así que tienen que reunir familia, amigos y otros poetas ansiosos de contacto humano para poder escucharse sin parecer mucho más ridídulos. Pero los escritores no tienen que leer en voz alta sus libros y por tanto no tienen que escucharse. Hasta los audiolibros los subcontratan porque serían incapaces de escucharse durante tanto tiempo sin caer exhaustos, desangrados a través de sus tímpanos perforados. Me gusta esa metáfora. Sugeriré a mis fantasmas que la introduzcan cuando sea conveniente. Quizás serán capaces de hacerlo. 
+
+Cuando te escuchan te recuerdan y quizás sea eso lo que provoca la adicción. Y lo que yo trato de evitar. Siempre. La fiesta fue una gran oportunidad para eso. Para que nadie me escuchara ni me recordara. Tampoco fue difícil. Personas como yo podrían llamar la atención en una fiesta de imberbes y gaznápiros. Pero una buena crema deja la tez suave como la de un pisaverde y un corte de pelo creativo evita todas las canas que el teñido no ha podido cubrir.
+
+Y la crema, siempre Shiseido. Del *duty-free* del ferry. Nunca uso otra marca.
 
 ## Víctimas de libro
 
