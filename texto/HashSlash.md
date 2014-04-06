@@ -2037,6 +2037,7 @@ bla bla.
 
 
 ## Escribir es sufrir
+{: writer}
 
 Sufra usted primero, le dijo algún famoso escritor ruso a un no tan
 famoso escritor en ciernes. Es posible que fuera un escritor
