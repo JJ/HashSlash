@@ -1,4 +1,4 @@
-<!--- -*-  eval: (typopunct-mode 1); eval: (typopunct-change-language: spanish) -*- -->
+<!--- -*-  eval: (typopunct-mode 1); eval: (typopunct-change-language: english) -*- -->
 
 <h1>#slash</h1>
 
@@ -389,6 +389,7 @@ inconsciente. Qué frío hacía, caray.
 
 Consejos para una huida
 -----
+{: .writer}
 
 La gente piensa que lo más importante a la hora de huir es moverse muy
 rápidamente. No tienen ni idea. Lo más parecido a una huida que conocen es
@@ -414,6 +415,7 @@ ni diuréticos endulzados.
 —Sí, un vasito de agua para después del café, si es tan amable.
 
 Porque ¿quién está  huyendo?. Yo no. Sólo soy un escritor.
+
 
 Café para dos
 -----
@@ -567,6 +569,7 @@ de soltarse.
 
 Matar
 ---
+{: .writer}
 
 —¿Haciendo sudokus? -, me pregunta un camarero en un área de servicio de la
 autovía, a la altura de Marbella. 
@@ -575,14 +578,19 @@ No me gusta hablar con la gente. Corrijo. No me gusta hacer nada con
 la gente. Lo mío es hacerle *a* la gente. Pero a veces es inevitable
 que *la gente* te hable o te haga cosas.
 
-—No, escribiendo. 
+—No, escribiendo -, le contesto, tras dejarle claro con la pausa antes
+de la contestación que no tengo las más exiguas ganas de interaccionar
+con él; y si la pausa no es suficiente, la mirada. Que tampoco será
+suficiente, porque quien es camarero no lo es precisamente por haber
+hecho un máster.  
 
-A veces contesto, si pienso que puedo darle una lección a alguien. Era
-un camarero joven, de mirada ilusa, que servilmente se esforzaba por
+Y por eso es el tipo de personas a las que suelo contestar; a veces lo
+hago, si pienso que puedo darle una lección a alguien. Era
+un joven, de mirada clara e ilusa, que servilmente se esforzaba por
 satisfacer a la gente que pasaba por el café de carretera para nunca
 más volver. Del este, quizás. 
 
-—¿Escribe? ¿Novelas? - la *s*, un poco sibilante. - ¿Hay... ha publicado
+—¿Escribe? ¿Novelas? - la *s*, un poco sibilante, balcánica o del Cáucaso. - ¿Hay... ha publicado
 algo? 
 
 —Sí -, un sí para tres preguntas. Estaba empezando a cargarme. Me
@@ -592,6 +600,7 @@ levanté para irme, dirigiéndome hacia la barra y dejándolo atrás.
 dejando de barrer por un momento.
 
 —A veces uno tiene que hacer lo que tiene que hacer -, le contesté.
+
 Sin mirarle. Dejé el dinero del café sobre la barra y me
 largué. Todavía me quedaba más de una hora para llegar al puerto de Algeciras y
 tomar el ferry a Marruecos.
@@ -700,8 +709,10 @@ Quique había aprovechado para tirar unas cuantas fotos con el móvil.
 fotos y cuando se le pase el berrinche te dejo cinco minutos con
 ella. Pero déjame a mi primero, hombre.
 
+
 Volver
 ---
+{: .writer}
 
 El hogar es donde dejas el sombrero, ¿no? 
 
@@ -728,6 +739,7 @@ Es mentira. Sigue nublado. ¿Por qué diablos iba a salir un rayo de luz
 para nadie? Pero os he hecho creer que sí, ¿verdad? 
 
 Así somos los escritores.
+
 
 Asuntos propios
 ----
@@ -889,6 +901,62 @@ tópicos que contenían. Sin embargo, la respuesta fue
 
 Con casi treinta años de policía, Cecilio pensó que la condición
 humana nunca dejaría de sorprenderle.
+
+
+## Condición humana
+{: .writer}
+
+La condición humana. Nada nuevo en ella, nada que me sorprenda. Me
+sorprendía cuando era un chaval ahí, en Barbate. Todavía siento algo
+cuando veo en la autovía las indicaciones que lo mencionan, Barbate,
+32 kilómetros, salida Barbate Norte, como si hubiera suficiente
+Barbate para que tuviera un norte y un sur. Además, Barbate es sólo
+Sur, un sur profundo donde todo el mundo es como tiene que ser y hace
+lo que tiene que hacer. 
+
+Ese algo que siento no es realmente algo. Sentimental, quiero
+decir. Es simplemente un asalto a las neuronas de los recuerdos, o más
+bien coma una pieza de un puzzle que encaja, dejando el retrato de una
+persona completo. El retrato es mío, claro.  
+
+La pieza es pequeñita, pero tiene los bordes dentados. Como las
+piedras que le tiramos, desde las marismas del río, al helicóptero. Y
+lo hicimos porque teníamos que hacerlo, porque el helicóptero de la
+Benemérita iba a descender e impedirnos que cargáramos los fardos que
+acababan de descargar de la lanzadera. Fardos que eran la vida de mi
+familia durante un par de meses. Uno, si mi tío se pasaba bebiendo,
+que solía pasarse, pero sólo Fino La Ina, de la mejor calidad. Decía,
+el pobre, que cuando uno pillaba la curda de Fino La Ina se creía
+marqués o duque de Medina Sidonia. Si la pillaba de vino de Chiclana,
+le daba por ponerse a cavar zanjas. Y él no era de cavar zanjas, sino
+de cargar fardos en la playa o en las furgonetas debajo de los tomates
+para llevarlos a cualquier lugar, a donde se consumiera grifa de la
+buena. A cualquier lugar. Allí mismo, yo también la fumaba, primero
+mezclando las chinas con el tabaco, luego la hierba que criaba en el
+huerto de mi casa. Qué feliz estaba mi madre, al final está sentando
+la cabeza, míralo, sembrando cebollinos o ¿qué es lo que estás
+sembrando, hijo? Cebollinos, mamá, cebollinos, qué va a ser. Pa la
+pipirrana. Incluso se lo dijo a mi padre durante los diez minutos de
+lucidez que transcurrían entre que llegaba de trabajar en el atún y se
+idiotizaba con el vaso lleno de Don Simón blanco, siempre blanco, le
+parecía más fino, enfrente de la tele. 
+
+No era a esta familia a la que iba a salvar la vida cuando, con el
+tirachinas y los balines en los bolsillos de los pantalones,
+pantalones de esos de la mili, que eran los mejores para ir a las
+recogidas en la playa, me unía a la mitad del pueblo esperando a las
+lanzaderas. A la Silvia y al Rafael nadie los salvaba ya de esa vida
+en una casamata de garbanzos con bacalao y vino en cartones o en
+botellas que rellenan en la bodega. Era a mi, primero, y segundo, al
+tío Isma, el hermano de mi madre que me regaló un Rólex el día de mi
+comunión y desde entonces fue mi héroe. Y mi patrón, al que entregaba
+todo lo que ganaba, luego la mitad, luego algo. Y cuando volví de la
+cárcel, nada. El duque Ismael era, entonces, un filósofo renegrido
+que, a la puerta de las tabernas, te cantaba o te narraba historias
+inventadas por un chato de vino.  
+
+Tampoco me sorprendió. ¿Cómo podía sorprenderme? Sí me sorprendería que siguiera vivo ahora, casi veinte años más tarde. O no, porque no pienso salirme de mi ruta para comprobarlo. 
+
 
 ## Identidad
 
@@ -1054,6 +1122,44 @@ inquisitivo con la cabeza, levantándola, seguido por otro señalando con
 la barbilla a la amalgama de dos chicas. Cecilio abrió las manos
 indicándole que no tenía ni idea y le hizo dos gestos simétricos con
 la cabeza indicándole que se largara.
+
+## Motivaciones
+{: .writer}
+
+La ciudad de mi infancia. Barbate. Tú sales de ella, para siempre, pero ella no sale de ti. Larache, en realidad, es Barbate. 
+
+No te estoy diciendo esto, en realidad. Lo estoy pensando. Tampoco lo
+estoy pensando, lo está pensando un personaje. Y todo esto te da igual
+porque no has estado nunca ni en Larache ni en Barbate. Los dos se
+parecen un poco a Algeciras, donde llego y devuelvo el coche
+alquilado, que son unos geniales vehículos con la anonimidad
+programada de serie. En Barbate no había donde alquilar coches, pero
+los olores, la luz, el aire que sopla durante semanas y hace que la
+gente se vuelva loca o que hace que no haya nada que echarse a la boca
+si no haces algo que, si la cosa viene mal dada, te pondrá enfrente de
+un juez. 
+
+Y luego enfrente de una puerta grande con las palabras Prisión Provincial encima, aunque cuando entras lo haces en una furgoneta y no llegas a verlo, ni siquiera cuando pasas al otro lado. Sólo hay rejas y tedio y gente que sabe mucho y otras que ignoran hasta el planeta en el que viven. Como en cualquier otro sitio, en el ferry que me llevará a mi casa. 
+
+Pero allí me hice la persona que soy.
+
+Lo que también es mentira. Porque me hice lo que soy allí, aquél día en clase de lengua y literatura en el que presté atención, un día que me saqué mocos y no me vio nadie y cuando me tomé mi primer café.
+
+Y es que nadie recuerda su primer café. ¿Por qué recuerdan su primer
+beso y su primer polvo y no su primer café? Ese primer café fue el que
+te inició en una vida de adicción y de electrodomésticos y de
+psiconáutica cafeínica que durará toda tu vida. El que hizo que,
+veinte años más tarde, fueras incapaz hasta de hacerte un café hasta
+que no te hicieras el primer café. Pero nadie se acuerda. Y el primer
+café sí que te hace la persona que eres. No la cárcel.  
+
+Pero sí hay una posibilidad, quizás remota, de que yo no hubiera sido
+escritor si no hubiera estado en la cárcel. Si la costa del Atlántico
+y el Levante no me hubieran colocado enfrente de un juez. Si no
+hubiera tirado con un tirachinas un rodamiento de bolas a un
+helicóptero de vigilancia aduanera. Mira, como ese que se ve. Por
+babor. 
+
 
 ## Vuelta al ruedo
 
@@ -1221,13 +1327,13 @@ Iba por la mitad de la cuesta cuando su pulsera vibró y en ella
 apareció un mensaje informándole de que se había encontrado una conexión
 entre las dos muertas. La real y la putativa. 
 
-<h2>#FAIL</h2>
+<h2 class='writer'>#FAIL</h2>
 
 Los escritores debemos tener nuestras herramientas dispuestas. Como los cazadores, vigilamos un tema, colocamos trampas, circulamos alrededor del mismo, inquirimos, cavamos.
 
 Todo eso son metáforas. Pero a los escritores nos gustan las metáforas.
 
-En realidad, usamos alertas de Google, avisos de Twitter, seguimos por Facebook. A mi me gusta llevar también libreta: cuando algo sucede, móvil en mano, boli en la otra, apunto, resumo, esquematizo.
+En realidad, usamos alertas de Google, avisos de Twitter, seguimos por Facebook. A mi me gusta llevar también una libreta con un nombre en código en la portada: cuando algo sucede, móvil en mano, boli en la otra, apunto, resumo, esquematizo, anoto.
 
 Todo eso no son metáforas.
 
@@ -1237,7 +1343,7 @@ Estalla un trueno en la lontananza, cae un rayo, el mar se encrespa.
 
 Un par de palabras en un tweet de @demechza: “Sigo viva”.
 
-El MF Zabaleta continúa su travesía hacia Tánger. Mi mente vuelve y mi cuerpo también lo hará en cuanto que pueda.
+El MF Zabaleta continúa su travesía hacia Tánger. Mi mente vuelve a Granada y mi cuerpo también lo hará en cuanto que pueda.
 
 ## Interludios y preludios
 
@@ -1273,6 +1379,26 @@ más tarde le despertó un mensaje en el móvil avisándole de que el
 informe preliminar de la autopsia estaba listo. “Me parece muy bien“,
 pensó. Se vistió, cogió la cartera con las cosas de la academia y se
 marchó de casa. Ya repasaría los temas por el camino. 
+
+## Contextos
+{: .writer}
+
+Igual que Larache es mi Barbate ideal, Marruecos es lo que España
+debería ser. No descarto que lo sea en el futuro. Alguno de los dos. Pero ahora todavía
+no lo es. España es un país de necios gobernado por necios. Marruecos
+es un país de personas inteligentes gobernado por alguien que es más
+inteligente todavía. Que utilice esa inteligencia para hacerse rico y
+perpetuarse en el poder va de suyo. Al fin y al cabo, es una persona
+inteligente. Pero prefiero trabajar y vivir con personas y gobernantes
+inteligentes porque en general su método y sistema para proseguir sus
+propios intereses es más racional y predecible que los métodos que
+pueda seguir un necio para hacer lo mismo. Y más efectivos.
+
+Llegué a Marruecos por primera vez como empleado. No me fascinó, pero
+me atrajo y vi ese vacío primordial que tienen algunos países que te
+estimula a sumergirte en él. Ahora es mi casa. Es la ciudad de mi
+infancia, el país de mi futuro. Y lo sé porque soy escritor. Los
+escritores, a base de escribirlo, vivimos en el futuro. 
 
 ## Insomnio
 
@@ -1322,13 +1448,17 @@ Pero era joven y todo parecía bonito y nuevo y brillante y eso debía
 de haber empujado a Ainhoa a comenzar con la fan-fiction de un tema
 que, bien pensado, se prestaba a ello. 
 
-Su aplicación YouWriteNow! le advirtió que ya iba siendo hora de que revisara lo escrito, así que se puso a leer algunos fragmentos. Empezaba a hablar de 
+Su aplicación YouWriteNow! le advirtió que ya iba siendo hora de que
+revisara lo escrito de su novela-en-curso unos días antes. Pero,
+sintiéndose travieso por un día, no lo hizo. Buscó lo que Ainhoa había
+escrito y se puso a leer algunos fragmentos. Empezaba a hablar de 
 mecapenes ya en el segundo párrafo. Y, al parecer, no dejaba de
 hacerlo. Ni de cometer errores gramaticales. Y faltas de ortografía.
 
 Realmente, era para matarla.
 
 ## La página en blanco
+{: .writer}
 
 Cualquier escritor te hablará de ese momento angustioso en el que
 tienes que enfrentarte a una página y las teclas repelen las yemas de
@@ -1344,7 +1474,8 @@ Peor es recomenzar. Cuando, una vez terminado el trabajo, el editor, los
 primeros lectores, el querido y despreciado público, lo arrojan a la
 basura y hay que empezar de nuevo.
 
-La chica no ha muerto. No la he matado, corrijo. Volvemos al principio. 
+La chica no ha muerto. No la he matado, corrijo. Volvemos al principio
+de la obra. 
 
 Y ahora es algo personal.
 
@@ -1390,8 +1521,7 @@ podía averiguar sin haber publicado.
 Habían pasado treinta personas por la fiesta antes de las tres, veintitrés
 después. Varios sin identificar, porque aparecían en todas las fotos
 de espaldas o, simplemente, porque no tenían ninguna foto publicada y
-asociada a un perfil
-que permitiera hacerlo.
+asociada a un perfil que permitiera hacerlo.
 
 Como en el chiste en que la persona busca las llaves debajo de la
 farola porque hay más luz, estaba tratando de concentrarse en las
@@ -1437,6 +1567,16 @@ Necesitaba otro enfoque. Y si Tina no se lo daba, él sí iba a darle a
 ella algo si se lo permitía. Le mandó un mensaje de vuelta.
 
 “Estoy ahí en quince minutos.“
+
+## Sombreros
+
+Es que tampoco tengo gustos complicados. Por eso Miriam, cuando llego, no hace nunca nada complicado. Eso sí, lo hace siempre que se lo digo. Mañana, tarde o noche. Cualquier necesidad que un hombre pueda tener. O creer tener. 
+
+Quizás me ame. Pero, sinceramente, no es algo que me preocupe. El amor es una necesidad complicada. En la cárcel aprendí a no tenerlas. Las necesidades complicadas causaban, de forma totalmente natural, muchas complicaciones. Y en la cárcel casi todas las necesidades eran complicadas. El tabaco era complicado. El sexo era complicado. La soledad y la compañía, todo era complicado. El tedio era complicado, lo era la excitación. 
+
+A la ausencia de todo deseo le llaman los japoneses *zen*. No aspiro a tanto. Yo deseo. Deseo publicar, ver en un escaparate los libros del Escritor. Y para cumplir ese deseo, y que se siga cumpliendo, a veces hay que desear otras cosas y a veces son complicadas. Deseo que Demelza muera, porque así me lo han pedido, y es la condición para cumplir mis otros deseos.
+
+Pero ahora deseo olvidarme de todo ello por unos momentos. Y no es un deseo complicado, porque estoy en Larache y en Larache está Miriam. 
 
 ## Mientras tanto, en un lugar de la periferia granadina
 
@@ -1619,36 +1759,36 @@ a todo el mundo incómodo, así que Demelza, con esa frase, lo había
 pateado de forma contundente para que se batiera de nuevo en retirada.  
 
 —No habrás sido tú, Roble -, dijo Tina, que volvió precisamente en ese
-momento. Tocándose la nariz. La gente se toca la nariz por todo tipo
+momento. Tocándose la nariz con el dorso del dedo. La gente se toca la nariz por todo tipo
 de razones válidas, pensó Roble. Incluso cuando salen del cuarto de
 baño. También hay todo tipo de razones válidas para preguntarle a los
 de Narcóticos qué sabían de la tal Tina. Que probablemente no sabrían
-nada. Pero sabrían quién podría saber o no. Al final, tendría que
+nada. Pero sabrían quién podría saber. O quizás no. Al final, tendría que
 gastar sus duramente ganados bitcoins, es decir, duramente ganados
 como en que se los ha ganado el mismo Roble fuera de nómina en asuntos
 que están, o a veces no, relacionados con la misma, en preguntarle a alguien en
-`tupregunta.onion`, que tenían el lema *La información quiere ser
+`tupregunta.onion`, una web que tenía el lema *La información quiere ser
 cara*. 
 
-Pero sólo lo haría si podía ayudar a encontrar al asesino. O le tocaba
+Pero sólo lo haría si podía ayudar a encontrar al asesino. O Tina le tocaba
 mucho las narices. Que, ahora mismo, no parecía ser el caso; le
 lanzaba puyas, probando, jugando un juego que, antes de que apareciera
 Demelza, parecía que tenía un fin y un final claro. Ahora, todas las
 opciones estaban abiertas. Pero la partida había empezado y las cartas
 estaban encima de la mesa. Había que jugarlas, porque el que se sale
-de la partida es un rajado y además si no lo haces la metáfora se jode
+de la partida es un rajado y además si lo haces la metáfora se jode
 por las costuras. 
 
-—La verdad es que... -, hizo una pausa, esperando que Tina lo
+—La verdad es que... -, dijo Roble. E hizo una pausa, esperando que Tina lo
 interrumpiera. No lo hizo, a su pesar. Ella y Demelza lo miraban con
 curiosidad, Tina parpadeando frenéticamente, en lo que podía ser un
 mensaje o un simple tic nervioso. No le acabó de gustar a Roble esa
 expectación, ni ese aparentemente consciente esfuerzo de Tina en no
 hacer lo que en ella resultaba natural, llenar huecos. Habría quedado
-bastante estúpido si no hubiera terminado, así que siguió -... Tenemos
+bastante estúpido si no hubiera terminado la frase, así que siguió continuó con -... Tenemos
 un perfil. Pistas. No mucho. 
 
-—Durante la fiesta. Tuvo que ser durante la fiesta. ¿Es que no viste a
+—Durante la fiesta. Tuvo que ser durante la fiesta -, dijo Tina. - ¿Es que no viste a
 nadie raro, Roble? Con tu olfato de policía, porque los policías
 tenéis olfato, no, aunque, la verdad, al rato de fiesta yo estaba
 como, ¿quién huele así? Por favor, qué diablos, quién los traería, y,
@@ -1656,8 +1796,8 @@ por cierto, ¿quién te trajo a ti?
 
 —¿Yo? - preguntó Roble - Yo no...
 
-—¿No? Entonces ¿no eres amigo de esta? - dijo, señalando a Demelza. En
-ese momento, sin razón aparente, el Kevin emitió una risita -
+—¿No? Entonces ¿no eres amigo de esta? - dijo Tina, señalando a Demelza. En
+ese momento, sin razón aparente, el Kevin emitió una risita. Demelza puso los ojos en blanco, pero no dijo nada. -
 Entonces, esta mañana... 
 
 Paró un instante y se quedó mirando con los ojos abiertos a
@@ -1677,19 +1817,19 @@ personalmente, que evidentemente quiere terminar el trabajo, o que no
 pide en carné de identidad, como es natural, llega, un golpe certero
 y todo termina así, de repente, sales por donde has venido, nadie te
 ve, nadie te conoce... Pero también era posible que quisieran matar
-precisamente a esa persona. O a otra totalmente diferente. 
+precisamente a esa persona. O a otra totalmente diferente. O a una persona aleatoria.
 
 —No es descartable -, contestó Roble. 
 
 —Qué mono, no es descartable, oye, y qué descartáis entonces, ¿así lo
-decís, descartar? - dijo Tina
+decís, descartar? - dijo Tina.
 
 —¿Qué habéis descartado entonces? - preguntó Demelza.
 
 Kevin la miró. Roble no contestó, posó el codo en la mesa y la
 barbilla sobre su mano. Escuchando. 
 
-—Nosotros tampoco te hemos descartado a ti, caballero - dijo Tina -
+—Nosotros tampoco te hemos descartado a ti, guapito - dijo Tina -
 ¡Somos todos un grupito de presuntos asesinos! ¿Nos hacemos un grupo
 de WhatsApp con ese nombre, “Los presuntos de la muerte“?  
 
@@ -1698,24 +1838,24 @@ bueno escuchando, no sólo por el hecho físico de hacerlo, que eso lo
 hace cualquiera, sino porque transmitía desde su postura, su mirada,
 sus sonidos guturales de continuación del discurso, "Te estoy
 escuchando". En el gremio de escuchadores se habría llevado el premio
-de Escuchador Más Valioso. Si no eso, el que más polvos había
+de Escuchador Más Valioso. Si no de eso, el que más polvos había
 conseguido escuchando. Que tampoco era mal mérito. Por lo pronto,
 estaba claro que entre todos los presuntos de la muerte, había dos
 personas nerviosas. 
 
-—Kevin tiene unos amigos -, dijo Demelza, y a Tina le dio la risita -
+—Para descartar presuntos, o para descartarnos, o para buscar a más presuntos, Kevin tiene unos amigos -, dijo Demelza, y a Tina le dio la risita -
 que nos pueden ayudar. 
 
 Roble miró a Demelza y luego a Kevin, que seguía con la cabeza gacha
-concentrado en lo que fuera, robar un banco central, derribar cerdos
+concentrado intensamente en lo que fuera, robar un banco central, derribar cerdos
 con pájaros, programar un virus que destruyera las reservas mundiales
 de elixir contra la alopecia. 
 
-—Lo bueno de estos tíos - , "Son buenos", intervino Kevin, con
+—Lo bueno de estos tíos -, dijo Demelza, "Son buenos", intervino Kevin, con
 brevedad y hablando muy rápido, como esas voces que de repente se
 cruzan en la radio y que dicen "estroncio, rubidio y cesio" en medio
 de una retransmisión deportiva, dejándole la impresión de que, aunque
-no parece que haya nadie más ahí, entre tú y el que habla, sí lo hay y
+no parece que haya nadie más ahí, entre el que habla y tu receptor, sí lo hay y
 puede aparecer en el momento más inesperado -, es que son capaces de
 buscarte la información que quieras. Cobran caros. En una
 cosa que se llama bitcoins, ¿lo conocéis? - Todos pusieron cara de
@@ -1726,11 +1866,11 @@ si conoces a alguien...
 —¡Yo misma! -, dijo Tina. -A veces es como, caray, conoces a un tío, y dices
 joder, es un tío guay, y lo miras en Facebook, y es como, esto no
 puede ser verdad, ¿y si es caníbal o le huelen los pies o...? ¿Eso lo
-hacen tus colegas, Kevin? ¿Lo harían por mi?
+hacen tus colegas friquis, Kevin? ¿Lo harían por mi?
 
 —A alguien que quiera pagar, quería decir... - aclaró Demelza. 
 
-Tina sólo se rió, pero inmediatamente empezó a hablarle a Roble de
+Tina sólo se rió, pero inmediatamente comenzó a hablarle a Roble de
 algo llamado nanomateriales, lo que no tardó en provocar bostezos a
 Demelza que se propagaron inmediatamente a Kevin, en una frecuencia creciente, como el parto inminente de una marcha. Se levantaron para irse unos minutos  
  más tarde, y en el momento que Demelza le dio dos besos a Roble le dijo,
@@ -1739,6 +1879,7 @@ cuando sus labios estaban todavía cerca de su oreja:
 —Nos veremos pronto. 
 
 ## Los trabajos y los días
+{: .writer}
 
 En realidad, no soy escritor durante todas mis horas de vigilia. Nadie
 lo es. “¿Quiere usted escribir? Viva usted primero“, le dijo un
