@@ -3744,6 +3744,12 @@ para implantar duendes diversos que no requirieran de mi presencia
 física para indicarme dónde podía encontrarse la chica, o al menos si
 estaba o no estaba. 
 
+Todo ello procedimiento estándar aprendido, o colegido, en mi época de
+Fuerzas Militares Lopezosa. Que era como se llamaba originalmente FML,
+hasta que descubrió que, para ser un ejército privado de éxito, es
+imprescindible usar como denominación un acrónimo de tres letras. Y
+algo que deberían haber aprendido también mis lacayos lituanos. 
+
 ## La búsqueda del bicho
 
 Roble montó en la moto de Demelza para recorrer el kilómetro escaso
