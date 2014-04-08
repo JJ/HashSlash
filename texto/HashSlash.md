@@ -3360,7 +3360,13 @@ segunda vez que se lo saltaba.
 ## Finales felices
 {: writer}
 
-Y es que a los escritores nos gustan los finales felices, pero a la vez sorpendentes. Por eso el llevar a su conclusión ilógica pero inevitable la vida de una persona nos hace tan felices. Lo he sido con anterioridad. No cuando realizábamos matanzas al por mayor para FML en Somalia o en el norte de Tailandia. No era más feliz de lo que lo son los fantasmas que escriben para mi o por mi, dos expresiones que en inglés serían una sola ahorrando tinta, saliva o bytes. 
+Y es que a los escritores nos gustan los finales felices, pero a la
+vez sorprendentes. Por eso el llevar a su conclusión ilógica pero
+inevitable la vida de una persona nos hace tan felices. Lo he sido con
+anterioridad. No cuando realizábamos matanzas al por mayor para FML en
+Somalia o en el norte de Tailandia. No era más feliz de lo que lo son
+los fantasmas que escriben para mi o por mi, dos expresiones que en
+inglés serían una sola ahorrando tinta, saliva o bytes.  
 
 Si lo es cuando, tras crear todo el andamiaje, la planificación, la trama, el ritmo de avance de la misma, llegan y producen una disminución del ritmo de los latidos del corazón de una persona, hasta ese momento humana y, tras ese momento, simplemente una frase en una página que se ha pasado para nunca más volver a abrirse. Bonita frase, ¿verdad? De Rigoberto, creo. Hondureño. Mil frases como esa, a quince dólares. No creo que a él le hiciera feliz el escribirla, pero es posible que sí. La gente goza con las cosas más endemoniadamente complicadas y con las más simples. Lo hacía la no-Demelza a la que maté, lo estaba haciendo todo el tiempo. Seguía riendo y dando pequeños gorjeos de felicidad hasta después de parársele el corazón. Es imposible, creo. Pero me gusta pensar que fue así, que la hice feliz, que compartió mi felicidad. Nadie, después de todo, puede sentirse infeliz por haber muerto. No puede sentirse nada, mucho menos infeliz. 
 
@@ -3712,6 +3718,31 @@ mucho que cambie de ruta, quién sabe...
 
 —A la papelera.
 
+
+## Qué horas son mi corazón
+{: writer}
+
+¿Qué hora será ahora en Lituania? Pero la pregunta no es esa.
+
+¿Por qué esos artesanos antisanos lituanos no me han dicho nada
+todavía?
+
+Tampoco es que necesite una hoja de tiempos firmada al final de cada
+día. Pero no debe ser imposible para una persona localizar a un
+estudiante, aunque sea en Vilna. Yo mismo llegué a Granada sin más
+idea que la situación general y algún perfil falso en esas webs de
+caritas. Me planté en un bar un día que indicó en su muro que estaba
+allí y la seguí hasta una casa que resultó ser la de su novio necio y
+pelirrojo. 
+
+Las personas son animales de hábitos. Siempre repiten, siempre tienen
+su bar, su badulaque, su frutería. Antes de que desapareciera unos
+días para las vacaciones de Navidad tenía un mapa mental de su
+cotidianeidad. Y en Navidad se fue a Tokio, que es un gran sitio para
+ir en Navidad, pero no para un escritor como yo. Aproveché ausencias
+para implantar duendes diversos que no requirieran de mi presencia
+física para indicarme dónde podía encontrarse la chica, o al menos si
+estaba o no estaba. 
 
 ## La búsqueda del bicho
 
