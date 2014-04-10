@@ -4459,7 +4459,7 @@ Que el dinero no da la felicidad, pensó Cecilio. Con mucho menos de lo que ten�
 
 —De animación, por supuesto-, dijo Demelza. 
 
-Kevin, a su lado, masticaba con empeño unos sesos fritos. Como si hiciera falta, pensó Roble, que no los había probado. En esa ocasión. Los había probado cuando lllegó destinado a la comisaría, a unos veinte metros de Los Diamantes II, un bar en el que la gente y los vapores de la fritanga rezumaban por sus puertas. Cuando terminó de masticar, ni un momento antes, Kevin dijo:
+Kevin, a su lado, masticaba con empeño unos sesos fritos. Como si hiciera falta, pensó Roble, que no los había probado. En esa ocasión. Los había probado cuando llegó destinado a la comisaría, a unos veinte metros de Los Diamantes II, un bar en el que la gente y los vapores de la fritanga rezumaban por sus puertas. Cuando terminó de masticar, ni un momento antes, Kevin dijo:
 
 —Animación *frame* a *frame* estilo Harryhausen habría sido mucho más *cool*. 
 
