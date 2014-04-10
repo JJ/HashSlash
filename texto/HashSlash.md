@@ -890,16 +890,16 @@ Barbate para que tuviera un norte y un sur. Además, Barbate es sólo
 Sur, un sur profundo donde todo el mundo es como tiene que ser y hace
 lo que tiene que hacer. 
 
-Ese algo que siento no es realmente algo. Sentimental, quiero
+Esa sacudida que siento no es realmente una sacudida. Sentimental, quiero
 decir. Es simplemente un asalto a las neuronas de los recuerdos, o más
 bien coma una pieza de un puzzle que encaja, dejando el retrato de una
 persona completo. El retrato es mío, claro.  
 
 La pieza es pequeñita, pero tiene los bordes dentados. Como las
-piedras que le tiramos, desde las marismas del río, al helicóptero. Y
+piedras que le tiramos, desde las marismas del río, a aquel helicóptero. Y
 lo hicimos porque teníamos que hacerlo, porque el helicóptero de la
-Benemérita iba a descender e impedirnos que cargáramos los fardos que
-acababan de descargar de la lanzadera. Fardos que eran la vida de mi
+Benemérita iba a descender e impedirnos que cargásemos los fardos que
+acababan de aligerar  de la lanzadera. Fardos que eran la vida de mi
 familia durante un par de meses. Uno, si mi tío se pasaba bebiendo,
 que solía pasarse, pero sólo Fino La Ina, de la mejor calidad. Decía,
 el pobre, que cuando uno pillaba la curda de Fino La Ina se creía
