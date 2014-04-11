@@ -2487,7 +2487,7 @@ poco comprometida, para no equivocarse.
 
 —Casada. Con un gato. Por lo civil y en terceras nupcias-, dijo, y
 volvió a carcajearse. - Enviudé dos veces, pero este está 
-sanísimo, y yo, contenta de no tener que aguantar a nadie más. Ni de
+sanísimo, y yo, contenta de no tener que aguantar a nadie de mi misma especie. Ni de
 que me tengan que aguantar a mi. Bastante tengo con aguantaros a
 vosotros... 
 
@@ -2500,15 +2500,15 @@ Marisol.
 —Je, je, cuando quieras, sí, cuando quieras. Pero te llamo por otra,
 bueno, por otra cosa, a ver si sabes decirme. ¿Qué es lo que es el eme equis e?
 
-—Mandanga de la buena. Con eme; eme es como lo llaman, ¿lo pillas? -,
+—Mandanga de la buena. Con eme. Eme es como lo llaman, ¿lo pillas? -,
 dijo Rosalía. - De
-las que llaman *emergentes*, porque están empezando ahora mismo a
+las que llaman *emergentes*, porque están empezando ahora mismo, o hace dos días, a
 introducirse en el mercado. Dime más. ¿Aquí en Granada? 
 
-—Sí, una chica muerta aquí, ayer -, contestó Cecilio-, nos ha llegado el informe hoy mismo, 
+—Sí, una chica muerta aquí, ayer -, contestó Cecilio-, nos ha llegado el informe de tóxicos hoy mismo, 
 
-—Chungo. No sabíamos que la estuvieran pasando por aquí. Mándame lo
-que tengas, cuando puedas. Con los puntos y las comas puestos.  
+—Chungo. No sabíamos en la unidad que la estuvieran pasando por aquí. Mándame lo
+que tengas, cuando puedas. O sea ya. Con los puntos y las comas puestos.  
 
 —Je, je, claro. Pero, ¿qué hace la eme esa? ¿Mata? -, preguntó Cecilio.
 
@@ -2530,11 +2530,13 @@ pido a los de la UDYCO información y te la paso, ¿de acuerdo? Mientras
 tanto, busca por la Internet, coño, que no te va a pasar nada por
 tocar esos chismes... 
 
+En realidad, sí le pasaba. Si no le hubiera pasado, lo habría hecho en vez de pasar la vergüenza de llamar a Marisol. 
+
 —Venga, quedamos en eso -, repuso Cecilio. 
 
 —Y en el café -, contestó Marisol.
 
-—Y en el café. Venga, un saludo, Marisol.
+—Y en el café. Venga, un, un, bueno, un saludo, Marisol.
 
 —Y un beso, Cécil. Mándame eso ya.
 
@@ -2547,12 +2549,13 @@ Tardó unos minutos. El turno todavía no había terminado, así que hizo
 unas cuantas llamadas más a la lista de Tina, dejando mensajes en
 contestador y concertando citas para el día siguiente.  
 
-Y entonces sí terminó el turno. Una tarde bien aprovechada. Mientras
-tanto, ¿qué diablos habría estado haciendo Roble? 
+Y entonces sí terminó el turno. Una tarde bien aprovechada. Movió el ratón del ordenador, haciéndolo encenderse y mostrando una pantalla en la que decía 672 mensajes sin leer. 
+
+Cayó en la cuenta de que no había visto a Roble en toda la tarde. ¿Qué diablos habría estado haciendo? 
 
 ## Lo que Roble había estado haciendo
 
-Roble había tenido, cuando salió,  la intención de volver a la comisaría. Tras
+Roble había tenido, cuando salió de ella, la intención de volver a la comisaría. Tras
 conseguir encontrar a Jože el Erasmus esloveno. Pero tampoco había
 tenido la intención de pegarse una carrera hasta atraparlo, que fue lo
 que tuvo que hacer. 
