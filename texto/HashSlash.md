@@ -2186,7 +2186,7 @@ incapaz de meter más de eso en una frase. Por eso iba
 a volverse con sus colegas, los de siempre, los que llaman al pan,
 pan, al vino, vino y a la cerveza, Alhambra, cuando Roble le dijo:
 
-—¿Vienes al interrogatorio?
+—¿Vienes al interrogatorio? - le preguntó Roble.
 
 —Pero... -, dijo, volviéndose a pasar la palma de la mano por la
 boca, frotándose los labios. 
@@ -2200,46 +2200,46 @@ Pero quería saber quién era el asesino. Aunque fuera sólo por eso, lo
 siguió. Aunque cuando vieron desde la sala contigua a la de
 interrogatorios al detenido, preguntó al agente
 
-—¿Quién es ese tío?
+—¿Quién es ese tío? - preguntó Cecilio. 
 
 ## Preguntas frecuentemente preguntadas
 
-Cecilio nunca había entendido bien el tema de los interrogatorios. Si
+Cecilio nunca había entendido bien la razón de ser de los interrogatorios. Si
 el tío no es culpable, ¿qué quieres que te diga? Si acaso, se sentirá
 culpable de algo, de haberse meado en el portal del vecino, pongamos
 por caso, y ese
 sentimiento de culpa le hará sentirse nervioso y parecer culpable a
-los ojos de quien interroga. Y
+los ojos de quien interroga. Que perderá, por tanto, el tiempo miserablemente. Y
 si lo es, hay que ser muy estúpido para confesarlo. Que no es que los
 chorizos no sean estúpidos. En muchas ocasiones son chorizos precisamente
-por eso. Pero también son estúpidos veteranos, curtidos ante
+por eso. Pero también son estúpidos veteranos, curtidos ante preguntas inoportunas de
 profesores, padres y figuras de autoridad diversas como para que,
-cuando llegue uno y le diga “¿Dónde estuviste el día de autos?“ no te
+cuando llegue un notas con placa y le pregunte “¿Dónde estuviste el día de autos?“ no te
 contesten “Pues matando al muerto“, sino “No, jefe, no me gusta la
-fórmula uno“.
+fórmula uno“. Divertido, un gran chiste. Pero también una pérdida de tiempo.
 
 Además, el Ignacio este no parecía culpable. Parecía un pringao. Cecilio se
 puso las gafas de cerca para echarle un vistazo al
-expediente. Un camello de poca monta. Pero, las huellas. Y... ¿qué
+expediente policial, que alguien había rescatado de los archivos. Un camello de poca monta. Pero, las huellas. Y... ¿qué
 diablos es el MXE?
 
-Como era cierto que no Cecilio no tenía ni idea, se quedó en su
-despacho, viendo en la pantalla del ordenador el calabozo donde Roble
-interrogaba al tal Ignacio, mientras miraba los informes del forense y de la científica. No
+Como era cierto que Cecilio no tenía ni idea, se quedó en su
+despacho, con el calabozo donde Roble
+interrogaba al tal Ignacio en la pantalla del ordenador, mientras leía en diagonal los informes del forense y la científica. No
 entendía nada. Pero daba igual. Bajaría a los calabozos en un rato,
 le abrirían la celda con mucha ceremonia, dejaría una
 carpeta encima de la mesa a los lados de la cual estaban Roble y el
 tal Ignacio, miraría a uno y a otro negando con la cabeza, como
-diciendo "En menudo embolao te has metío, macho" Y el acusado haría lo
-que tenía que hacer, que con toda seguridad sería nada y
-excusarse. Pero, quién sabe. A lo mejor en esta ocasión les había
+diciendo "En menudo embolao te has metío, macho". Y el acusado haría lo
+que tenía que hacer, que con toda seguridad sería nada e imaginar 
+e inmediatamente contar excusas. Pero, quién sabe. A lo mejor en esta ocasión les había
 tocado el tonto, que, como en los chistes de Gila, y tras muchas indirectas, acaba confesando. 
 
 Entre página relativamente incomprensible y otra totalmente
 incomprensible, miraba y escuchaba a Roble preguntándole al acusado. El chaval valía para
-esto. No entendía por qué, pero valía.  
+esto. No entendía por qué, pero valía. Igual él si conseguía algo, aparte de perder el tiempo.  
 
-—Esta persona es la que has asesinado -, le dijo, mostrándole
+—Esta persona es la que has asesinado -, le decía Roble, mostrándole
 diferentes fotos extraídas de los perfiles en redes sociales, de su
 perfil en una página de *fan fiction*, vestidos florales, sola, con un
 grupo de amigas, con unas gafas sin cristal, ojos rojos por el flash,
@@ -2247,9 +2247,9 @@ una baraja de fotos extendida sobre la mesa, sota, con un tipo al que
 le echaba el brazo por encima, caballo, un *selfie* con un primer plano haciendo morritos
 con Demelza, rey, con la cara en un charco de sangre, la regla de los
 tercios haciendo que el cuchillo ocupase uno de los puntos
-importantes. Ignacio murmulló, pero Roble le interrumpió. 
+importantes. Ignacio murmuró, pero Roble le interrumpió. 
 
-—Tus huellas -, en esta ocasión un tablet que mostraba una foto de un
+—Tus huellas -, y en esta ocasión una tableta que mostraba una foto de un
 pañuelo de seda y, haciendo el gesto con los dedos, la ampliación
 hasta  que la huella de Ignacio se hizo bien visible; dos pulsaciones con el índice sobre la misma
 que enlazaban con la ficha policial de Ignacio, en la que aparecía mal
@@ -2490,7 +2490,7 @@ poco comprometida, para no equivocarse.
 
 —Casada. Con un gato. Por lo civil y en terceras nupcias-, dijo, y
 volvió a carcajearse. - Enviudé dos veces, pero este está 
-sanísimo, y yo, contenta de no tener que aguantar a nadie más. Ni de
+sanísimo, y yo, contenta de no tener que aguantar a nadie de mi misma especie. Ni de
 que me tengan que aguantar a mi. Bastante tengo con aguantaros a
 vosotros... 
 
@@ -2503,15 +2503,15 @@ Marisol.
 —Je, je, cuando quieras, sí, cuando quieras. Pero te llamo por otra,
 bueno, por otra cosa, a ver si sabes decirme. ¿Qué es lo que es el eme equis e?
 
-—Mandanga de la buena. Con eme; eme es como lo llaman, ¿lo pillas? -,
+—Mandanga de la buena. Con eme. Eme es como lo llaman, ¿lo pillas? -,
 dijo Rosalía. - De
-las que llaman *emergentes*, porque están empezando ahora mismo a
+las que llaman *emergentes*, porque están empezando ahora mismo, o hace dos días, a
 introducirse en el mercado. Dime más. ¿Aquí en Granada? 
 
-—Sí, una chica muerta aquí, ayer -, contestó Cecilio-, nos ha llegado el informe hoy mismo, 
+—Sí, una chica muerta aquí, ayer -, contestó Cecilio-, nos ha llegado el informe de tóxicos hoy mismo, 
 
-—Chungo. No sabíamos que la estuvieran pasando por aquí. Mándame lo
-que tengas, cuando puedas. Con los puntos y las comas puestos.  
+—Chungo. No sabíamos en la unidad que la estuvieran pasando por aquí. Mándame lo
+que tengas, cuando puedas. O sea ya. Con los puntos y las comas puestos.  
 
 —Je, je, claro. Pero, ¿qué hace la eme esa? ¿Mata? -, preguntó Cecilio.
 
@@ -2533,11 +2533,13 @@ pido a los de la UDYCO información y te la paso, ¿de acuerdo? Mientras
 tanto, busca por la Internet, coño, que no te va a pasar nada por
 tocar esos chismes... 
 
+En realidad, sí le pasaba. Si no le hubiera pasado, lo habría hecho en vez de pasar la vergüenza de llamar a Marisol. 
+
 —Venga, quedamos en eso -, repuso Cecilio. 
 
 —Y en el café -, contestó Marisol.
 
-—Y en el café. Venga, un saludo, Marisol.
+—Y en el café. Venga, un, un, bueno, un saludo, Marisol.
 
 —Y un beso, Cécil. Mándame eso ya.
 
@@ -2550,12 +2552,13 @@ Tardó unos minutos. El turno todavía no había terminado, así que hizo
 unas cuantas llamadas más a la lista de Tina, dejando mensajes en
 contestador y concertando citas para el día siguiente.  
 
-Y entonces sí terminó el turno. Una tarde bien aprovechada. Mientras
-tanto, ¿qué diablos habría estado haciendo Roble? 
+Y entonces sí terminó el turno. Una tarde bien aprovechada. Movió el ratón del ordenador, haciéndolo encenderse y mostrando una pantalla en la que decía 672 mensajes sin leer. 
+
+Cayó en la cuenta de que no había visto a Roble en toda la tarde. ¿Qué diablos habría estado haciendo? 
 
 ## Lo que Roble había estado haciendo
 
-Roble había tenido, cuando salió,  la intención de volver a la comisaría. Tras
+Roble había tenido, cuando salió de ella, la intención de volver a la comisaría. Tras
 conseguir encontrar a Jože el Erasmus esloveno. Pero tampoco había
 tenido la intención de pegarse una carrera hasta atraparlo, que fue lo
 que tuvo que hacer. 
@@ -3855,7 +3858,33 @@ que que volvió a pedir bayas goji, tan pasadas de moda que volvían a
 estar de moda. 
 
 Ya cubiertas las primeras necesidades físicas, comprobó el horario de trabajo en
-el móvil. Estaba otra vez de turno. 
+el móvil. Estaba otra vez de turno. Volvió a concentrarse en el resto de las necesidades físicas y de otro tipo de las que le avisaba el móvil.
+
+## Gastos corrientes
+
+La jueza no iba a dar ninguna orden a Correos. Un alivio, pensó Cecilio. A ver cómo toreaba ese morlaco. Un alivio también haberle colgado a la jueza, que empezó a recriminarle la falta de avance en el asunto Ainhoa. La madre había decidido, razonablemente, apartarse de las cámaras, pero ya había un presunto exnovio paseándose por platós y webs hablando de sus relaciones y de teorías conspiratorias de todo tipo. Al parecer, sabía *algo* y por ello *alguien* quería matarla. El exnovio llegó a aventurar que se trataba del gremio de escayolistas, lo que, pensó Cecilio, no parecía muy probable. En la prensa local hablaban de un asesino en serie. Como no habían encontrado más asesinatos parecidos, Quique el periodista hablaba de un asesino en serie *en sus comienzos*. Y Cecilio llegaba, por momentos, a desear que asesinaran a otra persona para poder dedicarse a ese asesinato. Y que fuera uno más facilito, claro. 
+
+Estaba en su despacho. En el ordenador había varios mensajes con informes, solicitados en el momento que descubrieron el cadáver. Las cuentas de Tina, de Kevin y de la propia Demelza. 
+
+Qué cantidad de dinero manejan los jóvenes de hoy en día. Caray. Kevin tenía ingresos continuos por todo tipo de concepto. Tina, en metálico, casi todos los días. Demelza, de editoriales. Cualquiera de los tres tenía saldos mayores que la cuenta donde Cecilio depositaba los gananciales. Que los que había habido en esa cuenta en cualquier momento de la historia. Los tres juntos podrían financiar un ejército para conquistar un archipiélago en el Índico. 
+
+¿Y qué diablos significaba eso?
+
+Que el dinero no da la felicidad, pensó Cecilio. Con mucho menos de lo que tenían esta panda de personas, él se encontraba contento.
+
+## Y una webserie
+
+—De animación, por supuesto-, dijo Demelza. 
+
+Kevin, a su lado, masticaba con empeño unos sesos fritos. Como si hiciera falta, pensó Roble, que no los había probado. En esa ocasión. Los había probado cuando llegó destinado a la comisaría, a unos veinte metros de Los Diamantes II, un bar en el que la gente y los vapores de la fritanga rezumaban por sus puertas. Cuando terminó de masticar, ni un momento antes, Kevin dijo:
+
+—Animación *frame* a *frame* estilo Harryhausen habría sido mucho más *cool*. 
+
+—Ya, pero ¿te he dicho que se hace a coste cero? ¿O negativo?
+
+Espera un momento, pensó Roble. ¿Coste negativo? ¿Es decir, que en vez de invertir dinero, lo...? No, espera, comencemos de nuevo. ¿Recibían dinero antes de que tuvieran que gastárselo? 
+
+Visto así, tenía sentido. Y lo había deducido él solo, sin necesidad del móvil, que ninguno de los dos podía usar en presencia de Demelza, para evitar su geolocalización. Eso, y los sesos, eran lo que parecían haber hecho a Kevin especialmente locuaz.
 
 
 ## Gastos corrientes
