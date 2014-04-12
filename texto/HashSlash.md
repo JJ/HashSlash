@@ -3883,6 +3883,37 @@ Espera un momento, pensó Roble. ¿Coste negativo? ¿Es decir, que en vez de inv
 
 Visto así, tenía sentido. Y lo había deducido él solo, sin necesidad del móvil, que ninguno de los dos podía usar en presencia de Demelza, para evitar su geolocalización. Eso, y los sesos, eran lo que parecían haber hecho a Kevin especialmente locuaz.
 
+
+## Gastos corrientes
+
+La jueza no iba a dar ninguna orden a Correos. Un alivio, pensó Cecilio. A ver cómo toreaba ese morlaco. Un alivio también haberle colgado a la jueza, que empezó a recriminarle la falta de avance en el asunto Ainhoa. La madre había decidido, razonablemente, apartarse de las cámaras, pero ya había un presunto exnovio paseándose por platós y webs hablando de sus relaciones y de teorías conspiratorias de todo tipo. Al parecer, sabía *algo* y por ello *alguien* quería matarla. El exnovio llegó a aventurar que se trataba del gremio de escayolistas, lo que, pensó Cecilio, no parecía muy probable. En la prensa local hablaban de un asesino en serie. Como no habían encontrado más asesinatos parecidos, Quique el periodista hablaba de un asesino en serie *en sus comienzos*. Y Cecilio llegaba, por momentos, a desear que asesinaran a otra persona para poder dedicarse a ese asesinato. Y que fuera uno más facilito, claro. 
+
+Estaba en su despacho. En el ordenador había varios mensajes con informes, solicitados en el momento que descubrieron el cadáver. Las cuentas de Tina, de Kevin y de la propia Demelza. 
+
+Qué cantidad de dinero manejan los jóvenes de hoy en día. Caray. Kevin tenía ingresos continuos por todo tipo de concepto. Tina, en metálico, casi todos los días. Demelza, de editoriales. Cualquiera de los tres tenía saldos mayores que la cuenta donde Cecilio depositaba los gananciales. Que los que había habido en esa cuenta en cualquier momento de la historia. Los tres juntos podrían financiar un ejército para conquistar un archipiélago en el Índico. 
+
+¿Y qué diablos significaba eso?
+
+Que el dinero no da la felicidad, pensó Cecilio. Con mucho menos de lo que tenían esta panda de personas, él se encontraba contento.
+
+## Y una webserie
+
+—De animación, por supuesto-, dijo Demelza. 
+
+Kevin, a su lado, masticaba con empeño unos sesos fritos. Como si hiciera falta, pensó Roble, que no los había probado. En esa ocasión. Los había probado cuando llegó destinado a la comisaría, a unos veinte metros de Los Diamantes II, un bar en el que la gente y los vapores de la fritanga rezumaban por sus puertas. Cuando terminó de masticar, ni un momento antes, Kevin dijo:
+
+—Animación *frame* a *frame* estilo Harryhausen habría sido mucho más *cool*. 
+
+—Ya, pero ¿te he dicho que se hace a coste cero? ¿O negativo?
+
+Espera un momento, pensó Roble. ¿Coste negativo? ¿Es decir, que en vez de invertir dinero, lo...? No, espera, comencemos de nuevo. ¿Recibían dinero antes de que tuvieran que gastárselo? 
+
+Visto así, tenía sentido. Y lo había deducido él solo, sin necesidad
+del móvil, que ninguno de los dos podía usar en presencia de Demelza,
+para evitar su geolocalización. Eso, y los sesos, eran lo que parecían
+haber hecho a Kevin especialmente locuaz.
+
+
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
 
