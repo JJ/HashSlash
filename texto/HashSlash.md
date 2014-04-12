@@ -3609,7 +3609,22 @@ un cliente de Nacho insatisfecho con el propio Nacho y, de camino, con
 su casero. Fueron una buena cantidad de bitcoins gastada en un rato. 
 
 Se abrió una ventana en el ordenador para indicarle que Demelza estaba
-en la puerta. 
+en la puerta.
+
+## El zoco
+{: writer}
+
+Aunque no necesito hacerlo, o quizás precisamente por ello, me gusta pasear por el zoco. No como el viejo que va buscando el bullicio, ni como el descuidero que va buscando monederos unidos de forma endeble a sus propietarios, ni como las amas de casa locales, que van buscando algo que comprar. O quizás como estas últimas. Buscas gente con hambre y por tanto con talento. Turistas, sobre todo. Los de Larache que tienen talento no tienen hambre  los que tienen hambre pero no talento no me sirven. Los únicos que son capaces de, con talento, tener hambre son los que vienen de más allá de Algeciras. Un sistema educativo perfecto ha logrado convertirlos en algo perfectamente inútil, que llegan aquí con hambre. De experiencias. De vida. 
+
+Que yo soy incapaz de ofrecerles, quizás. Pero nunca se sabe.
+
+Se guarda para más tarde. Como ellos, cualquier otra mercancía que pueda haber por el zoco. La miras, identificas el sitio donde la venden. Es importante saber dónde se vende cada cosa y cuánto vale. Cuando yo estaba en Barbate, no sabía cuanto valía nada. "Mil pesetas", me decía siempre. ¿Un bocadillo de melva con pimientos? Mil pesetas. Mil pesetas que nunca veía, y que fui a pedirle a mi tío y de ahí llegamos a los fardos de tabaco o de grifa o de lo que fuera. Para nada, porque allí no se podía comprar nada. Ni tu libertad. Nada. 
+
+Cuando compré la libertad pagando unos años de mi vida fue cuando aprendí a comprar de verdad. Tampoco se podía comprar casi nada, y menos cuando llegabas al objetivo donde si había muchas cosas que comprar antes de que llegáramos nosotros, cuando nos íbamos lo único que se vendía y compraba era la honra. Pero aprendí a buscar. Luego llegó Google y de repente hasta el más tonto creía que podía comprar cualquier cosa. Pero para adquirir lo que necesitamos los escritores, hacen falta además conexiones. 
+
+Unos detectores como los que usé con Demelza por ejmplo. De Taiwan. Tan pequeños. Piezoeléctricos. Se activan con la energía que cogen de las vibraciones. 
+
+
 
 ## Visitas a horas intempestivas
 
