@@ -3327,13 +3327,35 @@ heridas y cuchillos.
 ## Cae la noche
 {: .writer}
 
-En Marruecos, la noche cae muy rápidamente. En el enero tibio y en el julio abrasador, es cuando la gente sale a la calle. Siendo gente los hombres, claro. Hay noches en las que quiero salir a escuchar. Cuando necesito ideas. Hay otras en las que quiero salir a que me escuchen. No son muchas.
+En Marruecos, la noche cae muy rápidamente. En el enero tibio y en el
+julio abrasador, es cuando la gente sale a la calle. Siendo gente los
+hombres, claro. Hay noches en las que quiero salir a escuchar. Cuando
+necesito ideas. Hay otras en las que quiero salir a que me
+escuchen. No son muchas. 
 
-Ser escuchado es adictivo, en realidad. Los escritores somos. Son. Somos adictos a esa droga. Diría que somos, son adictos a escucharse a sí mismos, pero eso lo son sólo los poetas, quizás porque nadie, en realidad, los lee así que tienen que reunir familia, amigos y otros poetas ansiosos de contacto humano para poder escucharse sin parecer mucho más ridículos. Pero los escritores no tienen que leer en voz alta sus libros y por tanto no tienen que escucharse. Hasta los audiolibros los subcontratan porque serían incapaces de escucharse durante tanto tiempo sin caer exhaustos, desangrados a través de sus tímpanos perforados. Me gusta esa metáfora. Sugeriré a mis fantasmas que la introduzcan cuando sea conveniente. Quizás serán capaces de hacerlo. 
+Ser escuchado es adictivo, en realidad. Los escritores
+somos. Son. Somos adictos a esa droga. Diría que somos, son adictos a
+escucharse a sí mismos, pero eso lo son sólo los poetas, quizás porque
+nadie, en realidad, los lee así que tienen que reunir familia, amigos
+y otros poetas ansiosos de contacto humano para poder escucharse sin
+parecer mucho más ridículos. Pero los escritores no tienen que leer en
+voz alta sus libros y por tanto no tienen que escucharse. Hasta los
+audiolibros los subcontratan porque serían incapaces de escucharse
+durante tanto tiempo sin caer exhaustos, desangrados a través de sus
+tímpanos perforados. Me gusta esa metáfora. Sugeriré a mis fantasmas
+que la introduzcan cuando sea conveniente. Quizás serán capaces de
+hacerlo.  
 
-Cuando te escuchan te recuerdan y quizás sea eso lo que provoca la adicción. Y lo que yo trato de evitar. Siempre. La fiesta fue una gran oportunidad para eso. Para que nadie me escuchara ni me recordara. Tampoco fue difícil. Personas como yo podrían llamar la atención en una fiesta de imberbes y gaznápiros. Pero una buena crema deja la tez suave como la de un pisaverde y un corte de pelo creativo evita todas las canas que el teñido no ha podido cubrir.
+Cuando te escuchan te recuerdan y quizás sea eso lo que provoca la
+adicción. Y lo que yo trato de evitar. Siempre. La fiesta fue una gran
+oportunidad para eso. Para que nadie me escuchara ni me
+recordara. Tampoco fue difícil. Personas como yo podrían llamar la
+atención en una fiesta de imberbes y gaznápiros. Pero una buena crema
+deja la tez suave como la de un pisaverde y un corte de pelo creativo
+evita todas las canas que el teñido no ha podido cubrir. 
 
-Y la crema, siempre Shiseido. Del *duty-free* del ferry. Nunca uso otra marca.
+Y la crema, siempre Shiseido. Del *duty-free* del ferry. Nunca uso
+otra marca. 
 
 ## Víctimas de libro
 
@@ -3634,17 +3656,62 @@ en la puerta.
 ## El zoco
 {: writer}
 
-Aunque no necesito hacerlo, o quizás precisamente por ello, me gusta pasear por el zoco. No como el viejo que va buscando el bullicio, ni como el descuidero que va buscando monederos unidos de forma endeble a sus propietarios, ni como las amas de casa locales, que van buscando algo que comprar. O quizás como estas últimas. Buscas gente con hambre y por tanto con talento. Turistas, sobre todo. Los de Larache que tienen talento no tienen hambre  los que tienen hambre pero no talento no me sirven. Los únicos que son capaces de, con talento, tener hambre son los que vienen de más allá de Algeciras. Un sistema educativo perfecto ha logrado convertirlos en algo perfectamente inútil, que llegan aquí con hambre. De experiencias. De vida. 
+Aunque no necesito hacerlo, o quizás precisamente por ello, me gusta
+pasear por el zoco. No como el viejo que va buscando el bullicio, ni
+como el descuidero que va buscando monederos unidos de forma endeble a
+sus propietarios, ni como las amas de casa locales, que van buscando
+algo que comprar. O quizás como estas últimas. Buscas gente con hambre
+y por tanto con talento. Turistas, sobre todo. Los de Larache que
+tienen talento no tienen hambre  los que tienen hambre pero no talento
+no me sirven. Los únicos que son capaces de, con talento, tener hambre
+son los que vienen de más allá de Algeciras. Un sistema educativo
+perfecto ha logrado convertirlos en algo perfectamente inútil, que
+llegan aquí con hambre. De experiencias. De vida.  
 
-Que yo soy incapaz de ofrecerles, quizás. Pero nunca se sabe.
+Que yo soy incapaz de ofrecerles, quizás. Pero nunca se sabe. Además,
+todo lo que he dicho arriba es mentira. En realidad voy buscando a
+alguna turista cutre y entradita en carnes que, a cambio de
+alojamiento y con un poco de suerte desayuno, me permita repasarle sus
+encantos con manos y lengua. Qué diablos. A los escritores nos gusta
+hablar en metáforas siempre, pero al final lo que nos gusta es
+meterla. ¿Miriam? A Miriam no le importa siempre que no sean, en
+total, cuatro a la vez, según dice el Islam. O diría eso si le hubiera
+preguntado. Que no lo he hecho. 
 
-Se guarda para más tarde. Como ellos, cualquier otra mercancía que pueda haber por el zoco. La miras, identificas el sitio donde la venden. Es importante saber dónde se vende cada cosa y cuánto vale. Cuando yo estaba en Barbate, no sabía cuanto valía nada. "Mil pesetas", me decía siempre. ¿Un bocadillo de melva con pimientos? Mil pesetas. Mil pesetas que nunca veía, y que fui a pedirle a mi tío y de ahí llegamos a los fardos de tabaco o de grifa o de lo que fuera. Para nada, porque allí no se podía comprar nada. Ni tu libertad. Nada. 
+Además, una amistad satisfecha siempre puede servir más adelante,
+quién sabe. Mientras que ellas serían incapaces de encontrar mi casa
+en el laberinto de la medina antigua de Larache, yo siempre me quedo con
+teléfonos, feisbucs, lo que haga falta para poder localizarlas en caso
+necesario. Se guarda para más tarde. 
 
-Cuando compré la libertad pagando unos años de mi vida fue cuando aprendí a comprar de verdad. Tampoco se podía comprar casi nada, y menos cuando llegabas al objetivo donde si había muchas cosas que comprar antes de que llegáramos nosotros, cuando nos íbamos lo único que se vendía y compraba era la honra. Pero aprendí a buscar. Luego llegó Google y de repente hasta el más tonto creía que podía comprar cualquier cosa. Pero para adquirir lo que necesitamos los escritores, hacen falta además conexiones. 
+Como ellas, también me quedo con las coordenadas de cualquier otra
+mercancía que pueda haber por el zoco. La miras, identificas el sitio
+donde la venden. Es importante saber dónde se vende cada cosa y cuánto
+vale. Cuando yo estaba en Barbate, no sabía cuanto valía nada. "Mil
+pesetas", me decía siempre. ¿Un bocadillo de melva con pimientos? Mil
+pesetas. Mil pesetas que nunca veía, y que fui a pedirle a mi tío y de
+ahí llegamos a los fardos de tabaco o de grifa o de lo que fuera. Para
+nada, porque allí no se podía comprar nada. Ni tu libertad. Nada.  
 
-Unos detectores como los que usé con Demelza por ejmplo. De Taiwan. Tan pequeños. Piezoeléctricos. Se activan con la energía que cogen de las vibraciones. 
+Cuando compré la libertad pagando unos años de mi vida fue cuando
+aprendí a comprar de verdad. Tampoco se podía comprar casi nada, y
+menos cuando llegabas al objetivo donde si había muchas cosas que
+comprar antes de que llegáramos nosotros, cuando nos íbamos lo único
+que se vendía y compraba era la honra. Pero aprendí a buscar. Luego
+llegó Google y de repente hasta el más tonto creía que podía comprar
+cualquier cosa. Pero para adquirir los apechusques con los que
+trasegamos en el gremio de los escritores,
+hacen falta además conexiones.  
 
+Unos detectores como los que usé con Demelza por ejemplo. De
+Taiwan. Tan pequeños. Piezoeléctricos. Se activan con la energía que
+cogen de las vibraciones.  Para saber cuando entra y cuando sale. 
 
+Al volver del zoco por la calle de Mohammed V hacia mi casa recordé a
+mi subalternos lituanos que, esperaba, estuvieran usando esos
+artilugios u otros más avanzados, producto del ingenio soviético, para
+localizarla ahora, en estos momentos. Y tenía una ventana de contacto
+con ellos en unos minutos. Me apresuré en llegar a mi hogar. 
 
 ## Visitas a horas intempestivas
 
@@ -3759,8 +3826,8 @@ mucho que cambie de ruta, quién sabe...
 
 ¿Qué hora será ahora en Lituania? Pero la pregunta no es esa.
 
-¿Por qué esos artesanos antisanos lituanos no me han dicho nada
-todavía?
+¿Por qué esos artesanos antisanos lituanos han sido incapaces 
+todavía de traerme buenas noticias?
 
 Tampoco es que necesite una hoja de tiempos firmada al final de cada
 día. Pero no debe ser imposible para una persona localizar a un
@@ -3772,10 +3839,10 @@ pelirrojo.
 
 Las personas son animales de hábitos. Siempre repiten, siempre tienen
 su bar, su badulaque, su frutería. Antes de que desapareciera unos
-días para las vacaciones de Navidad tenía un mapa mental de su
-cotidianeidad. Y en Navidad se fue a Tokio, que es un gran sitio para
+días para las vacaciones de Navidad tenía un mapa mental de la
+cotidianeidad de la tal Demelza. Y en Navidad se fue a Tokio, que es un gran sitio para
 ir en Navidad, pero no para un escritor como yo. Aproveché ausencias
-para implantar duendes diversos que no requirieran de mi presencia
+para implantar duendes diversos, que no requirieran de mi presencia
 física para indicarme dónde podía encontrarse la chica, o al menos si
 estaba o no estaba. 
 
@@ -3783,7 +3850,8 @@ Todo ello procedimiento estándar aprendido, o colegido, en mi época de
 Fuerzas Militares Lopezosa. Que era como se llamaba originalmente FML,
 hasta que descubrió que, para ser un ejército privado de éxito, es
 imprescindible usar como denominación un acrónimo de tres letras. Y
-algo que deberían haber aprendido también mis lacayos lituanos. 
+algo que deberían haber aprendido también mis lacayos lituanos. Como a
+usar los chismes que, en el mismo lugar y tiempo, aprendí a usar y a adquirir.
 
 ## La búsqueda del bicho
 
@@ -3983,7 +4051,6 @@ asesina. O asesinos. Y en cualquiera de las hipótesis, Roble no sabía
 por dónde empezar a buscarlos. Pero al menos sabía que no era Tina, ni Nacho, ni
 ninguno de los que habían aparecido en las apuestas hasta ahora.
 
-
 ## Interrogatorios posiblemente superfluos
 
 Eso era lo que pensaba Cecilio según iba a visitar a su primer
@@ -4149,6 +4216,28 @@ Era Marisol, y ahora sí llevaba la palabra clave.
 Se levantó y se fue sin despedirse. Ya le pediría a la jueza que
 citara al tal Daniel en el
 juzgado. 
+
+## De hoy no pasa
+{: writer}
+
+No pude ni siquiera pasear por la orilla del mar al amanecer, cuando
+solía. Me revolví en la cama y ni siquiera llamar a Miriam, para
+hacerme compañía y otras labores que sólo ella sabía hacer, lograron
+calmarme. Seguí en la cama hasta mucho más tarde que cualquier persona
+que se respete a sí misma debería estar y luego maltraté a mis
+escritores fantasmas durante el resto de la mañana. 
+
+Hasta que llegó la ventana de contacto con Lituania.
+
+Hasta que pasó la ventana de contacto con Lituania. 
+
+¿Resultaría excesivamente caro que los matarifes birmanos se
+desplazaran hasta allí? Aunque la discreción, posiblemente, no estaría
+garantizada.
+
+Hay una cosa que odio de este oficio. En realidad, odio varias. Pero
+hay una cosa que odio más que nada. Finalmente, para que la obra quede
+a tu entera satisfacción, tienes que terminarla tú mismo. 
 
 ## Otro punto de vista
 
@@ -4456,6 +4545,8 @@ Cecilio se quedó pensando un momento.
 —Es cierto. ¿Los puede meter también en la solicitud de información?
 
 —¿En serio? -, preguntó de nuevo la jueza.
+
+
 
 ## La red
 
