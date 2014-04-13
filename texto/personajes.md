@@ -33,3 +33,11 @@ Tina | 1992 | - | Cocina e investiga | Compañera de piso de Demelza
 Ignacio Salido | 1989 | -  | Trapichea | Okupa en el piso de enfrente de Demelza y Tina
 Kevin | 1994 |  - |  Estudia por su cuenta en MOOCs | Novio de Demelza
 Julia Matesanz Vázquez | 1988 | Estudió Educación Física, literata ambulatoria |  
+
+El escritor y su tropa fantasma
+---
+
+Nombre | Nacido - cuando | dónde |  A qué se dedica | Otros
+--- |--- |--- |--- | ---
+Escritor | 1984 | Barbate | Escribe y mata | Sólo apareceexplícitamente en esta rama
+Miriam | 1996 | Larache | Esposa o sirvienta del Escritor | Poco sabemos de ella

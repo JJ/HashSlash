@@ -882,7 +882,7 @@ humana nunca dejaría de sorprenderle.
 ## Condición humana
 {: .writer}
 
-La condición humana. Nada nuevo en ella, nada que me sorprenda. Me
+La condición humana. No encuentro nada nuevo en ella, nada que me sorprenda. Me
 sorprendía cuando era un chaval ahí, en Barbate. Todavía siento algo
 cuando veo en la autovía las indicaciones que lo mencionan, Barbate,
 32 kilómetros, salida Barbate Norte, como si hubiera suficiente
@@ -931,7 +931,9 @@ cárcel, nada. El duque Ismael era, entonces, un filósofo renegrido
 que, a la puerta de las tabernas, te cantaba o te narraba historias
 inventadas por un chato de vino.  
 
-Tampoco me sorprendió. ¿Cómo podía sorprenderme? Sí me sorprendería que siguiera vivo ahora, casi veinte años más tarde. O no, porque no pienso salirme de mi ruta para comprobarlo. 
+Tampoco me sorprendió. ¿Cómo podía sorprenderme? Sí me sorprendería
+que siguiera vivo ahora, casi veinte años más tarde. O no, porque no
+pienso salirme de mi ruta para comprobarlo.  
 
 
 ## Identidad
@@ -3368,9 +3370,27 @@ Somalia o en el norte de Tailandia. No era más feliz de lo que lo son
 los fantasmas que escriben para mi o por mi, dos expresiones que en
 inglés serían una sola ahorrando tinta, saliva o bytes.  
 
-Si lo es cuando, tras crear todo el andamiaje, la planificación, la trama, el ritmo de avance de la misma, llegan y producen una disminución del ritmo de los latidos del corazón de una persona, hasta ese momento humana y, tras ese momento, simplemente una frase en una página que se ha pasado para nunca más volver a abrirse. Bonita frase, ¿verdad? De Rigoberto, creo. Hondureño. Mil frases como esa, a quince dólares. No creo que a él le hiciera feliz el escribirla, pero es posible que sí. La gente goza con las cosas más endemoniadamente complicadas y con las más simples. Lo hacía la no-Demelza a la que maté, lo estaba haciendo todo el tiempo. Seguía riendo y dando pequeños gorjeos de felicidad hasta después de parársele el corazón. Es imposible, creo. Pero me gusta pensar que fue así, que la hice feliz, que compartió mi felicidad. Nadie, después de todo, puede sentirse infeliz por haber muerto. No puede sentirse nada, mucho menos infeliz. 
+Si lo es cuando, tras crear todo el andamiaje, la planificación, la
+trama, el ritmo de avance de la misma, llegan y producen una
+disminución del ritmo de los latidos del corazón de una persona, hasta
+ese momento humana y, tras ese momento, simplemente una frase en una
+página que se ha pasado para nunca más volver a abrirse. Bonita frase,
+¿verdad? De Rigoberto, creo. Hondureño. Mil frases como esa, a quince
+dólares. No creo que a él le hiciera feliz el escribirla, pero es
+posible que sí. La gente goza con las cosas más endemoniadamente
+complicadas y con las más simples. Lo hacía la no-Demelza a la que
+maté, lo estaba haciendo todo el tiempo. Seguía riendo y dando
+pequeños gorjeos de felicidad hasta después de parársele el
+corazón. Es imposible, creo. Pero me gusta pensar que fue así, que la
+hice feliz, que compartió mi felicidad. Nadie, después de todo, puede
+sentirse infeliz por haber muerto. No puede sentirse nada, mucho menos
+infeliz.  
 
-Por eso nos gustan las muertes, siempre son acontecimientos felices. Para quien los produce y para quien los recibe. Lo que produce infelicidad es descubrir que no has muerto, te hace huir como la maldita Demelza, al lejano norte, a donde ni siquiera los nativos del lejano norte son capaces de encontrarla. 
+Por eso nos gustan las muertes, siempre son acontecimientos
+felices. Para quien los produce y para quien los recibe. Lo que
+produce infelicidad es descubrir que no has muerto, te hace huir como
+la maldita Demelza, al lejano norte, a donde ni siquiera los nativos
+del lejano norte son capaces de encontrarla.  
 
 Pero hay que darles tiempo. Son profesionales. Y yo un escritor. Y mientras llega ese fin, vivo. 
 
