@@ -39,5 +39,5 @@ El escritor y su tropa fantasma
 
 Nombre | Nacido - cuando | dónde |  A qué se dedica | Otros
 --- |--- |--- |--- | ---
-Escritor | 1984 | Barbate | Escribe y mata | Sólo apareceexplícitamente en esta rama
+Escritor | 1984 | Barbate | Escribe y mata | Sólo aparece explícitamente en esta rama
 Miriam | 1996 | Larache | Esposa o sirvienta del Escritor | Poco sabemos de ella
