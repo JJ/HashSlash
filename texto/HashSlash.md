@@ -2604,11 +2604,10 @@ antes de preguntar e identificarse, pero no creía que esa fuera razón
 suficiente como para que Jože saliera corriendo hacia su izquierda.  
 
 Joder, pensó Roble. Vamos a correr ahora. Conectó el app NoFlab para
-que tuviera en cuenta el esfuerzo realizado.  
+que contabilizara el esfuerzo realizado. Perdió unos segundos, pero no echaría a perder el gasto de calorías. 
 
-Lo alcanzó a la altura de los comedores universitarios, cuando trató
-de esquivar a la gente que estaba delante de ellos, esperando a los
-autobuses del área metropolitana, tras unos minutos. Lo agarró del
+Lo alcanzó a la altura de los comedores universitarios, de los que, a esas horas, todavía salían algunos estudiantes. El goteo de gente que se desviaba por la acera cuando alcanzaban a las colas deslavazadas formadas en los alrededores de parada de autobús, esperando a los
+ del área metropolitana, le hizo frenarse para evitar tropezarse con ellos. Lo agarró del
 cuello del abrigo y el perseguido estuvo a punto de caerse, pero
 recuperó y amagó un puñetazo hacia Roble. Roble lo esquivó e hizo el
 gesto, con el dedo índice, de "No, no, no". 
