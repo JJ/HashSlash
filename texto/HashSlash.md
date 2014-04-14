@@ -2599,8 +2599,8 @@ Jože le miró.
 
 —Roble Sáenz. Policía. 
 
-Ya había incumplido el protocolo, que decía que tenía que saludarlo
-antes de preguntar e identificarse, pero no creía que esa fuera razón
+Ya había incumplido el protocolo de actuación policial con testigos, que indicaba que tenía que saludar  e identificarse
+antes de hacer cualquier pregunta, pero no creía que esa fuera razón
 suficiente como para que Jože saliera corriendo hacia su izquierda.  
 
 Joder, pensó Roble. Vamos a correr ahora. Conectó el app NoFlab para
@@ -2612,19 +2612,19 @@ cuello del abrigo y el perseguido estuvo a punto de caerse, pero
 recuperó y amagó un puñetazo hacia Roble. Roble lo esquivó e hizo el
 gesto, con el dedo índice, de "No, no, no". 
 
-—¿Qué quieres? ¿Qué quierres? - preguntó Jože.
+—¿Qué quieres? ¿Qué es que quierres? - preguntó Jože.
 
-—Sólo hablar. ¿Hablamos?
+—Sólo hablar - contestó Roble. - ¿Hablamos? - le dijo, indicándole los escalones de los comedores, a la sombra de múltiples anuncios de cursos, fiestas para Erasmus, estos últimos todos activos y retransmitiendo solicitudes de envío de información que provocaban una continua vibración en la pulsera de Roble.
 
-Se sentaron a descansar en los escalones de los comedores universitarios. Jože encendió un cigarro. Exhaló el humo y se quedó mirando a Roble.
+Se sentaron en los escalones, recuperando poco a poco el resuello. Cuando Jože hubo llenado sus alveolos de una cantidad suficiente de oxígono, éstos se sintieron incómodos y le pidieron un poco de nicotina y alquitrán. El cumplió su deseo encendiendo un cigarro y tomando una larga calada. Exhaló el humo y se quedó mirando a Roble.
 
-—Ainhoa -, dijo Roble.
+—Ainhoa -, dijo Roble. 
 
-—Mi amiga. La han matado -, contestó.
+—Mi amiga. Mi. Amiga. La han matado -, contestó, sin dejar de fumar y mirar en dirección a los autobuses que llegan con gente y partían también con gente.
 
-—¿Tu amiga? ¿Quién?
+—¿Matado? ¿Quién? - preguntó Roble.
 
-—Tío, no sé, de verdad, no sé. Yo estuve en la fiesta, desapareció, me fui. Al día siguiente, muerta como la otra. Muchas muertas, yo no quiero saber nada, me voy a mi casa -, contestó Jože.
+—Tío, no sé, de verdad, no sé. Yo estuve en la fiesta, desapareció, yo me fui. Al día siguiente, muerta como la otra. Muchas muertas, yo no quiero saber nada, me voy a mi casa -, contestó Jože.
 
 —¿Por qué fuiste? No conocías a nadie - le preguntó Roble, recordando el mapa de conexiones entre los asistentes a la fiesta que había encontrado. 
 
