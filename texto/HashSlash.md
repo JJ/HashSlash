@@ -4461,14 +4461,51 @@ haber salido de su casa, que nunca visité, un minuto antes, avisado
 por alguien por silbidos o usando un djinn mensajero de la llegada del
 tren. El té en su mesa todavía emitía un vaho mentolado y la primera
 ceniza de su cigarro todavía no había caído. Se levantó, nos dimos la
-mano y nos besamos en la mejilla tres veces como manda la tradición, y
-me senté, esperando que, tarde o temprano, el perfectamente uniformado
-camarero me notara y se acercara. Algo que sucedía eventualmente, pero
-sin una duración prefijada.
+mano, nos besamos en la mejilla tres veces como manda la tradición y
+nos llevamos la mano al corazón.  
 
 Abdelatif, allá por cuando trotábamos por esos mundos subfusil en
 ristre desfaciendo entuertos de otros por un precio razonable en las
-FML, 
+FML, se llamaba simplemente Mohammed. 
+
+—Cómo va todo, Mohammed. Cómo está tu familia. Cómo te encuentras de
+salud - le pregunté.
+
+—Bien, todo bien, escritor. Y cómo tu familia, tu Miriam, tu negocio,
+todo bien.
+
+—No tan bien, no tan bien -, le contesto. Por eso había venido. 
+
+Me senté, esperando que, tarde o temprano, el perfectamente uniformado
+camarero me notara y se acercara. Algo que sucedía eventualmente, pero
+sin una duración prefijada. Abdelatif me miró con los ojos
+entrecerrados y aspiró del cigarrillo, exhalando un humo que olía a
+clavo, a leña y quién sabe a qué más. 
+
+—Hay lo que hay. No se puede hacer más que Alá desea para nosotros -
+me dijo.
+
+Sabía que me iba a decir eso. Siempre lo decía. Allá por nuestra época
+guerrillera a sueldo, cuando éramos cinco y teníamos que extraer a un
+coronel corrupto de las manos de un comandante corrupto, como nos
+sucedió en Odessa y el comandante corrupto estaba rodeado de cincuenta
+ex-spetsnaz soviéticos, con más mala leche que armas, «hay lo que
+hay», decía. Esto tiene que hacerse, y esto es lo que Alá nos ha
+mandado. Y yo me cagaba en todos los muertos de Alá y de los rusos y
+de quien nos había contratado, y él me enseñaba a hablar sin maldecir
+y a maldecir sin hablar y luego me mostraba un par de puntos débiles
+del perímetro y cómo entrar sin que muriera nadie. De los nuestros,
+claro. Cada muerto nuestro nos bajaba el bono por completar la misión.
+
+Desgraciadamente, el bono bajó considerablemente hasta que de la vieja
+guardia no quedábamos más que él y yo. Y luego FML también
+desapareció.
+
+Quizás algunos compañeros todavía se dedicaban a la siega. A la de
+vidas humanas, claro. Pero en esa línea de trabajo, es mejor no
+contratar a amigos ni a conocidos. Ni, aparentemente, a lituanos.
+
+
 
 ## El correo del M
 
