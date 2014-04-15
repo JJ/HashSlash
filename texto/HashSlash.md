@@ -4433,7 +4433,42 @@ Y Roble no lo iba a estar menos. Por poco tiempo. El cardiómetro de su pulsera 
 
 Todas esas apps de estilo de vida, a su vez orquestadas por otra app que las priorizó, callaron cuando tomó un zumo de granada, garabateó en su móvil notas para escribirlas más tarde, escaneó informes de la comisaría y los subió a un sitio mientras tomaba un segundo vaso de zumo y, finalmente, para satisfacer al último, al más exigente, momentáneamente, se puso las zapatillas de deporte, cuyos chips NFC se conectaron con la pulsera, tranquilizándola y diciéndole "Eh, ¡que ya va a hacer ejercicio! ¡De veras! ¿No lo ves? ¡Se ha puesto las zapatillas!"
 
-Había un asunto más que debería haber ocupado su tiempo. Pero no tenía app para ello. Así que no ocupó ni un minuto de su mente mientras trotaba por las cuestas pedregosas del Barranco del Abogado y sacaba foto de algún graffiti surgido en la última noche. 
+Había un asunto más que debería haber ocupado su tiempo. Pero no tenía
+app para ello. Así que no ocupó ni un minuto de su mente mientras
+trotaba por las cuestas pedregosas del Barranco del Abogado y sacaba
+foto de algún graffiti surgido en la última noche. 
+
+## Había lo que había
+
+El traqueteo y bullicio en el tren hasta Alcazarquivir ayudó considerablemente
+a que se asentara en mi un estado que, si no era equivalente a la
+calma, al menos se acercaba lo suficiente para que mi amigo Abdelatif
+Akalay me lo devolviera. La paciencia necesaria para emprender un
+viaje que empieza cuando parte el tren y termina cuando llega, sin
+tener la más mínima pista de cuando va a suceder lo primero ni lo
+segundo, también me situó en un estado mental adecuado para lo que
+todo ello sucediera. 
+
+Y no uso amigo a la ligera. Lo es en todos los sentidos de la
+palabra. Amigo es a quien le puedes dar un sablazo, dos o tres sin que
+se resienta lo más mínimo tu amistad. A quien puedes acudir buscando
+serenidad sin que él te moleste buscando lo mismo. Y a quien puedes
+tratar con desdén o indiferencia sin que la relación se resienta lo
+más mínimo. Ese es Abdelatif.
+
+Cuando llegué al café Al Menara, el podía llevar allí horas, o días, o
+haber salido de su casa, que nunca visité, un minuto antes, avisado
+por alguien por silbidos o usando un djinn mensajero de la llegada del
+tren. El té en su mesa todavía emitía un vaho mentolado y la primera
+ceniza de su cigarro todavía no había caído. Se levantó, nos dimos la
+mano y nos besamos en la mejilla tres veces como manda la tradición, y
+me senté, esperando que, tarde o temprano, el perfectamente uniformado
+camarero me notara y se acercara. Algo que sucedía eventualmente, pero
+sin una duración prefijada.
+
+Abdelatif, allá por cuando trotábamos por esos mundos subfusil en
+ristre desfaciendo entuertos de otros por un precio razonable en las
+FML, 
 
 ## El correo del M
 
