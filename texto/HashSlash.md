@@ -3682,18 +3682,17 @@ segunda. Ya tenía una lista de personas y ahora también tenía un
 perfil: un perfil profesional. Así que era cuestión de cotejar. O de
 eliminar, más bien. 
 
-Como tendría que eliminar el problema que habitaba su garaje. Era un poco como una caries en sus estadios iniciales. Sólo la notas de vez en cuando y el resto del tiempo no hace sentir su presencia, pero está ahí. Ahora, cuando se hace notar es cuando tienes que tener analgésicos suficientemente fuertes cerca. 
+Como tendría que eliminar el problema que habitaba su garaje. Era un poco como una caries en sus estadios iniciales. Sólo la notas de vez en cuando y el resto del tiempo no hace sentir su presencia, pero está ahí. Ahora, cuando se hace notar es cuando tienes que tener analgésicos suficientemente fuertes cerca.  
 
 Se comenzaron a oir golpes en la puerta metálica del
 garaje. Afortunadamente, era media mañana y no era lo más ruidoso que
 circulaba por el vecindario a esas horas. Lo más ruidoso solían ser
-reliquias que, de alguna forma, se habían mantenido más que por su
+reliquias ambulantes que, de alguna forma, se habían mantenido más que por su
 relevancia comercial, por la textura sonora que añadían a las calles
 de la ciudad: la camioneta que repartía las bombonas de butano, el
-afilador e, incluso, una vez, la troupe calé con un miembro de la raza
-caprina. Escenas todas ellas merecedoras de la etiqueta #vintage y que
-le habían granjeado bastantes *me gusta* en las fotos que había hecho
-en Instagram. 
+afilador anunciando su mester por los altavoces e, incluso, una vez, la troupe calé con un miembro de la especie
+caprina. Escenas todas ellas merecedoras de la etiqueta #vintage y que, captadas y adecuadamente tratadas,
+le habían granjeado bastantes *me gusta* en Instagram y otras redes sociales.. 
 
 Lo que no iba a conseguir con lo que fuera que estuviera aporreando la
 puerta de su garaje. Con insistencia. Roble pensó que no estaba
@@ -3868,6 +3867,14 @@ Qué cantidad de dinero manejan los jóvenes de hoy en día. Caray. Kevin tenía
 
 Que el dinero no da la felicidad, pensó Cecilio. Con mucho menos de lo que tenían esta panda de personas, él se encontraba contento.
 
+## Pero escribir
+
+Roble pensó que quizás escribir no era una necesidad física. Lo hacía solamente por placer. No le daba tanto dinero como para que mereciera la pena quitarle tiempo a otras aficiones o semiprofesiones, distinción arbitraria en estos tiempos, más lucrativas.
+
+Sin embargo, había pocos placeres que se parecieran tanto a una obligación. Nadie le ponía plazos, nadie le imponía números de líneas escritas al día, a nadie había que devolverle adelantos sobre ventas. Pero *tenía* que hacerlo. Tenía que llegar a ese clímax en que el asesino y la persona asesinada se encontraban con final fatal para uno de ellos. Un final que no conocía y que buscaba, como el asesino buscaba a su némesis.
+
+
+
 ## Y una webserie
 
 —De animación, por supuesto-, dijo Demelza. 
@@ -3883,34 +3890,7 @@ Espera un momento, pensó Roble. ¿Coste negativo? ¿Es decir, que en vez de inv
 Visto así, tenía sentido. Y lo había deducido él solo, sin necesidad del móvil, que ninguno de los dos podía usar en presencia de Demelza, para evitar su geolocalización. Eso, y los sesos, eran lo que parecían haber hecho a Kevin especialmente locuaz.
 
 
-## Gastos corrientes
 
-La jueza no iba a dar ninguna orden a Correos. Un alivio, pensó Cecilio. A ver cómo toreaba ese morlaco. Un alivio también haberle colgado a la jueza, que empezó a recriminarle la falta de avance en el asunto Ainhoa. La madre había decidido, razonablemente, apartarse de las cámaras, pero ya había un presunto exnovio paseándose por platós y webs hablando de sus relaciones y de teorías conspiratorias de todo tipo. Al parecer, sabía *algo* y por ello *alguien* quería matarla. El exnovio llegó a aventurar que se trataba del gremio de escayolistas, lo que, pensó Cecilio, no parecía muy probable. En la prensa local hablaban de un asesino en serie. Como no habían encontrado más asesinatos parecidos, Quique el periodista hablaba de un asesino en serie *en sus comienzos*. Y Cecilio llegaba, por momentos, a desear que asesinaran a otra persona para poder dedicarse a ese asesinato. Y que fuera uno más facilito, claro. 
-
-Estaba en su despacho. En el ordenador había varios mensajes con informes, solicitados en el momento que descubrieron el cadáver. Las cuentas de Tina, de Kevin y de la propia Demelza. 
-
-Qué cantidad de dinero manejan los jóvenes de hoy en día. Caray. Kevin tenía ingresos continuos por todo tipo de concepto. Tina, en metálico, casi todos los días. Demelza, de editoriales. Cualquiera de los tres tenía saldos mayores que la cuenta donde Cecilio depositaba los gananciales. Que los que había habido en esa cuenta en cualquier momento de la historia. Los tres juntos podrían financiar un ejército para conquistar un archipiélago en el Índico. 
-
-¿Y qué diablos significaba eso?
-
-Que el dinero no da la felicidad, pensó Cecilio. Con mucho menos de lo que tenían esta panda de personas, él se encontraba contento.
-
-## Y una webserie
-
-—De animación, por supuesto-, dijo Demelza. 
-
-Kevin, a su lado, masticaba con empeño unos sesos fritos. Como si hiciera falta, pensó Roble, que no los había probado. En esa ocasión. Los había probado cuando llegó destinado a la comisaría, a unos veinte metros de Los Diamantes II, un bar en el que la gente y los vapores de la fritanga rezumaban por sus puertas. Cuando terminó de masticar, ni un momento antes, Kevin dijo:
-
-—Animación *frame* a *frame* estilo Harryhausen habría sido mucho más *cool*. 
-
-—Ya, pero ¿te he dicho que se hace a coste cero? ¿O negativo?
-
-Espera un momento, pensó Roble. ¿Coste negativo? ¿Es decir, que en vez de invertir dinero, lo...? No, espera, comencemos de nuevo. ¿Recibían dinero antes de que tuvieran que gastárselo? 
-
-Visto así, tenía sentido. Y lo había deducido él solo, sin necesidad
-del móvil, que ninguno de los dos podía usar en presencia de Demelza,
-para evitar su geolocalización. Eso, y los sesos, eran lo que parecían
-haber hecho a Kevin especialmente locuaz.
 
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
