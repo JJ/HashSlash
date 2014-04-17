@@ -2616,7 +2616,7 @@ gesto, con el dedo índice, de "No, no, no".
 
 —Sólo hablar - contestó Roble. - ¿Hablamos? - le dijo, indicándole los escalones de los comedores, a la sombra de múltiples anuncios de cursos, fiestas para Erasmus, estos últimos todos activos y retransmitiendo solicitudes de envío de información que provocaban una continua vibración en la pulsera de Roble.
 
-Se sentaron en los escalones, recuperando poco a poco el resuello. Cuando Jože hubo llenado sus alveolos de una cantidad suficiente de oxígono, éstos se sintieron incómodos y le pidieron un poco de nicotina y alquitrán. El cumplió su deseo encendiendo un cigarro y tomando una larga calada. Exhaló el humo y se quedó mirando a Roble.
+Se sentaron en los escalones, recuperando poco a poco el resuello. Cuando Jože hubo llenado sus alveolos de una cantidad suficiente de oxígeno, éstos se sintieron incómodos y le pidieron un poco de nicotina y alquitrán. El cumplió su deseo encendiendo un cigarro y tomando una larga calada. Exhaló el humo y se quedó mirando a Roble.
 
 —Ainhoa -, dijo Roble. 
 
@@ -2636,8 +2636,7 @@ gana, y si es de los que va aireando sus relaciones con otra gente. La
 sorpresa teñida de frustración se reflejó en su cara. Jože se dio
 cuenta, así que se explicó. 
 
-
-—Ainhoa quería algo de allí. - dijo Jože, y Roble alzó la ceja - Sí,
+—Ainhoa quería algo de allí. De ella -, dijo Jože, y Roble alzó la ceja - Sí,
 quería algo, ahora es muerta, ¿qué más da? Muertos no están
 delincuentes, ¿no es?  
 
@@ -2647,33 +2646,33 @@ delincuentes, ¿no es?
 amigos. Ainhoa dice que ella es amiga. 
 
 Ainhoa, pensó Roble, era capaz de atraer a una cantidad de amigos
-considerable. Tenía amigos por encima de sus posibilidades. Y
+considerable, o de atraer a una cantidad de gente que se auto-consideraban amigos. Tenía amigos por encima de sus posibilidades. Y
 novios. Al pensar esto último, sintió la zona de su escroto expandirse
 y contraerse, esto último más lentamente, como el parpadeo de un
-indicador que te avisa de algo.
+indicador que te avisa de un peligro inminente.
 
 —Y... - dijo Roble.
 
-—¿Y? ¿Y nada? Y bebimos y hablamos y...
+—¿Y? ¿Y nada? - dijo Jože, encogiéndose de hombros y gesticulando con la mano que sostenía el cigarro, de donde se esparció ceniza en todas direcciones -  Y bebimos y hablamos y...
 
-—Y... - 
+—Y... - dijo Roble, a la vez que se levantaba. La ceniza estaba empezando a dispersarse en direcciones a tejidos que no se la tomaban tan a la ligera. Y cambiando la postura puede que aparentara más autoridad. 
 
 —¿Y qué? ¿Y está muerta? - dio una larga chupada al cigarro y
 entrecerró los ojos, pensando quién sabe en Ainhoa, a quien podía
 conocer desde hacía dos días o dos años, o en el futuro de su pequeño
 país. 
 
-Roble no acababa de entenderlo. Era todo muy normal. Te cuelas en la
+Roble no acababa de entenderlo. Era todo muy normal, aparentemente la única secuencia lógica de los acontecimientos. Te cuelas en la
 fiesta, te llevas a un amigo, el amigo te deja muerta y se va, tan
 tranquilo. Roble lo miró. No creía que le sacara mucho más. Aunque
 quizás...
 
-—Muerta por tu culpa, - dijo Roble. Era una apuesta arriesgada, pero
+—Muerta por tu culpa -, dijo Roble. Era una apuesta arriesgada, pero
 tenía que intentarlo. Jugar la carta de la culpa con un eslavo no
 podía fallar. - Tú la abandonaste.
 
-Jože lo miró, se levantó y empezó a agitar los brazos, gritándole. Su
-acento a veces hacía el español indistinguible de su idioma nativo.
+Jože lo miró, se levantó también y empezó a agitar los brazos, gritándole. Su
+acento a veces hacía el español que profería indistinguible de su idioma nativo.
 
 —Tú qué sabes coño. Había mucha gente. Yo vigilaba, todo el tiempo,
  nadie entraba, nadie salía de habitación. Ella desapareció y no la
@@ -2682,21 +2681,21 @@ acento a veces hacía el español indistinguible de su idioma nativo.
  pequeño“, miraba mano, “Te cojo con esta mano grande, te cojo“ y
  hacía así, ella loca, loca y luego fue a habitación, a la habitación
  que, a la habitación, y yo decía, vamos, nos verán, y ella loca, “El
- pendrive es graaaaande y ordenador pequeñooooo“, decía, “cómo copio,
+ USB es graaaaande y ordenador pequeñooooo“, decía, “cómo copio,
  copio, cómo copio, no puedo, no entra, como copio“, y se reía, loca, loca y se quedó allí, en la
  cama, miraba sus manos, yo me fui, nos iban a ver, no quiero
  problemas, yo estudio, no quiero problemas, locas dan problemas, eso
- pensé, locas dan problemas. 
+ pensé, locas dan problemas, no hice nada. 
  
  –Problemas... - dijo Roble. Problemas mortales. 
 
-—Era amiga, buena amiga. Pero... No quiero problemas. 
+—Era amiga, buena amiga. Pero... No quiero problemas -, dijo Jože. Y se fue en dirección contraria a su barrio, en la dirección que había más bullicio.
 
 Problemas iba a tener. Ya no era Ignacio el último que la había visto
 con vida. Ahora era él. De las declaraciones en el juzgado no se iba a
-librar. 
+librar. Imputación, como encontraran alguna huella en algún sitio estratégico. 
 
-Roble lo dejó allí. Estaba anocheciendo y varios apps le avisaban de
+Roble no lo siguió. Salió andando y dobló hacia la derecha, Fuentenueva abajo, en dirección inicial hacia la Facultad de Ciencias. Estaba anocheciendo y varios apps le avisaban de
 que no estaba haciendo suficiente de algo o estaba haciendo demasiado
 de otra cosa. Tenía que escribir, No había hecho suficiente
 ejercicio. No había tomado suficiente comida sana. Y había inspirado
