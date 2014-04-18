@@ -3087,29 +3087,29 @@ los conseguía, pero al terminar recordó por qué la había llamado. Y
 también llegó a las capas superiores de su conciencia el hecho de que
 tenía una moto. 
 
-—Tienes moto - le dijo.
+—Tienes moto -, le dijo Roble.
 
-—Sí, pero no te preocupes le he quitado todos los dispositivos de seguimiento. Todos
-los que no son de Kevin, claro - le dijo, riéndose y recogiendo su
+—Sí, pero no te preocupes. Le he quitado todos los dispositivos de seguimiento. Todos
+los que no son de Kevin, claro -, le contestó Demelza, riéndose y recogiendo su
 ropa del suelo, camino de la ducha. 
 
 —¿Qué dispositivos? 
 
-—Bueno, ya sabes. Chismes. - contestó, ya desde la ducha. 
+—Bueno, ya sabes. Chismes -, contestó, ya desde la ducha. 
 
-No es que fuera anormal que los vehículos tuvieran dispositivos que
+No es que fuera extraordinario que los vehículos tuvieran pegados dispositivos que
 permitieran seguirlos. Aparte de las señales Bluetooth o WiFi que emitían y
 que podían detectarse cuando pasaban por algún sitio, algunas empresas
 ponían chips en sus pegatinas para poder saber cuando un cliente
 volvía o pasaba cerca del comercio, para poder enviarle ofertas o
 hacerle encuestas de satisfacción. Algunas compañías de seguros
-obligaban también a llevarlos, para poder saber dónde estaba un
+obligaban también a llevarlos, para poder saber dónde se había situado un
 vehículo en el momento del siniestro. Y, con tanta baliza que revelaba
 tu situación en el mercado, eventualmente casi cualquiera podía
-comprar uno y ponérselo a alguien para entretenerse sabiendo por dónde
-iba. Era tan normal encontrárselos pegados debajo del guardabarros de
-un coche, moto o bicicleta que la gente ya no le daba importancia. Y
-no la tenía, pensó Roble. Salvo cuando efectivamente la tenía. 
+comprar una y ponérsela a alguien para entretenerse sabiendo por dónde
+iba Mengano o Zutano en el momento que su torrente de mensajes sociales se hiciera demasiado anodino. Era tan normal encontrárselos pegados debajo del guardabarros de
+un coche, moto o bicicleta que la gente ya no le daba importancia. Lo despegaba y lo tiraba o lo vendía por Internet.
+ Y no la tenía, pensó Roble. Salvo cuando efectivamente la tenía. 
 
 —¿Cuándo? - preguntó Roble.
 
@@ -3121,14 +3121,15 @@ veces, recuperar el contexto.
 —¿Las quité? Bueno, el día de, ya sabes, lo de Ainhoa, la moto estaba
 en el garaje, así que el día después...
 
-—¿En el garaje? 
+—¿En el garaje? - preguntó Roble.
 
-Era muy fácil poner dos detectores en los garajes para saber si un
+Roble pensó que era muy fácil poner dos detectores en las rampas de entrada a los garajes para saber si un
 vehículo había entrado o salido. Y, de esa forma, saber, en general y
-con cierta precisión, si una persona estaba dentro o fuera. Pero la
+con cierta precisión, si una persona estaba dentro o fuera. Lo difícil es ponerlos con precisión y difíciles de detectar. 
+Podían haber estado a plena vista, de hecho. Porque la
 científica no había mirado ahí. 
 
-—Cuéntame.
+—Cuéntame -, dijo Roble. Demelza no había contestado. No parecía estar pensándose la respuesta, aunque sí pensando algo. Roble se sorprendió por ser capaz de notar estas diferencias. 
 
 —Había uno que...
 
@@ -3141,7 +3142,7 @@ el tiempo, como con el tema del sujetador, que a veces prestaba a
 Tina, aunque le quedaba muy grande, se reían mucho...
 
 —Tina no salía
-mucho, no tanto como ella, estaba muy orientada a su trabajo, ya
+mucho, no tanto como yo, está muy orientada a su trabajo, ya
 sabes, la investigación y eso, vale, vuelvo al tema, al día siguiente
 de lo de Ainhoa, cuando decidí desaparecer o más bien *mudarme*
 virtualmente, que es curioso que mucha gente diga, desaparezco, pero a
@@ -3155,9 +3156,9 @@ Kevin creen que si no la sigue nadie salvo Kevin, que dice que es
 seguro, no es probable, aunque me han dicho que si veo algún dron
 mucho que cambie de ruta, quién sabe...
 
-—Vamos
+—Vamos -, dijo Roble.
 
-—¿Dónde?
+—¿A dónde?
 
 —A la papelera.
 
