@@ -3326,17 +3326,17 @@ en otro desconchón, más o menos del mismo tamaño y más o menos a la
 misma altura. Demelza había sacado ya el móvil y estaba escribiendo
 cosas en él. 
 
-—¿Los has visto? - preguntó Roble, señalando en secuencia a los dos
+—¿Los has visto? - preguntó Roble, señalando en secuencia, con el índice, a los dos
 desconchones. 
 
-—No -, contestó Demelza -, bueno, ahora sí, y ese, y ese, - dijo,
+—No -, contestó Demelza -, bueno, ahora sí. Y ese, y ese, - dijo,
 señalando a diversos desconchones de formas irregulares por toda la rampa y en
 la misma puerta - y todos esos
 roces de ahí, que ahora que lo pienso, si estamos solas en el bloque, ¿quién
 coño...?
 
-Pero Demelza se percató de los desconchones que indicaba Roble. Dos desconchones, cada
-uno de ellos  de forma aproximadamente circular pero convertida en
+Pero Demelza captó qué hacía especiales a los desconchones que indicaba Roble. Cada
+uno de ellos tenía una forma aproximadamente circular convertida en
 estrella por los bordes irregulares, pero con una pequeña cavidad de
 la misma forma excavada en la pared. Roble había visto que el resto de los desperfectos eran
 simplemente descamaciones superficiales de la pintura o roces que
@@ -3345,9 +3345,9 @@ hueco para esconder algo, lo hubiera tapado con pintura y luego lo hubiera retir
 
 —Muy pro -, dijo Roble.
 
-Sin embargo, Demelza no vio más que dos desconchones. Lo que,
+Demelza lo miró, pero su imaginación no le mostró más que dos desconchones similares, a una distancia del suelo específica y de forma peculiar. Lo que,
 posiblemente, podía deberse a la profesionalidad del trabajo.  Roble
-coligió que una vez enterrados ahí quien recibiera la señal 
+coligió que una vez enterrados ahí dos sensores quien recibiera la señal 
 podía deducir cuando un vehículo entraba o salía por el orden por el
 que pasaba por las balizas. Y no había muchos más vehículos en el
 garaje. Ninguno, de hecho.
@@ -3358,7 +3358,7 @@ encontrado la propia Demelza en la moto. El menos profesional podía
 haber sido Ainhoa, pensó Roble. Y el más profesional, el asesino. O
 asesina. O asesinos. Y en cualquiera de las hipótesis, Roble no sabía
 por dónde empezar a buscarlos. Pero al menos sabía que no era Tina, ni Nacho, ni
-ninguno de los que habían aparecido en las apuestas hasta ahora.
+ninguno de los que habían aparecido en las apuestas hasta ahora. Por lo que tendría que estar atento por si aparecía alguien más. 
 
 
 ## Interrogatorios posiblemente superfluos
