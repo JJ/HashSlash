@@ -3366,28 +3366,27 @@ ninguno de los que habían aparecido en las apuestas hasta ahora. Por lo que ten
 
 Eso era lo que pensaba Cecilio según iba a visitar a su primer
 estudiante. Había quedado con él en la cafetería de la Escuela de
-Arquitectura; precisamente lo había elegido porque era la facultad que
+Arquitectura de la universidad; precisamente  había elegido a ese estudiante en particular porque era la facultad que
 estaba más cerca de la comisaría, unos minutos.
 
 El edificio donde se hallaba la escuela lo conocía desde que había ido allí para tratar,
 inútilmente, de librarse del servicio militar. Por donde estaba ahora
 la cafetería, o en los aledaños, miles de jóvenes habían intentado
-hacerse dueños de su tiempo inventando dolencias que a veces pasaban
-incluso por la expertas manos de médicos militares, expertos en
-dolencias inventadas o efímeras, y a veces, no. En el caso de Cecilio
+hacerse dueños de su tiempo futuro inventando dolencias que, a veces lograban
+incluso vencer al experto escrutinio de médicos militares, versado en
+dolencias inventadas o efímeras, y otras veces, no. En el caso de Cecilio
 había sido que no. El truco para aplanar pies y librarse por pies
-planos, simplemente era inútil. La infelicidad de saberse abocado a la
-vida militar durante unos meses, sin embargo, no le duró mucho: trató
+planos, era simplemente inútil. La infelicidad de saberse abocado a la
+vida militar durante unos meses, sin embargo, no le duró mucho: cuando le tocó, trató
 de ser lo más feliz posible dentro del destino que le habían asignado,
 de policía militar en la base de Armilla, y lo logró. Y la experiencia
 policial le marcó, más adelante, el destino.
 
-El aspecto que ofrecía ahora era bien diferente. El olor a formol que
-detectaba era posiblemente fruto de la imaginación. Olía a café, a
-fritanga y a sudor matutino. No sabía qué pinta tenía el chaval, un
-tal Daniel Maldonado, que estudiaba segundo del grado de Arquitectura,
-pero imaginó que no sería difícil encontrarlo. Alguien solo esperando en
-una mesa. 
+El aspecto que ofrecía ahora era bien diferente al blanco grisáceo de entonces, gris militar pero también de suciedad. El olor a formol que
+detectaba era posiblemente fruto de la imaginación. En realidad, olía a café, a
+fritanga quizás filtrada desde los bares de tapas del Realejo y a sudor matutino. Muchos chavales con mochilas, algunos algo más mayores también con mochilas y bandoleras que podían ser profesores o posiblemente de la tuna, pero nadie que reparara en él más que lo necesario para evitar colisiones sin levantar la vista del móvil y a veces ni eso. Alguno de ellos podía ser Daniel Maldonado. No sabía qué pinta tenía el chaval, que estudiaba segundo del grado en Arquitectura,
+pero imaginó que no sería difícil encontrarlo. Alguien solo esperando sentado en
+una mesa, por ejemplo. Y mirando con ansiedad el reloj. 
 
 Había muchas personas solas en mesas, sobre todo hombres; mujeres, ni
 una. Le preguntó al primero que vio, que le contestó con una mirada
@@ -3395,59 +3394,61 @@ larga y un no breve. Probó con otra persona que, aparentemente, estaba
 meditando sobre la vida o los puentes de Calatrava sobre un café, y
 este ni siquiera le contestó.
 
-Le preguntó al camarero que se afanaba pastoreando vasos camino del
+Decidió cambiar de táctica preguntándole al camarero que se afanaba pastoreando vasos camino del
 lavavajillas a ver si lo conocía, por nombre. El camarero lo miró y le
-contestó:
+contestó, mientras se inclinaba a llenar el lavavajillas:
 
 —Hay mil estudiantes en esta escuela. De esos, la mitad más o menos
 son tíos. Conozco al tío que juega al mus todas las tardes por el
-nombre tío que juega al mus todas las tardes, al mijicas que pide
+nombre Tío que juega al mus todas las tardes, al mijicas que pide
 media de leche caliente de soja y media de leche semidesnatada fría al
 que conozco, sí, efectivamente, por ese nombre y al que viene cada vez
-con una tía diferente. Qué cabrón. Daniel podía ser ese o ese o ese -,
+con una tía diferente, al que conozco por Qué-cabrón. Daniel podía ser ese o ese o ese -,
 dijo el camarero, señalando diferentes mesas -, o todos los de ese
 grupo que entra por la puerta.
 
 Grupo que se dirigió directamente a él. Con cierta parsimonia. 
 
-Todos los policías hacen entrenamiento antidisturbios. No sabes en qué
+Todos los policías hacen, en la academia, entrenamiento antidisturbios. No sabes en qué
 unidad te va a tocar, así que hay que prepararse para todo. Sí,
-también caballos. Si un grupo numéricamente superior se dirige a ti,
+también para cabalgar. Si un grupo numéricamente superior se dirige a ti,
 hay que mantener la línea con los compañeros o echar mano de las
-pelotas de goma. Que no tenía en ese momento. Así que le tomó
+pelotas de goma. Que no tenía en ese momento. Y que además estaban prohibidas en según qué casos. Así que le tomó
 querencia a la barra y puso la mano cerca de un servilletero. Por si
 acaso.
 
 Efectivamente, el grupo de seis personas, cuatro chicos y dos chicas,
-lo rodearon. 
+lo rodearon, con los extremos del semicírculo tocando la barra, donde se acodaron, cerrando toda huida posible. Cecilio hizo como que iba a coger una servilleta para agarrar el servilletero.
 
-—¿Eres Cecilio, el made... el policía?
+—¿Eres Cecilio, el made... el policía? - le dijo el que se situó de forma matemáticamente imposible en el centro del semicírculo de seis personas. Su postura, con la cabeza ligeramente inclinada, tratando de mirar a Cecilio desde arriba sin conseguirlo y su voz atiplada formaban una combinación si no cómica, al menos poco natural. 
 
 —Sí. Buenas tardes -, se echó la mano al bolsillo de la chaqueta y se
-sacó la placa -, digo, buenos días. Le mostró la placa al que le
-hablaba y la pasó a la altura de los ojos, y un par de palmos por
-encima de unos de ellos, del semicírculo que le rodeaba. El sacar la
+sacó la placa -, digo, buenos días. 
+
+Le mostró la placa al que le
+hablaba y la pasó a la altura de algunos ojos, y un par de palmos por
+encima de otros de ellos, del semicírculo que le rodeaba. El sacar la
 placa hizo que alejara la mano del servilletero. Todavía no estaba muy
-seguro de que no se arrepentiría un poco más adelante.
+seguro de que no se arrepentiría un poco más adelante. La efectividad de la placa como proyectil estaba todavía por probar, pero si a los inspectores les dotaban con pistolas aparte de con placas, por algo sería. 
 
 —Soy Eulogio Navarro, asesor legal personal y community manager de
-Daniel Maldonado. Aquí presente - y señaló a un chaval con el pelo
+Daniel Maldonado. Aquí presente -dijo, señalando a un chaval con el pelo
 rubio, rizado, en uno de los extremos del semicírculo. Eso aclaraba la
 filiación de al menos dos de ellos. El resto seguían siendo Juan y
 Juana Nadie. Eso sí, muy en su papel de tales. 
 
-Le alargó a Cecilio una tarjeta con unas preciosas letras de
-diferentes tamaños que él leyó alzándose las gafas: Eulogio Navarro
+Le alargó a Cecilio una tarjeta con unas imponentes inscripciones hechas don letras de
+diferentes tamaños y tipografías que él leyó alzándose las gafas: Eulogio Navarro
 Bofill, COMMUNITY MANAGER, COACH, ASESOR PERSONAL EN TEMAS LEGALES,
 MINDFULNESS, DISEÑO WEB, ECOMMERCE, todo ello en diferentes colores y
-colocado en horizontal, vertical y de formas múltiples. ASESOR
-PERSONAL EN TEMAS LEGALES era lo que tenía un tipo de letra más
-pequeñito y gris. 
+colocado en horizontal, vertical y en dirección de otros cuantos puntos cardinales. ASESOR
+PERSONAL EN TEMAS LEGALES era el fragmento que tenía un tipo de letra más
+pequeñito y un color más desvaído. 
 
-—Sólo... sólo quería hacerle unas preguntas. Sobre una fiesta a la que
+—Sólo... sólo quería hacerle, a él - dijo, señalando a Daniel, que se estremeció ligeramente y se movió perceptiblemente hacia atrás, amenazando con romper el círculo - unas preguntas. Sobre una fiesta a la que
 asistió -, dijo Cecilio.
 
-—Un momento. Todavía no estoy grabando esta entrevista. Porque
+—Un momento -, dijo Eulogio, extendiendo la mano abierta mostrándole la palma a Cecilio. Sus dedos se plegaban en ángulos imposibles, pensó Cecilio. - Todavía no estoy grabando esta entrevista. Porque
 entiendo que mi defendido no está imputado y que se da por
 sobreentendido que declara voluntariamente, pero para proteger sus
 derechos creo que es conveniente grabar esta conversación. O
@@ -3455,19 +3456,20 @@ entrevista.
 
 —Bueno, sólo eran unas preguntas... - dijo Cecilio.
 
-—¿Estamos de acuerdo, sólo digo, estamos de acuerdo  que es una entrevista? - preguntó Eulogio.
+—¿Estamos de acuerdo, sólo digo, estamos de acuerdo en que es una entrevista? - preguntó Eulogio.
 
 —Sí -, contestó Cecilio, cuyo cerebro madero primitivo, que es
 una parte del cerebro, quizás cercana al cerebelo, que impulsa a todo
-policía a resolver una situación como lo haría Clint Eastwood, le
+policía a resolver cualquier situación como lo haría Clint Eastwood, le
 estaba mandando mensajes del estilo de “suéltale un par de hostias y
 lo dejas listo“. Por lo pronto y mientras tuviera el servilletero
-cerca, esa parte de su cerebro madero primitivo  estaba  bajo
+cerca, esa parte de su cerebro madero primitivo  estaba bajo
 control. 
 
-Eulogio los dirigió hacia una mesa. El resto del comité, o comitiva, o
+Eulogio los dirigió hacia una mesa. Cecilio miró al servilletero alejarse. 
+El resto del comité, o comitiva, o
 simplemente turiferarios, se afanaron en mover otra mesa hasta
-situarla junta. Eulogio se colocó en uno de los extremos, con Daniel y
+situarla junto a la primera. Eulogio se colocó en uno de los extremos, con Daniel y
 Cecilio situados a cada uno de sus lados. Por supuesto, los asientos
 los asignó Eulogio. 
 
@@ -3477,7 +3479,7 @@ los asignó Eulogio.
 mano al bolsillo.
 
 A Cecilio le vibró el móvil en ese momento y se echó la mano al
-bolsillo para mirarlo. Los tres adláteres se levantaron y apartaron de
+bolsillo para extraerlo de ahí y mirarlo. Los tres adláteres se levantaron y apartaron bruscamente de
 la mesa y tanto Daniel como Eulogio alzaron los brazos; Eulogio llevaba
 en uno de ellos el móvil. 
 
@@ -3486,7 +3488,7 @@ Cecilio. Movió la cabeza en un gesto equivalente a un “Afú“ y miró el
 mensaje. Marisol le decía que se pusiera en contacto con ella. No
 había ninguna palabra clave que indicara urgencia ni premura ni nada
 por el estilo, así que puso el codo sobre la mesa y la barbilla sobre
-la mano en un gesto de escuchar con paciencia lo que se le viniera
+la mano en un gesto de soportar con paciencia lo que se le viniera
 encima. 
 
 —Un momento. Antes de decir nada, voy a grabar esta conversación en
@@ -3497,15 +3499,15 @@ Cecilio abrió la boca para advertirle que podía ser delito publicar
 imágenes de agentes de policía, pero prefirió callarse. O lo sabía, o
 no lo sabía. Si no lo sabía y lo hacía, podría meterle un paquete con
 todas las de la ley. Que no era otra cosa lo que su cerebro madero le
-decía que hiciera en ese momento. Eso, y una hostia. Dos, una del
+decía que hiciera en ese momento. Y el otro empezaba a estar de acuerdo. Eso, y una hostia. Dos, una del
 derecho y otra del revés.
 
-—¿Podemos empezar? - preguntó Cecilio.
+—¿Podemos empezar? -, preguntó Cecilio.
 
-—Proceda -, contestó Eulogio. Por el momento no se había dado cuenta
+—Proceda -, contestó Eulogio. Por el momento no se había registrado
 del tono de voz de Daniel, que había sacado de algún sitio una
 botellita de agua y tomaba sorbitos, con los labios fruncidos. Llevaba
-una camisa roja con las solapas fuera del un jersey de cuello de pico,
+una camisa roja con las solapas fuera del jersey de cuello de pico,
 de color rosa y de alguna de esas marcas pijas que a veces le pedían
 sus hijos, con nombres de tío guiri. Paul Hilfiger o algo de
 eso. Efectivamente, ahí tenía un logo. Parecía bueno, no tenía
@@ -3526,13 +3528,13 @@ Era Marisol, y ahora sí llevaba la palabra clave.
 
 Se levantó y se fue sin despedirse. Ya le pediría a la jueza que
 citara al tal Daniel en el
-juzgado. 
+juzgado. Se imaginaba a la media docena mirándolo con cara de asombro. Mejor pensado, no podía imaginarse lo que podía pasar por la cabeza ni estar haciendo ninguno de ellos en ese momento. En realidad, estaban los seis escribiendo mensajes de Whatsapp en el móvil. 
 
 ## Otro punto de vista
 
 Roble se despertó cuando ya el sol pegaba con fuerza en las cortinas
-cerradas, dejando su habitación en una claridad en la que se podían
-dilucidar claramente a la aspiradora Roomba buscando ansiosamente un
+cerradas, dejando su habitación en una claridad en la que se podía
+vislumbrar a la aspiradora Roomba buscando ansiosamente un
 enchufe y esquivando la ropa que ni siquiera había tenido tiempo de
 dejar plegada en el galán de noche. Mal.
 
