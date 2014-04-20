@@ -2207,20 +2207,22 @@ culpable de algo, de haberse meado en el portal del vecino, pongamos
 por caso, y ese
 sentimiento de culpa le hará sentirse nervioso y parecer culpable a
 los ojos de quien interroga. Que perderá, por tanto, el tiempo miserablemente. Y
-si lo es, hay que ser muy estúpido para confesarlo. Que no es que los
+si el chorizo es culpable, hay que ser muy estúpido para confesarlo. Que no es que los
 chorizos no sean estúpidos. En muchas ocasiones son chorizos precisamente
 por eso. Pero también son estúpidos veteranos, curtidos ante preguntas inoportunas de
 profesores, padres y figuras de autoridad diversas como para que,
 cuando llegue un notas con placa y le pregunte “¿Dónde estuviste el día de autos?“ no te
 contesten “Pues matando al muerto“, sino “No, jefe, no me gusta la
-fórmula uno“. Divertido, un gran chiste. Pero también una pérdida de tiempo.
+fórmula uno“. Divertido, un gran chiste. Pero también una pérdida de
+tiempo. 
 
 Además, el Ignacio este no parecía culpable. Parecía un pringao. Cecilio se
 puso las gafas de cerca para echarle un vistazo al
-expediente policial, que alguien había rescatado de los archivos. Un camello de poca monta. Pero, las huellas. Y... ¿qué
+expediente policial, que alguien había rescatado de los archivos. Un camello de poca monta. Pero, las huellas. Y ¿qué
 diablos es el MXE?
 
-Como era cierto que Cecilio no tenía ni idea, se quedó en su
+Por todo lo anterior  y porque, llevándole la razón al compañero Yimi,
+Cecilio no tenía ni idea, se quedó en su
 despacho, con el calabozo donde Roble
 interrogaba al tal Ignacio en la pantalla del ordenador, mientras leía en diagonal los informes del forense y la científica. No
 entendía nada. Pero daba igual. Bajaría a los calabozos en un rato,
@@ -2228,9 +2230,10 @@ le abrirían la celda con mucha ceremonia, dejaría una
 carpeta encima de la mesa a los lados de la cual estaban Roble y el
 tal Ignacio, miraría a uno y a otro negando con la cabeza, como
 diciendo "En menudo embolao te has metío, macho". Y el acusado haría lo
-que tenía que hacer, que con toda seguridad sería nada e imaginar 
-e inmediatamente contar excusas. Pero, quién sabe. A lo mejor en esta ocasión les había
-tocado el tonto, que, como en los chistes de Gila, y tras muchas indirectas, acaba confesando. 
+que tenía que hacer, que con toda seguridad sería nada y porteriormente imaginar 
+e inmediatamente contar excusas y coartadas múltiples. Pero, quién sabe. A lo mejor en esta ocasión les había
+tocado el tonto, que, como en los chistes de Gila, y tras muchas
+indirectas y la actuación teatrera anterior, acababa confesando. 
 
 Entre página relativamente incomprensible y otra totalmente
 incomprensible, miraba y escuchaba a Roble preguntándole al acusado. El chaval valía para
