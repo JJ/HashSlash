@@ -2230,7 +2230,7 @@ le abrirían la celda con mucha ceremonia, dejaría una
 carpeta encima de la mesa a los lados de la cual estaban Roble y el
 tal Ignacio, miraría a uno y a otro negando con la cabeza, como
 diciendo "En menudo embolao te has metío, macho". Y el acusado haría lo
-que tenía que hacer, que con toda seguridad sería nada y porteriormente imaginar 
+que tenía que hacer, que con toda seguridad sería nada y a continuación imaginar 
 e inmediatamente contar excusas y coartadas múltiples. Pero, quién sabe. A lo mejor en esta ocasión les había
 tocado el tonto, que, como en los chistes de Gila, y tras muchas
 indirectas y la actuación teatrera anterior, acababa confesando. 
