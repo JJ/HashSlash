@@ -42,5 +42,5 @@ Con tantas apps uno acaba cambiándolas de nombre, así que voy a listarlas aqu�
 Nombre | Qué hace | Más detalles
 --- |--- |--
 YouWriteNow! | Rutinas de escritor: fuerza a escribir, a revisar y a hacer una serie de cosas al día | La usa Roble (como casi todas)
-NoFlab | "Mantenimiento de peso o incremento de la vergüenza" | Gamifica el manetnimiento del peso 
+NoFlab | "Mantenimiento de peso o incremento de la vergüenza" | Gamifica el mantenimiento del peso 
 WhatsApp | Mensajería | Ya hay uno excelente, para qué inventarse otro.

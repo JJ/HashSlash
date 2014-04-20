@@ -3901,7 +3901,7 @@ Quizás un poco más de detalle sobre cómo se cargó la cerradura lo haría má
 
 Y eso sería el final. No lo sería en un país como este, pensó Roble. Al propietario, y ahora asesino, le esperaba una larga serie de juicios y posiblemente una condena. Pero le iba a poner al protagonista Johnny, o sea que iba a ser americano, y ya se sabe que en América, una vez que te encuentras a alguien en tu propiedad, se abre la veda. 
 
-Unos minutos más tarde, ya estaba publicado. "Mi vecino coleccionaba motosierras", un ejemplo más del género de relatos de asesinados en primera persona. Difusión en redes sociales, y unos minutos más adelante ya sumaba las primeras ventas.
+Unos minutos más tarde, tras pasarlo por el filtro de YouWriteNow que mejoraba el texto y que eliminó palabras como "faltantes", ya estaba publicado. "Mi vecino coleccionaba motosierras", un ejemplo más del género de relatos de asesinados en primera persona. Difusión en redes sociales, y unos minutos más adelante ya sumaba las primeras ventas.
 
 YouWriteNow, por lo pronto, estaría satisfecho. Roble, por el momento, también. Su cuenta corriente, momentáneamente, recibiría una pequeña infusión de liquidez. 
 
