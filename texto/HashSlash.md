@@ -3877,7 +3877,35 @@ Sin embargo, había pocos placeres que se parecieran tanto a una obligación. Na
 
 Que, en este caso, no parecía estar mucho más cerca, porque había colocado a víctima y asesino en una situación cuyo desenlace era difícil que no hubiera sido cubierto hasta la saciedad en películas hechas-para-televisión. Curiosón llama a vecino anónimamente (como si se pudiera hacer eso hoy en día, ja, pero se usaba con frecuencia en la literatura), vecino descubría que era él y lo mataba. Curioso llamaba a amigo periodista y se metían los dos en la casa para "descubrir pruebas", opción Millenium, el propietario de la colección de sierras mecánicas vuelve, o sorpresa, y sierra mecánica en mano los masacra. La opción "Matanza de Texas" combinaría cualquiera de ellas con penetración a través de muros que casualmente serían de madera en esos lares, y una versión (Mechanical) Saw ataría a los dos, amigo y periodista, a una argolla y situaría una sierra mecánica al alcance de la mano. 
 
+Ninguna de ellas parecía satisfactoria. Pero necesitaba saber qué iba a ocurrir y , así que se puso a escribir.
 
+>Sorprendentemente, la puerta trasera de la casa del asesino estaba abierta. Menos obstáculos a la hora de volver de algún asesinato o algo, pensé. La puerta daba a un lavadero en el que había productos de limpieza que habrían sido usados, en alguna ocasión, para limpiar restos humanos, con toda seguridad. Si ello no era prueba del oficio del asesino que aquí habitaba, no sé yo qué podría serlo. Sangre, lo que se dice sangre, no había, por eso continué hacia el interior, tratando de buscar la habitación hacia la derecha, donde yo había visto desde mi casa la colección de armas del crimen, las horribles sierras mecánicas.
+>Pasé por una cocina inmaculada salvo en las partes en las que no lo estaba, pero no me paré en ella, buscando mi objetivo. Mi vecino el asesino acababa de salir,así que tardaría en volver. O al menos eso esperaba. Salí a un pasillo al que daban varias puertas más, pero escogí la que calculé que estaba a la altura de la habitación del terror.
+>La puerta estaba cerrada. 
+
+La puerta que daba al garaje donde estaba, o quizás en ese momento no, Nacho, también lo estaba. Y no se oía nada diferente a los ruidos habituales a esas horas. Alguna moto con motor de explosión, los zumbidos melódicos pero falsos de algún motor eléctrico, y el perro que siempre ladra en la distancia, a un cartero o a una cigarra. 
+
+>Me daba un poco de apuro romper la puerta. Sobre todo porque el ruido despertaría a los vecinos. Pero el vecino más cercano era yo y ya estaba despierto, así que busqué con qué cargarme la puerta. Había un cuchillo de grandes dimensiones del Ikea, modelo Gynnsam en la cocina. Esos cuchillos están hechos con metal de cañones de la antigua unión soviética y no hay cerradura que se les resista. Y no lo hizo.
+
+Quizás un poco más de detalle sobre cómo se cargó la cerradura lo haría más plausible.
+
+>Y no lo hizo porque inserté la hoja entre la puerta y el marco y, poco a poco, fui abriendo un hueco que me permitió acceder al cierre de la misma, que levanté sin ningún problema. Armas del crimen encerradas en una habitación, doble prueba de la naturaleza de quien allí habitaba. Que ahora estaba más cerca de volver, así que me apresuré. Vi enfrente la ventana de mi casa, que había dejado con las ventanas corridas, porque a nadie le interesaba lo que yo hacía o dejaba de hacer allí. O si estaba o no estaba. 
+
+>Efectivamente, a mi izquierda estaban las sierras mecánicas. Algunas enormes, sólo aptas para ser levantadas por fornidos leñadores de camisa a cuadros, pero otras pequeñas, delicadas, un mecanismo de precisión con toda la belleza y la eficiencia que la ingeniería mecánica checoeslovaca era capaz de ofrecerte. Tomé una de ellas entre mis manos y vi que estaba sujeta por un cable metálico a la panoplia donde se presentaban. Ello me extrañó. Examiné también las manchas de sangre que yo había visto desde enfrente, y no eran tales. Eran parte de la panoplia de presentación de las armas, que tenía manchas de todos los colores aparentando quién sabe si camuflaje o una combinación abstracta de fin desconocido.
+
+>Pero todavía podía haber restos en algún recoveco de las armas del crimen. No se había encontrado ningún cadáver todavía en la ciudad, pero seguramente habría algún cadáver muerto en algún sitio con partes faltantes y esas partes tenían que estar aquí, en esta sierra mecánica que sostengo entre mis manos, y que huele a crimen, siempre que el crimen huela a aparato mecánico recién engrasado, que tiene que oler, porque aquí vive un asesino y estas son las armas del crimen. 
+
+>Pero oigo una voz en el pasillo que grita algo así como "Mi puerta" y entra como una exhalación por la puerta un energúmeno, el asesino, que sigue gritando "Mis sierras de colección", y luego, sin solución de continuidad, grita "Ladrón", toma el cuchillo Gynnsam que había dejado encima de una mesita, enfrente de la colección de sierras, que no armas del crimen, y me lo clava en el tercer espacio intercostal, mientras grita "Suelta mis sierras, ladrón".
+
+>Me desangro lentamente, pero antes de morir acierto a escuchar al asesino, que llama desde el móvil "Sí, un ladrón en mi casa, en busca de mi colección de sierras mecánicas primera edición valorada en varios millones. Tenía una de ellas en la mano y temía que me atacara, así que le he atacado yo con un cuchillo. No, no está muerto todavía, manden una ambulancia, pero no creo que llegue a tiempo"
+
+Y eso sería el final. No lo sería en un país como este, pensó Roble. Al propietario, y ahora asesino, le esperaba una larga serie de juicios y posiblemente una condena. Pero le iba a poner al protagonista Johnny, o sea que iba a ser americano, y ya se sabe que en América, una vez que te encuentras a alguien en tu propiedad, se abre la veda. 
+
+Unos minutos más tarde, ya estaba publicado. "Mi vecino coleccionaba motosierras", un ejemplo más del género de relatos de asesinados en primera persona. Difusión en redes sociales, y unos minutos más adelante ya sumaba las primeras ventas.
+
+YouWriteNow, por lo pronto, estaría satisfecho. Roble, por el momento, también. Su cuenta corriente, momentáneamente, recibiría una pequeña infusión de liquidez. 
+
+Todavía había un asesino suelto. Y Nacho en el garaje. Pero en ese momento Roble no pensaba en ellos. 
 
 *seguir*
 

@@ -33,3 +33,14 @@ Tina | 1992 | - | Cocina e investiga | Compañera de piso de Demelza
 Ignacio Salido | 1989 | -  | Trapichea | Okupa en el piso de enfrente de Demelza y Tina
 Kevin | 1994 |  - |  Estudia por su cuenta en MOOCs | Novio de Demelza
 Julia Matesanz Vázquez | 1988 | Estudió Educación Física, literata ambulatoria |  
+
+Apps
+----
+
+Con tantas apps uno acaba cambiándolas de nombre, así que voy a listarlas aquí como si fueran personajes
+
+Nombre | Qué hace | Más detalles
+--- |--- |--
+YouWriteNow! | Rutinas de escritor: fuerza a escribir, a revisar y a hacer una serie de cosas al día | La usa Roble (como casi todas)
+NoFlab | "Mantenimiento de peso o incremento de la vergüenza" | Gamifica el manetnimiento del peso 
+WhatsApp | Mensajería | Ya hay uno excelente, para qué inventarse otro.
