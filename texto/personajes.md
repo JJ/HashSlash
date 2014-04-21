@@ -34,6 +34,7 @@ Ignacio Salido | 1989 | -  | Trapichea | Okupa en el piso de enfrente de Demelza
 Kevin | 1994 |  - |  Estudia por su cuenta en MOOCs | Novio de Demelza
 Julia Matesanz Vázquez | 1988 | Estudió Educación Física, literata ambulatoria |  
 
+
 El escritor y su tropa fantasma
 ---
 
@@ -41,3 +42,15 @@ Nombre | Nacido - cuando | dónde |  A qué se dedica | Otros
 --- |--- |--- |--- | ---
 Escritor | 1984 | Barbate | Escribe y mata | Sólo aparece explícitamente en esta rama
 Miriam | 1996 | Larache | Esposa o sirvienta del Escritor | Poco sabemos de ella
+
+Apps
+----
+
+Con tantas apps uno acaba cambiándolas de nombre, así que voy a listarlas aquí como si fueran personajes
+
+Nombre | Qué hace | Más detalles
+--- |--- |--
+YouWriteNow! | Rutinas de escritor: fuerza a escribir, a revisar y a hacer una serie de cosas al día | La usa Roble (como casi todas)
+NoFlab | "Mantenimiento de peso o incremento de la vergüenza" | Gamifica el mantenimiento del peso 
+WhatsApp | Mensajería | Ya hay uno excelente, para qué inventarse otro.
+

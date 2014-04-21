@@ -2643,20 +2643,22 @@ culpable de algo, de haberse meado en el portal del vecino, pongamos
 por caso, y ese
 sentimiento de culpa le hará sentirse nervioso y parecer culpable a
 los ojos de quien interroga. Que perderá, por tanto, el tiempo miserablemente. Y
-si lo es, hay que ser muy estúpido para confesarlo. Que no es que los
+si el chorizo es culpable, hay que ser muy estúpido para confesarlo. Que no es que los
 chorizos no sean estúpidos. En muchas ocasiones son chorizos precisamente
 por eso. Pero también son estúpidos veteranos, curtidos ante preguntas inoportunas de
 profesores, padres y figuras de autoridad diversas como para que,
 cuando llegue un notas con placa y le pregunte “¿Dónde estuviste el día de autos?“ no te
 contesten “Pues matando al muerto“, sino “No, jefe, no me gusta la
-fórmula uno“. Divertido, un gran chiste. Pero también una pérdida de tiempo.
+fórmula uno“. Divertido, un gran chiste. Pero también una pérdida de
+tiempo. 
 
 Además, el Ignacio este no parecía culpable. Parecía un pringao. Cecilio se
 puso las gafas de cerca para echarle un vistazo al
-expediente policial, que alguien había rescatado de los archivos. Un camello de poca monta. Pero, las huellas. Y... ¿qué
+expediente policial, que alguien había rescatado de los archivos. Un camello de poca monta. Pero, las huellas. Y ¿qué
 diablos es el MXE?
 
-Como era cierto que Cecilio no tenía ni idea, se quedó en su
+Por todo lo anterior  y porque, llevándole la razón al compañero Yimi,
+Cecilio no tenía ni idea, se quedó en su
 despacho, con el calabozo donde Roble
 interrogaba al tal Ignacio en la pantalla del ordenador, mientras leía en diagonal los informes del forense y la científica. No
 entendía nada. Pero daba igual. Bajaría a los calabozos en un rato,
@@ -2664,9 +2666,10 @@ le abrirían la celda con mucha ceremonia, dejaría una
 carpeta encima de la mesa a los lados de la cual estaban Roble y el
 tal Ignacio, miraría a uno y a otro negando con la cabeza, como
 diciendo "En menudo embolao te has metío, macho". Y el acusado haría lo
-que tenía que hacer, que con toda seguridad sería nada e imaginar 
-e inmediatamente contar excusas. Pero, quién sabe. A lo mejor en esta ocasión les había
-tocado el tonto, que, como en los chistes de Gila, y tras muchas indirectas, acaba confesando. 
+que tenía que hacer, que con toda seguridad sería nada y a continuación imaginar 
+e inmediatamente contar excusas y coartadas múltiples. Pero, quién sabe. A lo mejor en esta ocasión les había
+tocado el tonto, que, como en los chistes de Gila, y tras muchas
+indirectas y la actuación teatrera anterior, acababa confesando. 
 
 Entre página relativamente incomprensible y otra totalmente
 incomprensible, miraba y escuchaba a Roble preguntándole al acusado. El chaval valía para
@@ -2973,7 +2976,7 @@ poco comprometida, para no equivocarse.
 
 —Casada. Con un gato. Por lo civil y en terceras nupcias-, dijo, y
 volvió a carcajearse. - Enviudé dos veces, pero este está 
-sanísimo, y yo, contenta de no tener que aguantar a nadie más. Ni de
+sanísimo, y yo, contenta de no tener que aguantar a nadie de mi misma especie. Ni de
 que me tengan que aguantar a mi. Bastante tengo con aguantaros a
 vosotros... 
 
@@ -2986,15 +2989,15 @@ Marisol.
 —Je, je, cuando quieras, sí, cuando quieras. Pero te llamo por otra,
 bueno, por otra cosa, a ver si sabes decirme. ¿Qué es lo que es el eme equis e?
 
-—Mandanga de la buena. Con eme; eme es como lo llaman, ¿lo pillas? -,
+—Mandanga de la buena. Con eme. Eme es como lo llaman, ¿lo pillas? -,
 dijo Rosalía. - De
-las que llaman *emergentes*, porque están empezando ahora mismo a
+las que llaman *emergentes*, porque están empezando ahora mismo, o hace dos días, a
 introducirse en el mercado. Dime más. ¿Aquí en Granada? 
 
-—Sí, una chica muerta aquí, ayer -, contestó Cecilio-, nos ha llegado el informe hoy mismo, 
+—Sí, una chica muerta aquí, ayer -, contestó Cecilio-, nos ha llegado el informe de tóxicos hoy mismo, 
 
-—Chungo. No sabíamos que la estuvieran pasando por aquí. Mándame lo
-que tengas, cuando puedas. Con los puntos y las comas puestos.  
+—Chungo. No sabíamos en la unidad que la estuvieran pasando por aquí. Mándame lo
+que tengas, cuando puedas. O sea ya. Con los puntos y las comas puestos.  
 
 —Je, je, claro. Pero, ¿qué hace la eme esa? ¿Mata? -, preguntó Cecilio.
 
@@ -3016,11 +3019,13 @@ pido a los de la UDYCO información y te la paso, ¿de acuerdo? Mientras
 tanto, busca por la Internet, coño, que no te va a pasar nada por
 tocar esos chismes... 
 
+En realidad, sí le pasaba. Si no le hubiera pasado, lo habría hecho en vez de pasar la vergüenza de llamar a Marisol. 
+
 —Venga, quedamos en eso -, repuso Cecilio. 
 
 —Y en el café -, contestó Marisol.
 
-—Y en el café. Venga, un saludo, Marisol.
+—Y en el café. Venga, un, un, bueno, un saludo, Marisol.
 
 —Y un beso, Cécil. Mándame eso ya.
 
@@ -3033,8 +3038,9 @@ Tardó unos minutos. El turno todavía no había terminado, así que hizo
 unas cuantas llamadas más a la lista de Tina, dejando mensajes en
 contestador y concertando citas para el día siguiente.  
 
-Y entonces sí terminó el turno. Una tarde bien aprovechada. Mientras
-tanto, ¿qué diablos habría estado haciendo Roble? 
+Y entonces sí terminó el turno. Una tarde bien aprovechada. Movió el ratón del ordenador, haciéndolo encenderse y mostrando una pantalla en la que decía 672 mensajes sin leer. 
+
+Cayó en la cuenta de que no había visto a Roble en toda la tarde. ¿Qué diablos habría estado haciendo? 
 
 ## Escribir es reescribir
 {: .writer}
@@ -3083,7 +3089,7 @@ Buscando profesionales que sonrían sólo cuando deban hacerlo.
 
 ## Lo que Roble había estado haciendo
 
-Roble había tenido, cuando salió,  la intención de volver a la comisaría. Tras
+Roble había tenido, cuando salió de ella, la intención de volver a la comisaría. Tras
 conseguir encontrar a Jože el Erasmus esloveno. Pero tampoco había
 tenido la intención de pegarse una carrera hasta atraparlo, que fue lo
 que tuvo que hacer. 
@@ -3127,33 +3133,32 @@ Jože le miró.
 
 —Roble Sáenz. Policía. 
 
-Ya había incumplido el protocolo, que decía que tenía que saludarlo
-antes de preguntar e identificarse, pero no creía que esa fuera razón
+Ya había incumplido el protocolo de actuación policial con testigos, que indicaba que tenía que saludar  e identificarse
+antes de hacer cualquier pregunta, pero no creía que esa fuera razón
 suficiente como para que Jože saliera corriendo hacia su izquierda.  
 
 Joder, pensó Roble. Vamos a correr ahora. Conectó el app NoFlab para
-que tuviera en cuenta el esfuerzo realizado.  
+que contabilizara el esfuerzo realizado. Perdió unos segundos, pero no echaría a perder el gasto de calorías. 
 
-Lo alcanzó a la altura de los comedores universitarios, cuando trató
-de esquivar a la gente que estaba delante de ellos, esperando a los
-autobuses del área metropolitana, tras unos minutos. Lo agarró del
+Lo alcanzó a la altura de los comedores universitarios, de los que, a esas horas, todavía salían algunos estudiantes. El goteo de gente que se desviaba por la acera cuando alcanzaban a las colas deslavazadas formadas en los alrededores de parada de autobús, esperando a los
+ del área metropolitana, le hizo frenarse para evitar tropezarse con ellos. Lo agarró del
 cuello del abrigo y el perseguido estuvo a punto de caerse, pero
 recuperó y amagó un puñetazo hacia Roble. Roble lo esquivó e hizo el
 gesto, con el dedo índice, de "No, no, no". 
 
-—¿Qué quieres? ¿Qué quierres? - preguntó Jože.
+—¿Qué quieres? ¿Qué es que quierres? - preguntó Jože.
 
-—Sólo hablar. ¿Hablamos?
+—Sólo hablar - contestó Roble. - ¿Hablamos? - le dijo, indicándole los escalones de los comedores, a la sombra de múltiples anuncios de cursos, fiestas para Erasmus, estos últimos todos activos y retransmitiendo solicitudes de envío de información que provocaban una continua vibración en la pulsera de Roble.
 
-Se sentaron a descansar en los escalones de los comedores universitarios. Jože encendió un cigarro. Exhaló el humo y se quedó mirando a Roble.
+Se sentaron en los escalones, recuperando poco a poco el resuello. Cuando Jože hubo llenado sus alveolos de una cantidad suficiente de oxígeno, éstos se sintieron incómodos y le pidieron un poco de nicotina y alquitrán. El cumplió su deseo encendiendo un cigarro y tomando una larga calada. Exhaló el humo y se quedó mirando a Roble.
 
-—Ainhoa -, dijo Roble.
+—Ainhoa -, dijo Roble. 
 
-—Mi amiga. La han matado -, contestó.
+—Mi amiga. Mi. Amiga. La han matado -, contestó, sin dejar de fumar y mirar en dirección a los autobuses que llegan con gente y partían también con gente.
 
-—¿Tu amiga? ¿Quién?
+—¿Matado? ¿Quién? - preguntó Roble.
 
-—Tío, no sé, de verdad, no sé. Yo estuve en la fiesta, desapareció, me fui. Al día siguiente, muerta como la otra. Muchas muertas, yo no quiero saber nada, me voy a mi casa -, contestó Jože.
+—Tío, no sé, de verdad, no sé. Yo estuve en la fiesta, desapareció, yo me fui. Al día siguiente, muerta como la otra. Muchas muertas, yo no quiero saber nada, me voy a mi casa -, contestó Jože.
 
 —¿Por qué fuiste? No conocías a nadie - le preguntó Roble, recordando el mapa de conexiones entre los asistentes a la fiesta que había encontrado. 
 
@@ -3165,8 +3170,7 @@ gana, y si es de los que va aireando sus relaciones con otra gente. La
 sorpresa teñida de frustración se reflejó en su cara. Jože se dio
 cuenta, así que se explicó. 
 
-
-—Ainhoa quería algo de allí. - dijo Jože, y Roble alzó la ceja - Sí,
+—Ainhoa quería algo de allí. De ella -, dijo Jože, y Roble alzó la ceja - Sí,
 quería algo, ahora es muerta, ¿qué más da? Muertos no están
 delincuentes, ¿no es?  
 
@@ -3176,33 +3180,33 @@ delincuentes, ¿no es?
 amigos. Ainhoa dice que ella es amiga. 
 
 Ainhoa, pensó Roble, era capaz de atraer a una cantidad de amigos
-considerable. Tenía amigos por encima de sus posibilidades. Y
+considerable, o de atraer a una cantidad de gente que se auto-consideraban amigos. Tenía amigos por encima de sus posibilidades. Y
 novios. Al pensar esto último, sintió la zona de su escroto expandirse
 y contraerse, esto último más lentamente, como el parpadeo de un
-indicador que te avisa de algo.
+indicador que te avisa de un peligro inminente.
 
 —Y... - dijo Roble.
 
-—¿Y? ¿Y nada? Y bebimos y hablamos y...
+—¿Y? ¿Y nada? - dijo Jože, encogiéndose de hombros y gesticulando con la mano que sostenía el cigarro, de donde se esparció ceniza en todas direcciones -  Y bebimos y hablamos y...
 
-—Y... - 
+—Y... - dijo Roble, a la vez que se levantaba. La ceniza estaba empezando a dispersarse en direcciones a tejidos que no se la tomaban tan a la ligera. Y cambiando la postura puede que aparentara más autoridad. 
 
 —¿Y qué? ¿Y está muerta? - dio una larga chupada al cigarro y
 entrecerró los ojos, pensando quién sabe en Ainhoa, a quien podía
 conocer desde hacía dos días o dos años, o en el futuro de su pequeño
 país. 
 
-Roble no acababa de entenderlo. Era todo muy normal. Te cuelas en la
+Roble no acababa de entenderlo. Era todo muy normal, aparentemente la única secuencia lógica de los acontecimientos. Te cuelas en la
 fiesta, te llevas a un amigo, el amigo te deja muerta y se va, tan
 tranquilo. Roble lo miró. No creía que le sacara mucho más. Aunque
 quizás...
 
-—Muerta por tu culpa, - dijo Roble. Era una apuesta arriesgada, pero
+—Muerta por tu culpa -, dijo Roble. Era una apuesta arriesgada, pero
 tenía que intentarlo. Jugar la carta de la culpa con un eslavo no
 podía fallar. - Tú la abandonaste.
 
-Jože lo miró, se levantó y empezó a agitar los brazos, gritándole. Su
-acento a veces hacía el español indistinguible de su idioma nativo.
+Jože lo miró, se levantó también y empezó a agitar los brazos, gritándole. Su
+acento a veces hacía el español que profería indistinguible de su idioma nativo.
 
 —Tú qué sabes coño. Había mucha gente. Yo vigilaba, todo el tiempo,
  nadie entraba, nadie salía de habitación. Ella desapareció y no la
@@ -3211,21 +3215,21 @@ acento a veces hacía el español indistinguible de su idioma nativo.
  pequeño“, miraba mano, “Te cojo con esta mano grande, te cojo“ y
  hacía así, ella loca, loca y luego fue a habitación, a la habitación
  que, a la habitación, y yo decía, vamos, nos verán, y ella loca, “El
- pendrive es graaaaande y ordenador pequeñooooo“, decía, “cómo copio,
+ USB es graaaaande y ordenador pequeñooooo“, decía, “cómo copio,
  copio, cómo copio, no puedo, no entra, como copio“, y se reía, loca, loca y se quedó allí, en la
  cama, miraba sus manos, yo me fui, nos iban a ver, no quiero
  problemas, yo estudio, no quiero problemas, locas dan problemas, eso
- pensé, locas dan problemas. 
+ pensé, locas dan problemas, no hice nada. 
  
  –Problemas... - dijo Roble. Problemas mortales. 
 
-—Era amiga, buena amiga. Pero... No quiero problemas. 
+—Era amiga, buena amiga. Pero... No quiero problemas -, dijo Jože. Y se fue en dirección contraria a su barrio, en la dirección que había más bullicio.
 
 Problemas iba a tener. Ya no era Ignacio el último que la había visto
 con vida. Ahora era él. De las declaraciones en el juzgado no se iba a
-librar. 
+librar. Imputación, como encontraran alguna huella en algún sitio estratégico. 
 
-Roble lo dejó allí. Estaba anocheciendo y varios apps le avisaban de
+Roble no lo siguió. Salió andando y dobló hacia la derecha, Fuentenueva abajo, en dirección inicial hacia la Facultad de Ciencias. Estaba anocheciendo y varios apps le avisaban de
 que no estaba haciendo suficiente de algo o estaba haciendo demasiado
 de otra cosa. Tenía que escribir, No había hecho suficiente
 ejercicio. No había tomado suficiente comida sana. Y había inspirado
@@ -3746,29 +3750,29 @@ los conseguía, pero al terminar recordó por qué la había llamado. Y
 también llegó a las capas superiores de su conciencia el hecho de que
 tenía una moto. 
 
-—Tienes moto - le dijo.
+—Tienes moto -, le dijo Roble.
 
-—Sí, pero no te preocupes le he quitado todos los dispositivos de seguimiento. Todos
-los que no son de Kevin, claro - le dijo, riéndose y recogiendo su
+—Sí, pero no te preocupes. Le he quitado todos los dispositivos de seguimiento. Todos
+los que no son de Kevin, claro -, le contestó Demelza, riéndose y recogiendo su
 ropa del suelo, camino de la ducha. 
 
 —¿Qué dispositivos? 
 
-—Bueno, ya sabes. Chismes. - contestó, ya desde la ducha. 
+—Bueno, ya sabes. Chismes -, contestó, ya desde la ducha. 
 
-No es que fuera anormal que los vehículos tuvieran dispositivos que
+No es que fuera extraordinario que los vehículos tuvieran pegados dispositivos que
 permitieran seguirlos. Aparte de las señales Bluetooth o WiFi que emitían y
 que podían detectarse cuando pasaban por algún sitio, algunas empresas
 ponían chips en sus pegatinas para poder saber cuando un cliente
 volvía o pasaba cerca del comercio, para poder enviarle ofertas o
 hacerle encuestas de satisfacción. Algunas compañías de seguros
-obligaban también a llevarlos, para poder saber dónde estaba un
+obligaban también a llevarlos, para poder saber dónde se había situado un
 vehículo en el momento del siniestro. Y, con tanta baliza que revelaba
 tu situación en el mercado, eventualmente casi cualquiera podía
-comprar uno y ponérselo a alguien para entretenerse sabiendo por dónde
-iba. Era tan normal encontrárselos pegados debajo del guardabarros de
-un coche, moto o bicicleta que la gente ya no le daba importancia. Y
-no la tenía, pensó Roble. Salvo cuando efectivamente la tenía. 
+comprar una y ponérsela a alguien para entretenerse sabiendo por dónde
+iba Mengano o Zutano en el momento que su torrente de mensajes sociales se hiciera demasiado anodino. Era tan normal encontrárselos pegados debajo del guardabarros de
+un coche, moto o bicicleta que la gente ya no le daba importancia. Lo despegaba y lo tiraba o lo vendía por Internet.
+ Y no la tenía, pensó Roble. Salvo cuando efectivamente la tenía. 
 
 —¿Cuándo? - preguntó Roble.
 
@@ -3780,14 +3784,15 @@ veces, recuperar el contexto.
 —¿Las quité? Bueno, el día de, ya sabes, lo de Ainhoa, la moto estaba
 en el garaje, así que el día después...
 
-—¿En el garaje? 
+—¿En el garaje? - preguntó Roble.
 
-Era muy fácil poner dos detectores en los garajes para saber si un
+Roble pensó que era muy fácil poner dos detectores en las rampas de entrada a los garajes para saber si un
 vehículo había entrado o salido. Y, de esa forma, saber, en general y
-con cierta precisión, si una persona estaba dentro o fuera. Pero la
+con cierta precisión, si una persona estaba dentro o fuera. Lo difícil es ponerlos con precisión y difíciles de detectar. 
+Podían haber estado a plena vista, de hecho. Porque la
 científica no había mirado ahí. 
 
-—Cuéntame.
+—Cuéntame -, dijo Roble. Demelza no había contestado. No parecía estar pensándose la respuesta, aunque sí pensando algo. Roble se sorprendió por ser capaz de notar estas diferencias. 
 
 —Había uno que...
 
@@ -3800,7 +3805,7 @@ el tiempo, como con el tema del sujetador, que a veces prestaba a
 Tina, aunque le quedaba muy grande, se reían mucho...
 
 —Tina no salía
-mucho, no tanto como ella, estaba muy orientada a su trabajo, ya
+mucho, no tanto como yo, está muy orientada a su trabajo, ya
 sabes, la investigación y eso, vale, vuelvo al tema, al día siguiente
 de lo de Ainhoa, cuando decidí desaparecer o más bien *mudarme*
 virtualmente, que es curioso que mucha gente diga, desaparezco, pero a
@@ -3814,9 +3819,9 @@ Kevin creen que si no la sigue nadie salvo Kevin, que dice que es
 seguro, no es probable, aunque me han dicho que si veo algún dron
 mucho que cambie de ruta, quién sabe...
 
-—Vamos
+—Vamos -, dijo Roble.
 
-—¿Dónde?
+—¿A dónde?
 
 —A la papelera.
 
@@ -3972,7 +3977,7 @@ Demelza se levantó y sacó un frasquito de colonia de su bolso; se echó un poc
 —¿Por qué? Si no podemos entrar en la casa -, dijo Demelza. - Bueno,
 igual tú sí.
 
-Roble emprendió el camino, dejando a Demelza con la tapa
+Roble emprendió el camino de vuelta al lugar del crimen, dejando a Demelza con la tapa
 de la papelera y unas ganas terribles de darse una ducha. Demelza
 miró a los bares a ambos lados de la calle, pero todavía no habían
 abierto, así que se siguió a Roble, unos pasos más atrás. La rampa de entrada al garaje, que estaba a la
@@ -4017,17 +4022,17 @@ en otro desconchón, más o menos del mismo tamaño y más o menos a la
 misma altura. Demelza había sacado ya el móvil y estaba escribiendo
 cosas en él. 
 
-—¿Los has visto? - preguntó Roble, señalando en secuencia a los dos
+—¿Los has visto? - preguntó Roble, señalando en secuencia, con el índice, a los dos
 desconchones. 
 
-—No -, contestó Demelza -, bueno, ahora sí, y ese, y ese, - dijo,
+—No -, contestó Demelza -, bueno, ahora sí. Y ese, y ese, - dijo,
 señalando a diversos desconchones de formas irregulares por toda la rampa y en
 la misma puerta - y todos esos
 roces de ahí, que ahora que lo pienso, si estamos solas en el bloque, ¿quién
 coño...?
 
-Pero Demelza se percató de los desconchones que indicaba Roble. Dos desconchones, cada
-uno de ellos  de forma aproximadamente circular pero convertida en
+Pero Demelza captó qué hacía especiales a los desconchones que indicaba Roble. Cada
+uno de ellos tenía una forma aproximadamente circular convertida en
 estrella por los bordes irregulares, pero con una pequeña cavidad de
 la misma forma excavada en la pared. Roble había visto que el resto de los desperfectos eran
 simplemente descamaciones superficiales de la pintura o roces que
@@ -4036,9 +4041,9 @@ hueco para esconder algo, lo hubiera tapado con pintura y luego lo hubiera retir
 
 —Muy pro -, dijo Roble.
 
-Sin embargo, Demelza no vio más que dos desconchones. Lo que,
+Demelza lo miró, pero su imaginación no le mostró más que dos desconchones similares, a una distancia del suelo específica y de forma peculiar. Lo que,
 posiblemente, podía deberse a la profesionalidad del trabajo.  Roble
-coligió que una vez enterrados ahí quien recibiera la señal 
+coligió que una vez enterrados ahí dos sensores quien recibiera la señal 
 podía deducir cuando un vehículo entraba o salía por el orden por el
 que pasaba por las balizas. Y no había muchos más vehículos en el
 garaje. Ninguno, de hecho.
@@ -4049,34 +4054,33 @@ encontrado la propia Demelza en la moto. El menos profesional podía
 haber sido Ainhoa, pensó Roble. Y el más profesional, el asesino. O
 asesina. O asesinos. Y en cualquiera de las hipótesis, Roble no sabía
 por dónde empezar a buscarlos. Pero al menos sabía que no era Tina, ni Nacho, ni
-ninguno de los que habían aparecido en las apuestas hasta ahora.
+ninguno de los que habían aparecido en las apuestas hasta ahora. Por lo que tendría que estar atento por si aparecía alguien más. 
 
 ## Interrogatorios posiblemente superfluos
 
 Eso era lo que pensaba Cecilio según iba a visitar a su primer
 estudiante. Había quedado con él en la cafetería de la Escuela de
-Arquitectura; precisamente lo había elegido porque era la facultad que
+Arquitectura de la universidad; precisamente  había elegido a ese estudiante en particular porque era la facultad que
 estaba más cerca de la comisaría, unos minutos.
 
 El edificio donde se hallaba la escuela lo conocía desde que había ido allí para tratar,
 inútilmente, de librarse del servicio militar. Por donde estaba ahora
 la cafetería, o en los aledaños, miles de jóvenes habían intentado
-hacerse dueños de su tiempo inventando dolencias que a veces pasaban
-incluso por la expertas manos de médicos militares, expertos en
-dolencias inventadas o efímeras, y a veces, no. En el caso de Cecilio
+hacerse dueños de su tiempo futuro inventando dolencias que, a veces lograban
+incluso vencer al experto escrutinio de médicos militares, versado en
+dolencias inventadas o efímeras, y otras veces, no. En el caso de Cecilio
 había sido que no. El truco para aplanar pies y librarse por pies
-planos, simplemente era inútil. La infelicidad de saberse abocado a la
-vida militar durante unos meses, sin embargo, no le duró mucho: trató
+planos, era simplemente inútil. La infelicidad de saberse abocado a la
+vida militar durante unos meses, sin embargo, no le duró mucho: cuando le tocó, trató
 de ser lo más feliz posible dentro del destino que le habían asignado,
 de policía militar en la base de Armilla, y lo logró. Y la experiencia
 policial le marcó, más adelante, el destino.
 
-El aspecto que ofrecía ahora era bien diferente. El olor a formol que
-detectaba era posiblemente fruto de la imaginación. Olía a café, a
-fritanga y a sudor matutino. No sabía qué pinta tenía el chaval, un
-tal Daniel Maldonado, que estudiaba segundo del grado de Arquitectura,
-pero imaginó que no sería difícil encontrarlo. Alguien solo esperando en
-una mesa. 
+El aspecto que ofrecía ahora era bien diferente al blanco grisáceo de entonces, gris militar pero también de suciedad. El olor a formol que
+detectaba era posiblemente fruto de la imaginación. En realidad, olía a café, a
+fritanga quizás filtrada desde los bares de tapas del Realejo y a sudor matutino. Muchos chavales con mochilas, algunos algo más mayores también con mochilas y bandoleras que podían ser profesores o posiblemente de la tuna, pero nadie que reparara en él más que lo necesario para evitar colisiones sin levantar la vista del móvil y a veces ni eso. Alguno de ellos podía ser Daniel Maldonado. No sabía qué pinta tenía el chaval, que estudiaba segundo del grado en Arquitectura,
+pero imaginó que no sería difícil encontrarlo. Alguien solo esperando sentado en
+una mesa, por ejemplo. Y mirando con ansiedad el reloj. 
 
 Había muchas personas solas en mesas, sobre todo hombres; mujeres, ni
 una. Le preguntó al primero que vio, que le contestó con una mirada
@@ -4084,59 +4088,61 @@ larga y un no breve. Probó con otra persona que, aparentemente, estaba
 meditando sobre la vida o los puentes de Calatrava sobre un café, y
 este ni siquiera le contestó.
 
-Le preguntó al camarero que se afanaba pastoreando vasos camino del
+Decidió cambiar de táctica preguntándole al camarero que se afanaba pastoreando vasos camino del
 lavavajillas a ver si lo conocía, por nombre. El camarero lo miró y le
-contestó:
+contestó, mientras se inclinaba a llenar el lavavajillas:
 
 —Hay mil estudiantes en esta escuela. De esos, la mitad más o menos
 son tíos. Conozco al tío que juega al mus todas las tardes por el
-nombre tío que juega al mus todas las tardes, al mijicas que pide
+nombre Tío que juega al mus todas las tardes, al mijicas que pide
 media de leche caliente de soja y media de leche semidesnatada fría al
 que conozco, sí, efectivamente, por ese nombre y al que viene cada vez
-con una tía diferente. Qué cabrón. Daniel podía ser ese o ese o ese -,
+con una tía diferente, al que conozco por Qué-cabrón. Daniel podía ser ese o ese o ese -,
 dijo el camarero, señalando diferentes mesas -, o todos los de ese
 grupo que entra por la puerta.
 
 Grupo que se dirigió directamente a él. Con cierta parsimonia. 
 
-Todos los policías hacen entrenamiento antidisturbios. No sabes en qué
+Todos los policías hacen, en la academia, entrenamiento antidisturbios. No sabes en qué
 unidad te va a tocar, así que hay que prepararse para todo. Sí,
-también caballos. Si un grupo numéricamente superior se dirige a ti,
+también para cabalgar. Si un grupo numéricamente superior se dirige a ti,
 hay que mantener la línea con los compañeros o echar mano de las
-pelotas de goma. Que no tenía en ese momento. Así que le tomó
+pelotas de goma. Que no tenía en ese momento. Y que además estaban prohibidas en según qué casos. Así que le tomó
 querencia a la barra y puso la mano cerca de un servilletero. Por si
 acaso.
 
 Efectivamente, el grupo de seis personas, cuatro chicos y dos chicas,
-lo rodearon. 
+lo rodearon, con los extremos del semicírculo tocando la barra, donde se acodaron, cerrando toda huida posible. Cecilio hizo como que iba a coger una servilleta para agarrar el servilletero.
 
-—¿Eres Cecilio, el made... el policía?
+—¿Eres Cecilio, el made... el policía? - le dijo el que se situó de forma matemáticamente imposible en el centro del semicírculo de seis personas. Su postura, con la cabeza ligeramente inclinada, tratando de mirar a Cecilio desde arriba sin conseguirlo y su voz atiplada formaban una combinación si no cómica, al menos poco natural. 
 
 —Sí. Buenas tardes -, se echó la mano al bolsillo de la chaqueta y se
-sacó la placa -, digo, buenos días. Le mostró la placa al que le
-hablaba y la pasó a la altura de los ojos, y un par de palmos por
-encima de unos de ellos, del semicírculo que le rodeaba. El sacar la
+sacó la placa -, digo, buenos días. 
+
+Le mostró la placa al que le
+hablaba y la pasó a la altura de algunos ojos, y un par de palmos por
+encima de otros de ellos, del semicírculo que le rodeaba. El sacar la
 placa hizo que alejara la mano del servilletero. Todavía no estaba muy
-seguro de que no se arrepentiría un poco más adelante.
+seguro de que no se arrepentiría un poco más adelante. La efectividad de la placa como proyectil estaba todavía por probar, pero si a los inspectores les dotaban con pistolas aparte de con placas, por algo sería. 
 
 —Soy Eulogio Navarro, asesor legal personal y community manager de
-Daniel Maldonado. Aquí presente - y señaló a un chaval con el pelo
+Daniel Maldonado. Aquí presente -dijo, señalando a un chaval con el pelo
 rubio, rizado, en uno de los extremos del semicírculo. Eso aclaraba la
 filiación de al menos dos de ellos. El resto seguían siendo Juan y
 Juana Nadie. Eso sí, muy en su papel de tales. 
 
-Le alargó a Cecilio una tarjeta con unas preciosas letras de
-diferentes tamaños que él leyó alzándose las gafas: Eulogio Navarro
+Le alargó a Cecilio una tarjeta con unas imponentes inscripciones hechas don letras de
+diferentes tamaños y tipografías que él leyó alzándose las gafas: Eulogio Navarro
 Bofill, COMMUNITY MANAGER, COACH, ASESOR PERSONAL EN TEMAS LEGALES,
 MINDFULNESS, DISEÑO WEB, ECOMMERCE, todo ello en diferentes colores y
-colocado en horizontal, vertical y de formas múltiples. ASESOR
-PERSONAL EN TEMAS LEGALES era lo que tenía un tipo de letra más
-pequeñito y gris. 
+colocado en horizontal, vertical y en dirección de otros cuantos puntos cardinales. ASESOR
+PERSONAL EN TEMAS LEGALES era el fragmento que tenía un tipo de letra más
+pequeñito y un color más desvaído. 
 
-—Sólo... sólo quería hacerle unas preguntas. Sobre una fiesta a la que
+—Sólo... sólo quería hacerle, a él - dijo, señalando a Daniel, que se estremeció ligeramente y se movió perceptiblemente hacia atrás, amenazando con romper el círculo - unas preguntas. Sobre una fiesta a la que
 asistió -, dijo Cecilio.
 
-—Un momento. Todavía no estoy grabando esta entrevista. Porque
+—Un momento -, dijo Eulogio, extendiendo la mano abierta mostrándole la palma a Cecilio. Sus dedos se plegaban en ángulos imposibles, pensó Cecilio. - Todavía no estoy grabando esta entrevista. Porque
 entiendo que mi defendido no está imputado y que se da por
 sobreentendido que declara voluntariamente, pero para proteger sus
 derechos creo que es conveniente grabar esta conversación. O
@@ -4144,19 +4150,20 @@ entrevista.
 
 —Bueno, sólo eran unas preguntas... - dijo Cecilio.
 
-—¿Estamos de acuerdo, sólo digo, estamos de acuerdo  que es una entrevista? - preguntó Eulogio.
+—¿Estamos de acuerdo, sólo digo, estamos de acuerdo en que es una entrevista? - preguntó Eulogio.
 
 —Sí -, contestó Cecilio, cuyo cerebro madero primitivo, que es
 una parte del cerebro, quizás cercana al cerebelo, que impulsa a todo
-policía a resolver una situación como lo haría Clint Eastwood, le
+policía a resolver cualquier situación como lo haría Clint Eastwood, le
 estaba mandando mensajes del estilo de “suéltale un par de hostias y
 lo dejas listo“. Por lo pronto y mientras tuviera el servilletero
-cerca, esa parte de su cerebro madero primitivo  estaba  bajo
+cerca, esa parte de su cerebro madero primitivo  estaba bajo
 control. 
 
-Eulogio los dirigió hacia una mesa. El resto del comité, o comitiva, o
+Eulogio los dirigió hacia una mesa. Cecilio miró al servilletero alejarse. 
+El resto del comité, o comitiva, o
 simplemente turiferarios, se afanaron en mover otra mesa hasta
-situarla junta. Eulogio se colocó en uno de los extremos, con Daniel y
+situarla junto a la primera. Eulogio se colocó en uno de los extremos, con Daniel y
 Cecilio situados a cada uno de sus lados. Por supuesto, los asientos
 los asignó Eulogio. 
 
@@ -4166,7 +4173,7 @@ los asignó Eulogio.
 mano al bolsillo.
 
 A Cecilio le vibró el móvil en ese momento y se echó la mano al
-bolsillo para mirarlo. Los tres adláteres se levantaron y apartaron de
+bolsillo para extraerlo de ahí y mirarlo. Los tres adláteres se levantaron y apartaron bruscamente de
 la mesa y tanto Daniel como Eulogio alzaron los brazos; Eulogio llevaba
 en uno de ellos el móvil. 
 
@@ -4175,7 +4182,7 @@ Cecilio. Movió la cabeza en un gesto equivalente a un “Afú“ y miró el
 mensaje. Marisol le decía que se pusiera en contacto con ella. No
 había ninguna palabra clave que indicara urgencia ni premura ni nada
 por el estilo, así que puso el codo sobre la mesa y la barbilla sobre
-la mano en un gesto de escuchar con paciencia lo que se le viniera
+la mano en un gesto de soportar con paciencia lo que se le viniera
 encima. 
 
 —Un momento. Antes de decir nada, voy a grabar esta conversación en
@@ -4186,15 +4193,15 @@ Cecilio abrió la boca para advertirle que podía ser delito publicar
 imágenes de agentes de policía, pero prefirió callarse. O lo sabía, o
 no lo sabía. Si no lo sabía y lo hacía, podría meterle un paquete con
 todas las de la ley. Que no era otra cosa lo que su cerebro madero le
-decía que hiciera en ese momento. Eso, y una hostia. Dos, una del
+decía que hiciera en ese momento. Y el otro empezaba a estar de acuerdo. Eso, y una hostia. Dos, una del
 derecho y otra del revés.
 
-—¿Podemos empezar? - preguntó Cecilio.
+—¿Podemos empezar? -, preguntó Cecilio.
 
-—Proceda -, contestó Eulogio. Por el momento no se había dado cuenta
+—Proceda -, contestó Eulogio. Por el momento no se había registrado
 del tono de voz de Daniel, que había sacado de algún sitio una
 botellita de agua y tomaba sorbitos, con los labios fruncidos. Llevaba
-una camisa roja con las solapas fuera del un jersey de cuello de pico,
+una camisa roja con las solapas fuera del jersey de cuello de pico,
 de color rosa y de alguna de esas marcas pijas que a veces le pedían
 sus hijos, con nombres de tío guiri. Paul Hilfiger o algo de
 eso. Efectivamente, ahí tenía un logo. Parecía bueno, no tenía
@@ -4215,7 +4222,7 @@ Era Marisol, y ahora sí llevaba la palabra clave.
 
 Se levantó y se fue sin despedirse. Ya le pediría a la jueza que
 citara al tal Daniel en el
-juzgado. 
+juzgado. Se imaginaba a la media docena mirándolo con cara de asombro. Mejor pensado, no podía imaginarse lo que podía pasar por la cabeza ni estar haciendo ninguno de ellos en ese momento. En realidad, estaban los seis escribiendo mensajes de Whatsapp en el móvil. 
 
 ## De hoy no pasa
 {: writer}
@@ -4242,8 +4249,8 @@ a tu entera satisfacción, tienes que terminarla tú mismo.
 ## Otro punto de vista
 
 Roble se despertó cuando ya el sol pegaba con fuerza en las cortinas
-cerradas, dejando su habitación en una claridad en la que se podían
-dilucidar claramente a la aspiradora Roomba buscando ansiosamente un
+cerradas, dejando su habitación en una claridad en la que se podía
+vislumbrar a la aspiradora Roomba buscando ansiosamente un
 enchufe y esquivando la ropa que ni siquiera había tenido tiempo de
 dejar plegada en el galán de noche. Mal.
 
@@ -4393,18 +4400,17 @@ segunda. Ya tenía una lista de personas y ahora también tenía un
 perfil: un perfil profesional. Así que era cuestión de cotejar. O de
 eliminar, más bien. 
 
-Como tendría que eliminar el problema que habitaba su garaje. Era un poco como una caries en sus estadios iniciales. Sólo la notas de vez en cuando y el resto del tiempo no hace sentir su presencia, pero está ahí. Ahora, cuando se hace notar es cuando tienes que tener analgésicos suficientemente fuertes cerca. 
+Como tendría que eliminar el problema que habitaba su garaje. Era un poco como una caries en sus estadios iniciales. Sólo la notas de vez en cuando y el resto del tiempo no hace sentir su presencia, pero está ahí. Ahora, cuando se hace notar es cuando tienes que tener analgésicos suficientemente fuertes cerca.  
 
 Se comenzaron a oir golpes en la puerta metálica del
 garaje. Afortunadamente, era media mañana y no era lo más ruidoso que
 circulaba por el vecindario a esas horas. Lo más ruidoso solían ser
-reliquias que, de alguna forma, se habían mantenido más que por su
+reliquias ambulantes que, de alguna forma, se habían mantenido más que por su
 relevancia comercial, por la textura sonora que añadían a las calles
 de la ciudad: la camioneta que repartía las bombonas de butano, el
-afilador e, incluso, una vez, la troupe calé con un miembro de la raza
-caprina. Escenas todas ellas merecedoras de la etiqueta #vintage y que
-le habían granjeado bastantes *me gusta* en las fotos que había hecho
-en Instagram. 
+afilador anunciando su mester por los altavoces e, incluso, una vez, la troupe calé con un miembro de la especie
+caprina. Escenas todas ellas merecedoras de la etiqueta #vintage y que, captadas y adecuadamente tratadas,
+le habían granjeado bastantes *me gusta* en Instagram y otras redes sociales.. 
 
 Lo que no iba a conseguir con lo que fuera que estuviera aporreando la
 puerta de su garaje. Con insistencia. Roble pensó que no estaba
@@ -4439,6 +4445,7 @@ trotaba por las cuestas pedregosas del Barranco del Abogado y sacaba
 foto de algún graffiti surgido en la última noche. 
 
 ## Había lo que había
+{: writer}
 
 El traqueteo y bullicio en el tren hasta Alcazarquivir ayudó considerablemente
 a que se asentara en mi un estado que, si no era equivalente a la
@@ -4464,17 +4471,17 @@ ceniza de su cigarro todavía no había caído. Se levantó, nos dimos la
 mano, nos besamos en la mejilla tres veces como manda la tradición y
 nos llevamos la mano al corazón.  
 
-Abdelatif, allá por cuando trotábamos por esos mundos subfusil en
-ristre desfaciendo entuertos de otros por un precio razonable en las
-FML, se llamaba simplemente Mohammed. 
+Abdelatif, allá por cuando trotábamos por esos mundos como una fuerza de las
+FML, subfusil en
+ristre, desfaciendo entuertos de otros por un precio razonable , se llamaba simplemente Mohammed. 
 
 —Cómo va todo, Mohammed. Cómo está tu familia. Cómo te encuentras de
-salud - le pregunté.
+salud -, le pregunté, como era la forma tradicional y como había que hacerlo.
 
-—Bien, todo bien, escritor. Y cómo tu familia, tu Miriam, tu negocio,
-todo bien.
+—Bien, todo bien, Escritor. Y cómo tu familia, tu Miriam, tu negocio,
+todo bien -, contestó, llevándose la mano al corazón. Como es la forma tradicional y como hay que hacerlo.
 
-—No tan bien, no tan bien -, le contesto. Por eso había venido. 
+—No tan bien, no tan bien -, le contesté. Por eso había venido. 
 
 Me senté, esperando que, tarde o temprano, el perfectamente uniformado
 camarero me notara y se acercara. Algo que sucedía eventualmente, pero
@@ -4482,20 +4489,21 @@ sin una duración prefijada. Abdelatif me miró con los ojos
 entrecerrados y aspiró del cigarrillo, exhalando un humo que olía a
 clavo, a leña y quién sabe a qué más. 
 
-—Hay lo que hay. No se puede hacer más que Alá desea para nosotros -
+—Hay lo que hay. No se puede ir más allá de lo que Alá desea para nosotros -
 me dijo.
 
 Sabía que me iba a decir eso. Siempre lo decía. Allá por nuestra época
 guerrillera a sueldo, cuando éramos cinco y teníamos que extraer a un
 coronel corrupto de las manos de un comandante corrupto, como nos
 sucedió en Odessa y el comandante corrupto estaba rodeado de cincuenta
-ex-spetsnaz soviéticos, con más mala leche que armas, «hay lo que
+ex-*spetsnaz* soviéticos, con más mala leche que armas, «hay lo que
 hay», decía. Esto tiene que hacerse, y esto es lo que Alá nos ha
-mandado. Y yo me cagaba en todos los muertos de Alá y de los rusos y
+mandado a través de quien quiera que haya contratado a Lopezosa y sus subordinados hasta llegar a nuestro jefe. 
+Y yo me cagaba en todos los muertos de Alá y de los rusos y
 de quien nos había contratado, y él me enseñaba a hablar sin maldecir
 y a maldecir sin hablar y luego me mostraba un par de puntos débiles
 del perímetro y cómo entrar sin que muriera nadie. De los nuestros,
-claro. Cada muerto nuestro nos bajaba el bono por completar la misión.
+claro. Cada muerto nuestro nos bajaba el bono por completar la misión. Si el muerto era de los otros, justamente lo contrario.
 
 Desgraciadamente, el bono bajó considerablemente hasta que de la vieja
 guardia no quedábamos más que él y yo. Y luego FML también
@@ -4505,7 +4513,11 @@ Quizás algunos compañeros todavía se dedicaban a la siega. A la de
 vidas humanas, claro. Pero en esa línea de trabajo, es mejor no
 contratar a amigos ni a conocidos. Ni, aparentemente, a lituanos.
 
+Y a partir de ahí, no hablamos del pasado, ni del presente. Sólo del futuro y por vía de compartir las ideas que, por arte de la pluma o cualquier otro medio, que ni preguntábamos ni queríamos averiguar, se comvertirían en libro o relato o aforismo o poema. Pero esas ideas siempre estaban pasadas por el tamiz de nuestro pasado y se proyectaban hacia el futuro. Los escritores no inventamos nada. Hay lo que hay, y hay que saber leer y saber escuchar para entender que cuando Abdelatif escribe sobre fantasmas lo hace porque no soporta el recuerdo de su primogénito muerto sin que él pudiera hacer nada y cuando habla de princesas habla de Kaoutar, que emigró a Europa cuando, tras la muerte de su hijo, la casa se le venía encima y cuando habla de un pescador que cuando habla de caza habla de nuestra guerra y cuando habla de perros habla de nosotros. 
 
+Yo también le hablo de libros que nunca escribiré. Tampoco lo harán mis fantasmas. Abdelatif siempre escribe con un viejo portátil que tiene letras llenas de circunflejos y virgulillas donde ninguna persona razonable las pondría, botín de guerra que sabe manejar porque, total, qué más da lo que ponga en la tecla. Y yo también tendré que llegar al final de este libro, el libro de la muerte de Demelza, sólo. 
+
+*sigue* 
 
 ## El correo del M
 
@@ -4643,15 +4655,55 @@ el móvil. Estaba otra vez de turno. Volvió a concentrarse en el resto de las n
 
 ## Gastos corrientes
 
-La jueza no iba a dar ninguna orden a Correos. Un alivio, pensó Cecilio. A ver cómo toreaba ese morlaco. Un alivio también haberle colgado a la jueza, que empezó a recriminarle la falta de avance en el asunto Ainhoa. La madre había decidido, razonablemente, apartarse de las cámaras, pero ya había un presunto exnovio paseándose por platós y webs hablando de sus relaciones y de teorías conspiratorias de todo tipo. Al parecer, sabía *algo* y por ello *alguien* quería matarla. El exnovio llegó a aventurar que se trataba del gremio de escayolistas, lo que, pensó Cecilio, no parecía muy probable. En la prensa local hablaban de un asesino en serie. Como no habían encontrado más asesinatos parecidos, Quique el periodista hablaba de un asesino en serie *en sus comienzos*. Y Cecilio llegaba, por momentos, a desear que asesinaran a otra persona para poder dedicarse a ese asesinato. Y que fuera uno más facilito, claro. 
+La jueza no iba a emitir ninguna requisitoria de información a Correos. Un alivio, pensó Cecilio. En caso de haberla dado, a ver cómo habría toreado ese morlaco. Un alivio también haberle colgado a la jueza, que empezó a recriminarle la falta de avance en el asunto Ainhoa. La madre había decidido, razonablemente, apartarse de las cámaras, pero ya había un presunto exnovio paseándose por platós y webs hablando de sus relaciones y de teorías conspiratorias de todo tipo. Al parecer, sabía *algo* y por ello *alguien* quería matarla. El exnovio llegó a aventurar que se trataba del gremio de escayolistas, lo que, pensó Cecilio, no parecía muy probable. En la prensa local hablaban de un asesino en serie. Pero como no habían encontrado más asesinatos parecidos, Quique el periodista hablaba de un asesino en serie *en sus comienzos*. Y Cecilio llegaba, por momentos, a desear que asesinaran a otra persona para poder dedicarse a ese asesinato. Y que fuera uno más facilito, claro. Pero eran deseos efímeros. Cecilio se contentaba con lo que tenía que, siendo poco, implicaba que tendría que tener suficiente con no encontrar, por el momento, ningún culpable. 
 
-Estaba en su despacho. En el ordenador había varios mensajes con informes, solicitados en el momento que descubrieron el cadáver. Las cuentas de Tina, de Kevin y de la propia Demelza. 
+Estaba en su despacho. En el ordenador había varios mensajes que incluían informes, solicitados en el momento que descubrieron el cadáver. Las cuentas de Tina, de Kevin y de la propia Demelza. 
 
 Qué cantidad de dinero manejan los jóvenes de hoy en día. Caray. Kevin tenía ingresos continuos por todo tipo de concepto. Tina, en metálico, casi todos los días. Demelza, de editoriales. Cualquiera de los tres tenía saldos mayores que la cuenta donde Cecilio depositaba los gananciales. Que los que había habido en esa cuenta en cualquier momento de la historia. Los tres juntos podrían financiar un ejército para conquistar un archipiélago en el Índico. 
 
 ¿Y qué diablos significaba eso?
 
 Que el dinero no da la felicidad, pensó Cecilio. Con mucho menos de lo que tenían esta panda de personas, él se encontraba contento.
+
+## Pero escribir
+
+Roble pensó que quizás escribir no era una necesidad física. Lo hacía solamente por placer. No le daba tanto dinero como para que mereciera la pena quitarle tiempo a otras aficiones o semiprofesiones, distinción arbitraria en estos tiempos, más lucrativas.
+
+Sin embargo, había pocos placeres que se parecieran tanto a una obligación. Nadie le ponía plazos, nadie le imponía números de líneas escritas al día, a nadie había que devolverle adelantos sobre ventas. Pero *tenía* que hacerlo. Tenía que llegar a ese clímax en que el asesino y la persona asesinada se encontraban con final fatal para uno de ellos. Un final que no conocía y que buscaba, como el asesino buscaba a su némesis. Y para buscarlo no le quedaba otro remedio que ir escribiendo. Eso era, principalmente, lo que le empujaba a escribir, a sacar desde algún recoveco de su cerebro y a través de las yemas de sus dedos hilos que se enhebraban en esa red que conducía al final. 
+
+Que, en este caso, no parecía estar mucho más cerca, porque había colocado a víctima y asesino en una situación cuyo desenlace era difícil que no hubiera sido cubierto hasta la saciedad en películas hechas-para-televisión. Curiosón llama a vecino anónimamente (como si se pudiera hacer eso hoy en día, ja, pero se usaba con frecuencia en la literatura), vecino descubría que era él y lo mataba. Curioso llamaba a amigo periodista y se metían los dos en la casa para "descubrir pruebas", opción Millenium, el propietario de la colección de sierras mecánicas vuelve, o sorpresa, y sierra mecánica en mano los masacra. La opción "Matanza de Texas" combinaría cualquiera de ellas con penetración a través de muros que casualmente serían de madera en esos lares, y una versión (Mechanical) Saw ataría a los dos, amigo y periodista, a una argolla y situaría una sierra mecánica al alcance de la mano. 
+
+Ninguna de ellas parecía satisfactoria. Pero necesitaba saber qué iba a ocurrir y , así que se puso a escribir.
+
+>Sorprendentemente, la puerta trasera de la casa del asesino estaba abierta. Menos obstáculos a la hora de volver de algún asesinato o algo, pensé. La puerta daba a un lavadero en el que había productos de limpieza que habrían sido usados, en alguna ocasión, para limpiar restos humanos, con toda seguridad. Si ello no era prueba del oficio del asesino que aquí habitaba, no sé yo qué podría serlo. Sangre, lo que se dice sangre, no había, por eso continué hacia el interior, tratando de buscar la habitación hacia la derecha, donde yo había visto desde mi casa la colección de armas del crimen, las horribles sierras mecánicas.
+>Pasé por una cocina inmaculada salvo en las partes en las que no lo estaba, pero no me paré en ella, buscando mi objetivo. Mi vecino el asesino acababa de salir,así que tardaría en volver. O al menos eso esperaba. Salí a un pasillo al que daban varias puertas más, pero escogí la que calculé que estaba a la altura de la habitación del terror.
+>La puerta estaba cerrada. 
+
+La puerta que daba al garaje donde estaba, o quizás en ese momento no, Nacho, también lo estaba. Y no se oía nada diferente a los ruidos habituales a esas horas. Alguna moto con motor de explosión, los zumbidos melódicos pero falsos de algún motor eléctrico, y el perro que siempre ladra en la distancia, a un cartero o a una cigarra. 
+
+>Me daba un poco de apuro romper la puerta. Sobre todo porque el ruido despertaría a los vecinos. Pero el vecino más cercano era yo y ya estaba despierto, así que busqué con qué cargarme la puerta. Había un cuchillo de grandes dimensiones del Ikea, modelo Gynnsam en la cocina. Esos cuchillos están hechos con metal de cañones de la antigua unión soviética y no hay cerradura que se les resista. Y no lo hizo.
+
+Quizás un poco más de detalle sobre cómo se cargó la cerradura lo haría más plausible.
+
+>Y no lo hizo porque inserté la hoja entre la puerta y el marco y, poco a poco, fui abriendo un hueco que me permitió acceder al cierre de la misma, que levanté sin ningún problema. Armas del crimen encerradas en una habitación, doble prueba de la naturaleza de quien allí habitaba. Que ahora estaba más cerca de volver, así que me apresuré. Vi enfrente la ventana de mi casa, que había dejado con las ventanas corridas, porque a nadie le interesaba lo que yo hacía o dejaba de hacer allí. O si estaba o no estaba. 
+
+>Efectivamente, a mi izquierda estaban las sierras mecánicas. Algunas enormes, sólo aptas para ser levantadas por fornidos leñadores de camisa a cuadros, pero otras pequeñas, delicadas, un mecanismo de precisión con toda la belleza y la eficiencia que la ingeniería mecánica checoeslovaca era capaz de ofrecerte. Tomé una de ellas entre mis manos y vi que estaba sujeta por un cable metálico a la panoplia donde se presentaban. Ello me extrañó. Examiné también las manchas de sangre que yo había visto desde enfrente, y no eran tales. Eran parte de la panoplia de presentación de las armas, que tenía manchas de todos los colores aparentando quién sabe si camuflaje o una combinación abstracta de fin desconocido.
+
+>Pero todavía podía haber restos en algún recoveco de las armas del crimen. No se había encontrado ningún cadáver todavía en la ciudad, pero seguramente habría algún cadáver muerto en algún sitio con partes faltantes y esas partes tenían que estar aquí, en esta sierra mecánica que sostengo entre mis manos, y que huele a crimen, siempre que el crimen huela a aparato mecánico recién engrasado, que tiene que oler, porque aquí vive un asesino y estas son las armas del crimen. 
+
+>Pero oigo una voz en el pasillo que grita algo así como "Mi puerta" y entra como una exhalación por la puerta un energúmeno, el asesino, que sigue gritando "Mis sierras de colección", y luego, sin solución de continuidad, grita "Ladrón", toma el cuchillo Gynnsam que había dejado encima de una mesita, enfrente de la colección de sierras, que no armas del crimen, y me lo clava en el tercer espacio intercostal, mientras grita "Suelta mis sierras, ladrón".
+
+>Me desangro lentamente, pero antes de morir acierto a escuchar al asesino, que llama desde el móvil "Sí, un ladrón en mi casa, en busca de mi colección de sierras mecánicas primera edición valorada en varios millones. Tenía una de ellas en la mano y temía que me atacara, así que le he atacado yo con un cuchillo. No, no está muerto todavía, manden una ambulancia, pero no creo que llegue a tiempo"
+
+Y eso sería el final. No lo sería en un país como este, pensó Roble. Al propietario, y ahora asesino, le esperaba una larga serie de juicios y posiblemente una condena. Pero le iba a poner al protagonista Johnny, o sea que iba a ser americano, y ya se sabe que en América, una vez que te encuentras a alguien en tu propiedad, se abre la veda. 
+
+Unos minutos más tarde, tras pasarlo por el filtro de YouWriteNow que mejoraba el texto y que eliminó palabras como "faltantes", ya estaba publicado. "Mi vecino coleccionaba motosierras", un ejemplo más del género de relatos de asesinados en primera persona. Difusión en redes sociales, y unos minutos más adelante ya sumaba las primeras ventas.
+
+YouWriteNow, por lo pronto, estaría satisfecho. Roble, por el momento, también. Su cuenta corriente, momentáneamente, recibiría una pequeña infusión de liquidez. 
+
+Todavía había un asesino suelto. Y Nacho en el garaje. Pero en ese momento Roble no pensaba en ellos. 
+
+*seguir*
 
 ## Y una webserie
 
@@ -4666,6 +4718,10 @@ Kevin, a su lado, masticaba con empeño unos sesos fritos. Como si hiciera falta
 Espera un momento, pensó Roble. ¿Coste negativo? ¿Es decir, que en vez de invertir dinero, lo...? No, espera, comencemos de nuevo. ¿Recibían dinero antes de que tuvieran que gastárselo? 
 
 Visto así, tenía sentido. Y lo había deducido él solo, sin necesidad del móvil, que ninguno de los dos podía usar en presencia de Demelza, para evitar su geolocalización. Eso, y los sesos, eran lo que parecían haber hecho a Kevin especialmente locuaz.
+
+
+
+
 
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
