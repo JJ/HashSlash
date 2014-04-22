@@ -4517,8 +4517,6 @@ Y a partir de ahí, no hablamos del pasado, ni del presente. Sólo del futuro y 
 
 Yo también le hablo de libros que nunca escribiré. Tampoco lo harán mis fantasmas. Abdelatif siempre escribe con un viejo portátil que tiene letras llenas de circunflejos y virgulillas donde ninguna persona razonable las pondría, botín de guerra que sabe manejar porque, total, qué más da lo que ponga en la tecla. Y yo también tendré que llegar al final de este libro, el libro de la muerte de Demelza, sólo. 
 
-*sigue* 
-
 ## El correo del M
 
 —No, no te está haciendo pesao, Cécil, pregunta -, dijo Marisol, al teléfono. - Por el momento.
@@ -4593,6 +4591,24 @@ momento.
 Era posible que se hubiera ido, pensó Roble. Lo que era un alivio. Pero quizás no se había ido *del todo*. Lo que no lo era. Y Gil seguía mirándolo. 
 
 Podían pasar así unas horas. Así que Roble se volvió a poner los auriculares y echó a correr en una dirección aleatoria. No sintió la mirada del Cabraloca en la espalda porque, seamos sinceros, esas cosas no se sienten.
+
+## Encontrando el camino
+{: .writer}
+
+La labor de un escritor y la labor del Escritor es hacer que sus personajes encuentren su
+propio camino en el mundo que él ha creado para ellos. 
+
+Ese parece ser el problema en este caso. Estos lituanos tenían ya el mundo creado y han sido
+incapaces de encontrar el camino que los lleve a una chica española,
+con pinta de chica española, que habla español y que va dejando todo
+tipo de pistas de por dónde anda por Vilna y las excursiones que hace
+a Riga e incluso cuando se acercó a Kiev a hacer a saber qué. Y si ellos no encuentran el camino haciea ella, ella no encuentra el camino hacia su destino. 
+
+"Que no la encontramos, jefe", insisten, mientras simultáneamente piden dinero, más dinero, siempre dinero. Dinero que ahora no tengo y que no tendré si no consigo el contrato de publicación del libro del Escritor, el libro qu ese está escribiendo. Porque uno escribe para que le quieran, pero yo no escribo, lo hacen por mi mis Iván y Alexis y Yaivan allende el Atlántico y ña parte que yo sí hago la hago por el dinero. Y la fama. Y el dinero. Y para hacer una gran novela, hace falta una gran muerte, al menos para publicarla.
+
+Y estos lituanos son incapaces de proporcionármela. Lo tendré que hacer yo solo. La epifanía que tuve en presencia de Abdelatif, o por mediación de Abdelatif, se reveló en ese momento en toda su extensión. Hay lo que hay.
+
+Y lo que no hay es dinero para ir hasta allí en una línea aérea regular. 
 
 ## Correos y farmacias
 
@@ -4827,22 +4843,6 @@ otras ninguno. Para algunos Julia calló al suelo tras la primera
 campanada, para otras después de la séptima. Muchos pensaron que era
 parte de la narración. Pero no lo era. El cuento, verdaderamente, se había acabado para Julia.  
 
-## Encontrando el camino
-{: .writer}
-
-La labor de un escritor es hacer que sus personajes encuentren su
-propio camino en el mundo que él ha creado para ellos. Ese es el
-problema. Estos lituanos tenían ya el mundo creado y han sido
-incapaces de encontrar el camino que los lleve a una chica española,
-con pinta de chica española, que habla español y que va dejando todo
-tipo de pistas de por dónde anda por Vilna y las excursiones que hace
-a Riga e incluso cuando se acercó a Kiev a hacer a saber qué.  
-
-"Que no la encontramos, jefe", insisten, mientras simultáneamente piden dinero, más dinero, siempre dinero. Dinero que no tengo y que no tendré si no consigo el contrato. Porque uno escribe para que le quieran, pero yo no escribo, lo hacen por mi mis Ivanes y Alexis y Yaivan allende el Atlántico y además, lo hago por el dinero. Y la fama. Y el dinero. Para hacer una gran novela, hace falta una gran muerte.
-
-Y estos lituanos son incapaces de proporcionármela. Lo tendré que hacer yo solo.
-
-Y volando en bajo coste. 
 
 
 ## Volando voy, volando vengo
