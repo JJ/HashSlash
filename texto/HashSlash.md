@@ -4607,7 +4607,7 @@ a Riga e incluso cuando se acercó a Kiev a hacer a saber qué. Y si ellos no en
 "Que no la encontramos, jefe", insisten, mientras simultáneamente
 piden dinero, más dinero, siempre dinero. Dinero que ahora no tengo y
 que no tendré si no consigo el contrato de publicación del libro del
-Escritor, el libro que se está escribiendo. Porque uno escribe para que le quieran, pero yo no escribo, lo hacen por mi mis Iván y Alexis y Yaivan allende el Atlántico y ña parte que yo sí hago la hago por el dinero. Y la fama. Y el dinero. Y para hacer una gran novela, hace falta una gran muerte, al menos para publicarla.
+Escritor, el libro que se está escribiendo. Porque uno escribe para que le quieran, pero yo no escribo, lo hacen por mi mis Iván y Alexis y Yaivan allende el Atlántico y la parte que yo sí hago la hago por el dinero. Y la fama. Y el dinero. Y para hacer una gran novela, hace falta una gran muerte, al menos para publicarla.
 
 Y estos lituanos son incapaces de proporcionármela. Lo tendré que hacer yo solo. La epifanía que tuve en presencia de Abdelatif, o por mediación de Abdelatif, se reveló en ese momento en toda su extensión. Hay lo que hay.
 
