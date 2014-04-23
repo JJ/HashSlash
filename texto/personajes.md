@@ -42,6 +42,7 @@ Nombre | Nacido - cuando | dónde |  A qué se dedica | Otros
 --- |--- |--- |--- | ---
 Escritor | 1984 | Barbate | Escribe y mata | Sólo aparece explícitamente en esta rama
 Miriam | 1996 | Larache | Esposa o sirvienta del Escritor | Poco sabemos de ella
+Abdelatif | 1980 | Alcazarquivir | Escribe | Antiguo mercenario de las FML
 
 Apps
 ----
