@@ -152,7 +152,7 @@ irremediablemente, se descomponía. Le vino una náusea pero la combatió
 al recordar que tendría que pasar por el cuarto de baño que estaba, justamente, al lado de la
 habitación donde se encontraba el cadáver. Cecilio le dio una palmada
 en la espalda, lo que casi hizo que se le volviera a salir el
-vómito. El app de huellas, el apropiadamante llamado Fingar, mostraba
+vómito. El app de huellas, el apropiadamente llamado Fingar, mostraba
 una barra de progreso pequeña como las posibilidades reales de que
 encontrara algo, pero nunca se sabía. La gente iba dejándose huellas
 en los sitios más insospechados, y ligarlas a un perfil social era tan
