@@ -1,9 +1,6 @@
-<<<<<<< HEAD
 ---
 layout: index
 ---
-=======
->>>>>>> 0ce3f8b30b5d5f917cac5c576b097457e0f316c6
 Personajes de HashSlash
 ===========
 
@@ -35,7 +32,18 @@ Nombre | Nacido - cuando | dónde |  A qué se dedica | Otros
 --- |--- |--- |--- | ---
 Ainhoa González Tovar| 1994 |  - | A copiar y a estudiar | *Spoiler alert*  Asesinada.
 Demelza | 1995 | - | Escribe mecaporno y estudia ingeniería electrónica industrial | 
-Tina | 1992 | - | Cocina e investiga | Compañera de piso de Demelza
+Cristina "Tina" Ródenas Collado  | 1992 | Villarrobledo  | Cocina e investiga | Compañera de piso de Demelza
 Ignacio Salido | 1989 | -  | Trapichea | Okupa en el piso de enfrente de Demelza y Tina
 Kevin | 1994 |  - |  Estudia por su cuenta en MOOCs | Novio de Demelza
 Julia Matesanz Vázquez | 1988 | Estudió Educación Física, literata ambulatoria |  
+
+Apps
+----
+
+Con tantas apps uno acaba cambiándolas de nombre, así que voy a listarlas aquí como si fueran personajes
+
+Nombre | Qué hace | Más detalles
+--- |--- |--
+YouWriteNow! | Rutinas de escritor: fuerza a escribir, a revisar y a hacer una serie de cosas al día | La usa Roble (como casi todas)
+NoFlab | "Mantenimiento de peso o incremento de la vergüenza" | Gamifica el mantenimiento del peso 
+WhatsApp | Mensajería | Ya hay uno excelente, para qué inventarse otro.
