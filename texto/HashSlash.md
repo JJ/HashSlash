@@ -75,8 +75,7 @@ poco los ojos.
 —No, el mango es así como triangular, y no tiene las tachuelas -, dijo
 Cecilio. 
 
-Se
-levantó con el móvil en la mano y fue a la habitación donde se encontraba el cadáver. Se oyó el
+Se levantó con el móvil en la mano y fue a la habitación donde se encontraba el cadáver. Se oyó el
 chasquido de la aplicación al hacer una foto. Roble arrugó los labios y alzó
 las cejas.
 
@@ -97,13 +96,13 @@ mensaje del que hablaba. Efectivamente, un blog americano de crímenes
 reales le compraba las fotos. Ahora no le quedaría otro remedio que
 acercarse a la chica. O que Cecilio lo siguiera haciendo.
 
-—Sí. Novelas -, le dijo a Cecilio. 
+—Sí. Novelas -, le dijo a Cecilio, - mías. 
 
 —Pues decía no sé qué de fotos. Joder, Robles, que la policía no es
 tonta -, dijo, riéndose de su propia gracia. - Tú verás lo que haces,
 pero si te cae un paquete a mi no me líes. 
 
-Roble seguía moviendo los dedos y golpeando la pantalla el teléfono.
+Roble seguía moviendo los dedos y golpeando la pantalla del móvil.
 
 —El app de Ikea. No funciona -, dijo Roble, que seguía pegado al
 teléfono.- Normal.  
@@ -129,18 +128,20 @@ cosa de Ikea es?
   ¿verdad? 
   
 Cecilio se rió de su propia gracia. Roble volvió al móvil, que acababa
-de emitir el tono que indicaba, de nuevo, que había llegado un
-mensaje.  
+de emitir el tono que indicaba la llegada de algún tipo de mensaje. 
   
- —Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Cecilio. 
+ —Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? -
+ Le alargó el móvil a Cecilio. - ¿Huellas?
  
  —¿Y por qué no las echas tú con tu polla? - le contestó Cecilio,
  socarrón,  extendiendo la mano para recibir el
  móvil. Roble también sonrió, asumiendo la respuesta como parte de esa seña de
  identidad llamada *malafollá granaína* que todavía, después de dos
- años de destino, seguía tratando de aprender. 
+ años de destino, seguía tratando de aprender. - ¿Huellas? ¿De veras
+ que este chisme también hace eso? - preguntó, mostrándolo en alto y
+ señalándolo. Roble, como contestación, asintió. 
  
-Cecilio volvió al cabo de un minuto. Sus pies se pegaban al suelo,
+Cecilio volvió al cabo de un minuto. Sus zapatos se pegaban al suelo,
 recubierto de una sustancia pegajosa compuesta de capas de mugre y de
 diversos hidratos de carbono depositados de forma más o menos uniforme
 en el suelo tras caer de los vasos y manos de los asistentes a la
@@ -153,9 +154,22 @@ carnicería que venía de la habitación donde la muerta,
 irremediablemente, se descomponía. Le vino una náusea pero la combatió
 al recordar que tendría que pasar por el cuarto de baño que estaba, justamente, al lado de la
 habitación donde se encontraba el cadáver. Cecilio le dio una palmada
-en la espalda, lo que casi hizo que se le volviera a salir el vómito. 
+en la espalda, lo que casi hizo que se le volviera a salir el
+vómito. El app de huellas, el apropiadamante llamado Fingar, mostraba
+una barra de progreso pequeña como las posibilidades reales de que
+encontrara algo, pero nunca se sabía. La gente iba dejándose huellas
+en los sitios más insospechados, y ligarlas a un perfil social era tan
+fácil como recolectarlas. El app valía todo el medio bitcoin que había
+pagado con él. Pero cuando había avanzado una tercera parte de la
+pantalla, el móvil vibró, dijo «Gotcha» y mostró una foto y un nombre,
+Cristina Ródenas. 
 
-—La compañera de piso -, dijo Roble. Seguía durmiendo. Dos chicas en
+—La compañera de piso -, dijo Roble. El novio de la víctima, antes de
+que hubiera que llevárselo con un ataque de ansiedad, había acertado al menos a dar unos cuantos nombres
+de personas cercanas. Y al hacer un registro a la casa, se la habían
+encontrado roncando ruidosamente en su cuarto, impertérrita. 
+
+En ese momento, casi una hora más tarde, seguía durmiendo. Dos chicas en
 un piso de tres dormitorios, que podían permitirse, imaginaba Roble, porque estaba lejos
 de cualquier facultad y prácticamente de todo. Aún así, había
 vislumbrado en las fotos mobiliario que estaba muy por encima de los
