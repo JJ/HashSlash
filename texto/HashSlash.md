@@ -3947,8 +3947,8 @@ Era menos feliz cuando concurrían una serie de restricciones. Por
 ejemplo, reducir sus opciones a hacer una barbacoa para vecinos y
 familiares cercanos (en la distancia y en los vínculos
 sanguíneos). Pero la ocasión era su santo, San Cecilio. Y además, en
-uno de esos vuelcos tan característocos del tiempo granadino, el
-invierno se disfrazaba de primavera, al menos durante unas cuantas
+uno de esos vuelcos tan característicos del tiempo granadino, el
+invierno se disfrazaba de primavera e incluso de verano, al menos durante unas cuantas
 horas al día. Las horas en que se estaba mejor sentado en una silla de
 playa, con una rodaja de pan en la mano con un cacho de carne dejando
 caer sus jugos encima en el breve espacio de tiempo que transcurre
