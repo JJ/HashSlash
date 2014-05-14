@@ -76,7 +76,7 @@ Se levantó con el móvil en la mano y fue a la habitación donde se encontraba 
 chasquido de la aplicación al hacer una foto. Roble arrugó los labios y alzó
 las cejas.
 
-—Has aprendido -, dijo Roble a modo de halago. Cecilio simplemente
+—Has aprendido -, dijo Roble, y a Cecilio le sonó a halago. Cecilio simplemente
 le mostró la foto en la que aparecía un mango negro con churretes
 marrones, triangular, aparentemente hincado en un montón de tela
 también con chafarrinones negros, marrones y rojos oscuros. Rojo
@@ -385,7 +385,7 @@ que la presencia de Roble estuviera asociada, desde el principio, con una
 compañera asesinada. No es una buena forma de presentarte. “Hola, soy
 poli, tu compi ha muerto y, por casualidad, ¿no la habrás matado tu?“.
 
-—Menuda fiestuqui anoche, ¿eh? - dijo Roble, a modo de gancho para tratar de pescar algo sobre el conocimiento de Tina de la situación. 
+—Menuda fiestuqui anoche, ¿eh? - dijo Roble, lanzándolo como un anzuelo  para tratar de pescar algo sobre el conocimiento de Tina de la situación. 
 
 —Sí, ¿verdad? -, contestó Tina, un poco más animada tras haberse bebido
 el zumo de naranja de un trago y haber empezado con el café con leche
@@ -3880,11 +3880,19 @@ La jueza no iba a emitir ninguna requisitoria de información a Correos. Un aliv
 
 Estaba en su despacho. En el ordenador había varios mensajes que incluían informes, solicitados en el momento que descubrieron el cadáver. Las cuentas de Tina, de Kevin y de la propia Demelza. 
 
-Qué cantidad de dinero manejan los jóvenes de hoy en día. Caray. Kevin tenía ingresos continuos por todo tipo de concepto. Tina, en metálico, casi todos los días. Demelza, de editoriales. Cualquiera de los tres tenía saldos mayores que la cuenta donde Cecilio depositaba los gananciales. Que los que había habido en esa cuenta en cualquier momento de la historia. Los tres juntos podrían financiar un ejército para conquistar un archipiélago en el Índico. 
+Qué cantidad de dinero manejan los jóvenes de hoy en día. Caray. Kevin
+tenía ingresos continuos por todo tipo de conceptos. Tina, en
+metálico, casi todos los días. Demelza, de diferentes plataformas de
+distribución de libros. Cualquiera de los tres tenía saldos mayores
+que la cuenta donde Cecilio depositaba los gananciales. Que los que
+había habido en esa cuenta en cualquier momento de la historia. Los
+tres juntos podrían financiar un ejército para conquistar un
+archipiélago en el Índico.  
 
 ¿Y qué diablos significaba eso?
 
-Que el dinero no da la felicidad, pensó Cecilio. Con mucho menos de lo que tenían esta panda de personas, él se encontraba contento.
+Que el dinero no da la felicidad, pensó Cecilio. Con mucho menos de lo
+que tenían esta panda de personas humanas, él se encontraba contento.
 
 ## Pero escribir
 
@@ -3923,6 +3931,69 @@ Unos minutos más tarde, tras pasarlo por el filtro de YouWriteNow que mejoraba 
 YouWriteNow, por lo pronto, estaría satisfecho. Roble, por el momento, también. Su cuenta corriente, momentáneamente, recibiría una pequeña infusión de liquidez. 
 
 Todavía había un asesino suelto. Y Nacho en el garaje. Pero en ese momento Roble no pensaba en ellos. 
+
+## Y los gastos
+
+Cecilio era feliz con los dos días de descanso que tenía cada cinco en
+la policía. Lo era mucho más cuando coincidían en fin de semana. Podía
+emplearlo, completo, en disfrutar a la familia o, por el contrario, en
+evitarla, pero en cualquiera de los casos podría tomar la vida a
+grandes tragos y a su manera. 
+
+Era menos feliz cuando concurrían una serie de restricciones. Por
+ejemplo, reducir sus opciones a hacer una barbacoa para vecinos y
+familiares cercanos (en la distancia y en los vínculos
+sanguíneos). Pero la ocasión era su santo, San Cecilio. Y además, en
+uno de esos vuelcos tan característocos del tiempo granadino, el
+invierno se disfrazaba de primavera, al menos durante unas cuantas
+horas al día. Las horas en que se estaba mejor sentado en una silla de
+playa, con una rodaja de pan en la mano con un cacho de carne dejando
+caer sus jugos encima en el breve espacio de tiempo que transcurre
+entre la abrasadora barbacoa y los destructores jugos gástricos. 
+
+La felicidad nunca era completa y empezaba por la preparación
+logística de todo el asunto, preparación que implicaba, siempre, dos
+horas al menos en una gran superficie porque, siendo sábado, llegar al
+Mercadona del Serrallo Plaza era simplemente imposible. Y esas dos
+horas empezaban también con la conjunción planetaria de cuatro
+personas levantándose, desayunando, aseándose  y metiéndose en el coche. En la
+historia reciente sólo recordaba haberlo conseguido en menos de una
+hora y media y era porque el mayor todavía usaba pañales, el pequeño
+estaba en la cunita y ninguno de ellos se había hecho popó
+precisamente en el momento en que iban a salir por la puerta. Desde
+entonces, sin sobornos de comida rápida, artículos de consumo cuyo
+placer terminaba en el momento que se sacaban de la caja, y a veces ni
+tanto y una cierta cantidad de elevación de voz y cabreos bi y
+trilaterales, era imposible organizar no sólo barbacoa sino, para el
+caso, cualquier expedición a una gran superficie. Cecilio había
+respirado aliviado cuando a toda esa logística habían dejado de
+añadirle el sigilo necesario para mantener la ficción de Reyes Magos,
+Santas Clauses y demás criaturas milagrosas que probaban la falsedad
+de la aseveración «No existe la comida gratis».
+
+Y no existe barbacoa en la que el gasto previo por persona no
+excediera el necesario para pagar una suculenta comida en el
+Damasqueros o la Ruta del Veleta. ¿Cómo podían gastarse casi cuarenta
+euros por asistente a la barbacoa?, se preguntaba siempre Cecilio
+cuando salían de la caja y revisaba la cuenta. Su mujer, que habría
+sido capaz de estimar el precio total del carrito sin haber
+participado en su llenado, lo miraba siempre con cara de «No sé de qué
+te extrañas». Y eso que habían comprado ginebra Lirios. Pero cuatro
+botellas. 
+
+«Bueno, si sobra, ya se gastará», siempre habría algún cuñado que se
+apalancara un sábado por la tarde y se la tomara, Pero cuatrocientos
+euros. 
+
+Había que comparar. Lo que se podía gastar Tina un par de veces a la
+semana, pensó. A veces tres, en un buen mes. Demelza, gastos
+semanales, de diario, claro. El novio de Demelza sólo sacaba eso una
+vez al mes. No todos los meses. 
+
+¿Y el tal Ignacio? ¿Cuanto gastaría el tal Ignacio? Ni siquiera tenía
+una cuenta corriente. 
+
+Pero eso no lo hacía automáticamente un criminal. 
 
 *seguir*
 
