@@ -3998,6 +3998,49 @@ una cuenta corriente.
 
 Pero eso no lo hacía automáticamente un criminal. 
 
+## Turnos
+
+Había llegado un momento en el que Roble no sabía en qué punto del
+turno estaba. Y es que no había un app para ello. Quizás seŕia una
+buena idea crear una. ¿El novio de Demelza sabría hacerlo? Todos los
+policías nacionales que, como él, fueran incapaces de guardar un
+calendario de bolsillo en la cartera se gastarían un euro o dos. 
+
+A falta de tal aplicación móvil, llegó a la comisaría un sábado por la
+mañana y se encontró con un grupo de compañeros que no esperaba
+encontrarse, provocándole momentáneamente esa sensación de haber
+entrado en un universo paralelo donde los muebles y las paredes y los
+olores son los mismos, pero la gente es diferente porque, años atrás,
+el abuelo de alguien pisó una cáscara de plátano y murió, dando lugar
+a una genealogía totalmente diferente y eliminando, generación a
+generación, exponencialmente más gente de la línea temporal. 
+
+—¿Sáinz? - le dijo el subinspector Jiménez, levantando los ojos de la tableta que
+descansaba, a modo de atril, encima de su mesa. Trató de recordar
+cuándo había visto por última vez a Jiménez, un policía que había sido
+gris y ahora, cerca de la edad de jubilación, volvía a serlo empezando
+por la corola de cabellos que se aferraba débilmente a su cabeza. Sus
+turnos sólo se solapaban en 
+un día y ese día a veces eran a horas diferentes - ¿Tu turno no
+acababa ayer?
+
+Pensó por un momento que el vejestorio de Jiménez se habría equivocado
+o que, cercana la edad de la jubilación, prefería echar horas entre
+compañeros antes de ejercer de niñero y de chófer de hijos, mujer y
+nietos. Pero se acercó a su mesa, encendió el ordenador y consultó sus
+turnos viendo que, efectivamente, su turno había terminado ayer. 
+
+Pero, ya que estaba...
+—Jiménez - dijo.
+
+—Qué - contestó Jiménez, sin levantar la cabeza.
+
+—Asesinos. Profesionales. - Había pocos más en la comisaría. Los
+sábados eran, después de todo, sábados y los compañeros se las
+ingeniaban para hacer trabajo de calle o cambiar el turno. Los sábados
+por la noche, especialmente, eran tierra de nadia dónde sólo los muy
+desafectos o muy desocupados ocupaban su mesa. 
+
 *seguir*
 
 ## Y una webserie
