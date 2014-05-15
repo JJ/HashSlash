@@ -4012,7 +4012,7 @@ el abuelo de alguien pisó una cáscara de plátano y murió, dando lugar
 a una genealogía totalmente diferente y eliminando, generación a
 generación, exponencialmente más gente de la línea temporal. 
 
-—¿Sáinz? - le dijo el subinspector Jiménez, levantando los ojos de la tableta que
+—¿Sáenz? - le dijo el subinspector Jiménez, levantando los ojos de la tableta que
 descansaba, a modo de atril, encima de su mesa. Trató de recordar
 cuándo había visto por última vez a Jiménez, un policía que había sido
 gris y ahora, cerca de la edad de jubilación, volvía a serlo empezando
@@ -4035,7 +4035,7 @@ Pero, ya que estaba...
 —Asesinos. Profesionales. - Había pocos más en la comisaría. Los
 sábados eran, después de todo, sábados y los compañeros se las
 ingeniaban para hacer trabajo de calle o cambiar el turno. Los sábados
-por la noche, especialmente, eran tierra de nadia dónde sólo los muy
+por la noche, especialmente, eran tierra de nadie dónde sólo los muy
 desafectos o muy desocupados ocupaban su mesa. 
 
 *seguir*
