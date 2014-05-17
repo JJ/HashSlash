@@ -879,50 +879,55 @@ Amazon no revela las ventas, pero el de las velas parecía estar en el tramo de 
 decenas de miles con más venta que indicaba que habría vendido quizás
 uno en las últimas horas. Igual decía la verdad.
 
-—Pues invítame a una caña. - contestó el amigo, o, más concretamente,
+—Pues invítame a una caña -, contestó el amigo, o, más concretamente,
 compañero de asiento en el autobús. 
 
 ## Los muertos no hablan, los vivos sí.
 
-El walkie de Cecilio emitió un sonido. Estaba de nuevo en el salón del
+El *walkie* de Cecilio emitió un trino. Se encontraba de nuevo en el salón del
 piso donde había sucedido el asesinato, evitando sentarse en el sillón caníbal y esperando que salieran
-los agentes de criminalística, que habían entrado hacía unos
+los funcionarios de criminalística, que habían entrado hacía unos
 minutos junto con el médico en la habitación donde se encontraba el
-cadáver. La jueza y el secretario judicial no andaban lejos,
+cadáver. La jueza y el secretario judicial no andarían lejos,
 posiblemente en el pasillo, porque en la habitación era improbable que
 cupieran todos.
 
 —Inspector, una tipa aquí que quiere subir porque dice que vive ahí o
-no sé qué.
+no sé qué, - oyó que le decía desde el *walkie* alguno de los agentes
+que estaba en la puerta.. 
 
-—¿Qué?
+—¿Qué? - contestó Cecilio. 
 
-La tal Tina estaba sentada en el sofá donde ellos habían estado
-sentado antes. Tras el breve berrinche se había puesto a disposición
+A menos que una consecuencia de la edad provecta de cincuenta años
+fuera que se le había olvidado totalmente la capacidad de contar,
+en el piso vivían dos chicas. Una estaba de cuerpo presente, y la tal Tina estaba sentada en el sofá donde ellos habían estado
+sentados antes. Tras el breve berrinche se había puesto a disposición
 de los agentes, posiblemente para asegurarse de que no rompían nada y
-después de trastear un rato en su propia habitación, “arreglándose“,
+después de trastear un rato en su propia habitación, «arreglándose»,
 decía. 
 
-—Aguántala ahí -, dijo Cecilio por el walkie.
+—Aguántala ahí -, dijo Cecilio por el *walkie*. Tina no reaccionó. 
 
 —Jefe, no sé si querrá...
 
-—Lavín, compae, que se espere, cojones.
+—Lavín, compae, que se espere, cojones -, dijo Cecilio, intentando no
+gritar. 
 
-—Es que...
+—Es que... 
 
 Cecilio cortó la comunicación. Le puso una mano en el hombro a Tina
-que estaba concentrada jugando en el móvil. Le habían pedido que no
+que estaba concentrada jugando en el móvil, con todo lo sucedido
+aparentemente ya olvidado. Le habían pedido que no
 dijera nada a nadie, pero seguro que ya lo había puesto en tres redes
 sociales diferentes.
 
-—Tina, ¿quienes vivís aquí?
+—Tina, ¿quiénes vivís aquí? - preguntó Cecilio, como con curiosidad. 
 
 —Bueno, Demelza y yo, pero Demelza está muerta, - se le escapó una
 risita -, así que yo sola. 
 
-—¿Nadie más? ¿Ningún amigo o amiga que venga de vez en cuando,
-conocido, familiar del dueño? Son tres dormitorios, ¿no?
+—¿Nadie más? - insistió Cecilio- ¿Ningún amigo o amiga que venga de vez en cuando,
+conocido, familiar de los dueños? Son tres dormitorios, ¿no?
 
 —Sí, pero el tercero no lo usamos, bueno, sí lo usamos, pero vamos, no
 vive nadie, vivir, lo que se dice vivir, vamos.
@@ -931,21 +936,22 @@ Cecilio se quedó pensando.
 
 —¿Me puedes acompañar un momento?
 
-Bajaron un tramo de escaleras, Cecilio delante, Tina unos escalones
-por detrás. Tina no dejó el móvil ni un momento, sus pies conocían el
+Tina lo siguió. Bajaron un tramo de escaleras, Cecilio delante, Tina unos escalones
+por detrás, sin dejar el móvil ni un momento, sus pies conocían el
 camino. 
 
-—¡Tinaaa! - Oyó Cecilio cuando se pusieron a la vista de la puerta. 
+—¡Tinaaa! - Oyó Cecilio cuando se pusieron a la vista de la puerta de
+entrada al bloque. 
 
 —¿Demelza? - dijo Tina, metiéndose el móvil en el bolsillo y bajando
 las escaleras de dos en dos.
 
-—¿Te han...? - comenzó a decir Demelza, pero Tina se abalanzó sobre
-ella y le dio un abrazo, chillando a la vez.
+—¿Te han...? - comenzó a decir Demelza, pero Tina la acalló abalanzándose sobre
+ella y dándole un abrazo, chillando a la vez.
 
 El agente de la puerta y Cecilio se miraron, el primero con una
 sonrisa socarrona. Cecilio se rascó el círculo depilado
-involuntariamente y en continuo aumento de su cabeza. Quique, que
+involuntariamente y en continuo aumento de la parte más alta de su cabeza. Quique, que
 estaba por los alrededores, se asomó al portal y le hizo un gesto
 inquisitivo con la cabeza, levantándola, seguido por otro señalando con
 la barbilla a la amalgama de dos chicas. Cecilio abrió las manos
@@ -954,7 +960,7 @@ la cabeza indicándole que se largara.
 
 ## Vuelta al ruedo
 
-—¿Quién es la muerta? - preguntó Roble.
+—¿Quién es la muerta? - preguntó Roble por teléfono. 
 
 —Ainhoa González Tovar -, dijo Cecilio, mirando a cierta distancia el
 DNI que cogía con los guantes.
