@@ -10,10 +10,14 @@
 —¿Cuál? - le contestó Roble, sin dejar de teclear con los dos
 pulgares en su móvil.
 
-—Como, ya sabes -, hizo una pequeña pausa. Roble siguió tecleando.
+—Como, ya sabes -, dijo Cecilio, haciendo una pequeña pausa. Roble
+siguió tecleando.
+
+Cecilio suspiró.
 
 —El que está introducido en el tercer espacio intercostal de la
-víctima - dijo, chasqueando la lengua.
+víctima -, continuó, chasqueando la lengua.
+
 Roble puso la boca en posición de "Ah", pero no dijo nada.
 
 —No estarás poniendo nada de esto -, dijo, haciendo un gesto señalando a su
@@ -24,9 +28,11 @@ encontraba sentado.
 
 —No -, respondió Roble.
 
-—Ah. Vayamos a pollas-, volvió a sentarse Cecilio, el mayor de los
-dos. Una vez hundido en el sillón, se cerró el abrigo sobre las
-rodillas. Eran cerca de las diez de la mañana de un día de enero, estaba
+—Ah. Vayamos a pollas-, dijo Cecilio. Volvió a sentarse, haciendo un
+gesto de cansancio. Una vez hundido en el sillón, se cerró el abrigo sobre las
+rodillas. 
+
+Eran cerca de las diez de la mañana de un día de enero, estaba
 nublado y la temperatura en el interior del piso era escasamente
 diferente de la que hacía al final de la carretera de la Sierra. En
 ninguno de los dos casos tenía más de una cifra significativa. 
@@ -34,7 +40,7 @@ ninguno de los dos casos tenía más de una cifra significativa.
 —Realmente... - Dijo Roble, levantando la cara del móvil y
 poniendo una expresión similar a esta :-) - ¿Qué cuchillo? 
 
-—El de la muerta. - Hizo una pausa e intentó levantarse de nuevo,
+—El de la muerta -, dijo Cecilio. Hizo una pausa e intentó levantarse de nuevo del sillón,
 sin lograrlo. - Espera, ¿qué coño has puesto? Afú, qué tropa.  
 
 Roble aprovechó la pausa para dejar el móvil en su
@@ -42,10 +48,11 @@ regazo y hacer copa con las manos para calentárselas.
 
 —Nada -, dijo Roble, mientras pensaba "sólo un poco de #escenadelcrimen en Instagram".  Ya tenía más 
 de veinte *me gusta*. Cecilio hizo un esfuerzo para intentar ver qué era lo que
-había en la pantalla. Se distinguían borrones rojos y figuras
+había en la pantalla del móvil de Roble. Se distinguían borrones rojos y figuras
 geométricas de color naranja. Poco más. Ninguna cara, nada
 distintivo que permitiera reconocer ni al sitio, ni a la
-víctima. Menos mal. 
+víctima. Menos mal. Si al final el miedo que le tenía el Roble este a
+la sangre y carnicería iba a ser una suerte. 
 
 —Cuidao con la polla... - Frunció ligeramente el ceño haciendo minería de
 datos de sus memorias de la academia de policía, casi treinta años
@@ -59,8 +66,8 @@ golpeado dos veces sobre sus pantallas, hecho *me gusta* sobre las
 fotos que el avatar de Roble había subido; Roble vio que llevaba veinticinco ya. Y en Twitter
 casi los mismos, con el doble de RTs.  
 
-—Lo que te decía, el cuchillo. De Ikea. - retomó el tema Cecilio, haciendo que el ritmo de tecleo
-de Roble variara.
+—Lo que te decía, el cuchillo. De Ikea, - retomó el tema Cecilio, haciendo que el ritmo de tecleo
+de Roble variara de forma perceptible. 
 
 —[Gynnsam](http://www.ikea.com/es/es/catalog/products/50134950/)-,
 dijo Roble, esforzándose en hacer una *n* lo suficientemente larga
@@ -104,13 +111,14 @@ Roble seguía moviendo los dedos y golpeando la pantalla del móvil.
 —El app de Ikea. No funciona -, dijo Roble, que seguía pegado al
 teléfono.- Normal.  
 
-Era normal que no funcionara cuando la prístina forma de un cuchillo
+Era normal que no funcionara cuando la prístina forma óptima de un cuchillo
 diseñado por ingenieros industriales suecos estaba cubierto por todo
 tipo de sustancias orgánicas.  A los algoritmos de análisis de imagen
-les daba un pequeño ataque.
+les daba un pequeño ataque y el app de reconocimiento de productos de
+Ikea decidía renunciar a dar un vaticinio sobre el producto. 
 
 —¿Hay un app para eso? - Preguntó Cecilio, curioso. - ¿Para saber qué
-cosa de Ikea es?
+cosa de Ikea es un cuchillo o lo que sea?
 
 —Hay apps para *todo* -, señaló al mueble que sostenía la televisión -
   [Byaaas](http://www.ikea.com/es/es/catalog/products/80227797/). - 
@@ -207,7 +215,7 @@ Clínico le preguntaremos. Pero vamos, que no.
 
 —Mira las fotos. El cuchillo.
 
-—Espera. - Pasó el dedo unas cuantas veces por el móvil - Un
+—Espera -, dijo Roble. Pasó el índice unas cuantas veces por el móvil - Un
 [ñistra](http://www.ikea.com/es/es/catalog/products/00149317/). 
 
 —La posición del cuchillo, el ángulo, - hizo movimientos de Bates
@@ -236,7 +244,9 @@ miran, Ángulo, altura, ese tío tan largo es culpable, ese no.
 
 —Qué -, contestó Cecilio, apoyando el puño sobre su muslo. 
 
-—Quique. El periodista. - Aparentemente, Quique había visto que Roble había hecho check-in en
+—Quique. El periodista. 
+
+Aparentemente, Quique había visto que Roble había hecho check-in en
 FourSquare en el barrio y me acaba de poner un *me gusta* en él. - Viene.
 
 —Cuidao con la polla y con el chismecico. Porque se ha enterado por el
@@ -253,7 +263,7 @@ morros -, le contestó Cecilio.
 Roble no dijo nada y siguió golpeando con la yema de los dedos y la
 ocasional uña la pantalla de su móvil, cambiando de aplicación.
 
-—Mira, dicen que... - movió el
+—Mira, dicen que... - Movió el
 pulgar verticalmente, pasando algo por la pantalla - el color de la
 sangre - movió pulgar y corazón, ampliando algo - indica que... es auténtica.
 
