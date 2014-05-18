@@ -367,18 +367,18 @@ Consejos para una huida
 -----
 {: .writer}
 
-La gente piensa que lo más importante a la hora de huir es moverse muy
-rápidamente. No tienen ni idea. Lo más parecido a una huida que conocen es
+La gente piensa que el factor más importante cuando te encuentras en la
+condición de fugitivo es la velocidad del movimiento. No tienen ni idea. Lo más parecido a una huida que conocen es
 cuando han escapado de un ex cambiándose de acera.
 
 Lo más importante es no mearse. 
 
-Tener ganas de mear significa no poder estar centrado en el asunto entre manos
+Tener ganas de mear significa no poder centrarse en el asunto entre manos
 para concentrarse en el asunto entre piernas. Significa que tienes que
 pararte. O significa que tienes que llevar un pañal.
 
 ¿Qué pasa? La gente lleva pañal. Es un inconveniente, pero no tanto
-como mearse encima. Es la diferencia entre ser un hediondo y no
+como el haberse meado encima. Es la diferencia entre ser un hediondo y no
 serlo. 
 
 Pero lo mejor es no tener que hacérselo ni encima ni en el pañal.
@@ -1109,31 +1109,39 @@ La ciudad de mi infancia. Barbate. Tú sales de ella, para siempre, pero ella no
 No te estoy diciendo esto, en realidad. Lo estoy pensando. Tampoco lo
 estoy pensando, lo está pensando un personaje. Y todo esto te da igual
 porque no has estado nunca ni en Larache ni en Barbate. Los dos se
-parecen un poco a Algeciras, donde llego y devuelvo el coche
+parecen un poco a Algeciras, a donde llego y devuelvo el coche
 alquilado, que son unos geniales vehículos con la anonimidad
-programada de serie. En Barbate no había donde alquilar coches, pero
-los olores, la luz, el aire que sopla durante semanas y hace que la
-gente se vuelva loca o que hace que no haya nada que echarse a la boca
-si no haces algo que, si la cosa viene mal dada, te pondrá enfrente de
+programada de serie. Nadie repara en un coche alquilado. No tiene nada
+personal, nada distinguible, colores anodinos, ninguna pegatina de
+equipo de fútbol, nada. Olvidables. 
+
+En Barbate no había donde alquilar coches, pero
+los olores, la luz, el Levante que sopla durante semanas y hace que la
+gente se vuelva loca o que no haya nada que echarse a la boca
+si no te metes en algo que, si la cosa viene mal dada, te pondrá enfrente de
 un juez. 
 
-Y luego enfrente de una puerta grande con las palabras Prisión Provincial encima, aunque cuando entras lo haces en una furgoneta y no llegas a verlo, ni siquiera cuando pasas al otro lado. Sólo hay rejas y tedio y gente que sabe mucho y otras que ignoran hasta el planeta en el que viven. Como en cualquier otro sitio, en el ferry que me llevará a mi casa. 
+Y más tarde enfrente de una puerta grande con las palabras Prisión Provincial encima, aunque cuando entras lo haces en una furgoneta y no llegas a verlo, ni siquiera cuando pasas al otro lado. Sólo hay rejas y tedio y gente que sabe mucho y otras que ignoran hasta el planeta en el que viven. Como en cualquier otro sitio, en el ferry que me llevará a mi casa. 
 
 Pero allí me hice la persona que soy.
 
-Lo que también es mentira. Porque me hice lo que soy allí, aquél día en clase de lengua y literatura en el que presté atención, un día que me saqué mocos y no me vio nadie y cuando me tomé mi primer café.
+Lo que también es mentira. Porque me hice lo que soy allí, aquél día
+en clase de lengua y literatura en el que presté atención, otro día
+que me saqué mocos y no me vio nadie y cuando me tomé mi primer
+café. ¿Tú recuerdas el día que te tomaste el primer café? ¿No? Por eso
+no eres escritor. Yo sí. 
 
 Y es que nadie recuerda su primer café. ¿Por qué recuerdan su primer
 beso y su primer polvo y no su primer café? Ese primer café fue el que
 te inició en una vida de adicción y de electrodomésticos y de
 psiconáutica cafeínica que durará toda tu vida. El que hizo que,
 veinte años más tarde, fueras incapaz hasta de hacerte un café hasta
-que no te hicieras el primer café. Pero nadie se acuerda. Y el primer
+que no te tomaras el primer café. Pero nadie se acuerda. Y el primer
 café sí que te hace la persona que eres. No la cárcel.  
 
 Pero sí hay una posibilidad, quizás remota, de que yo no hubiera sido
-escritor si no hubiera estado en la cárcel. Si la costa del Atlántico
-y el Levante no me hubieran colocado enfrente de un juez. Si no
+escritor si no hubiera estado en la cárcel. Si la costa del Atlántico,
+la miseria y ese aire malhadado que viene del Este no me hubieran colocado enfrente de un juez. Si no
 hubiera tirado con un tirachinas un rodamiento de bolas a un
 helicóptero de vigilancia aduanera. Mira, como ese que se ve. Por
 babor. 
@@ -1547,14 +1555,27 @@ ella algo si se lo permitía. Le mandó un mensaje de vuelta.
 “Estoy ahí en quince minutos.“
 
 ## Sombreros
+{: writer}
 
 Es que tampoco tengo gustos complicados. Por eso Miriam, cuando llego, no hace nunca nada complicado. Eso sí, lo hace siempre que se lo digo. Mañana, tarde o noche. Cualquier necesidad que un hombre pueda tener. O creer tener. 
 
-Quizás me ame. Pero, sinceramente, no es algo que me preocupe. El amor es una necesidad complicada. En la cárcel aprendí a no tenerlas. Las necesidades complicadas causaban, de forma totalmente natural, muchas complicaciones. Y en la cárcel casi todas las necesidades eran complicadas. El tabaco era complicado. El sexo era complicado. La soledad y la compañía, todo era complicado. El tedio era complicado, lo era la excitación. 
+Quizás me ame. Pero, sinceramente, no es algo que me preocupe. El amor
+es una emoción complicada, que crea necesidades
+complicadas. Presencia, afecto, reciprocidad. 
 
-A la ausencia de todo deseo le llaman los japoneses *zen*. No aspiro a tanto. Yo deseo. Deseo publicar, ver en un escaparate los libros del Escritor. Y para cumplir ese deseo, y que se siga cumpliendo, a veces hay que desear otras cosas y a veces son complicadas. Deseo que Demelza muera, porque así me lo han pedido, y es la condición para cumplir mis otros deseos.
+Necesiadades complicadas. En la cárcel aprendí a no tenerlas. Las
+necesidades complicadas causaban, de forma totalmente natural,
+inherente, intrínseca, muchas complicaciones. Y en la cárcel casi
+todas las necesidades eran complicadas. El tabaco era complicado. El
+sexo era complicado. La soledad y la compañía, todo era complicado. El
+tedio era complicado, lo era la excitación.  Había, por tanto, que
+aprender a evitarlas, a controlarlas, a esquivarlas. Las necesidades
+crean deseos, los deseos encesidades. 
 
-Pero ahora deseo olvidarme de todo ello por unos momentos. Y no es un deseo complicado, porque estoy en Larache y en Larache está Miriam. 
+A la ausencia de todo deseo le llaman los japoneses *zen*. No aspiro a tanto. Yo deseo. Deseo publicar, ver en un escaparate los libros del Escritor. Y para cumplir ese deseo y que se continúe cumpliendo, a veces hay que desear otras cosas y a veces son complicadas. Deseo que Demelza muera, porque así me lo han pedido y es la condición para cumplir mis otros deseos.
+
+Pero ahora deseo olvidarme de todo ello por unos momentos. Y no es un
+deseo complicado, porque estoy en Larache y en Larache está Miriam.  
 
 ## Mientras tanto, en un lugar de la periferia granadina
 
@@ -2607,7 +2628,7 @@ interrogatorios al detenido, preguntó al agente
 
 Uno de los aspectos desagradables de ser escritor es la cantidad de
 bazofia que tiene uno la obligación de leer. No me refiero a lo que escriben mis
-dilectos colegas. No es que no sea bazofia, es que no tiene uno
+ínclitos colegas. No es que no sea bazofia, es que no tiene uno
 ninguna obligación de leerlo. Si acaso, para adoptar y adaptar alguna
 idea que parezca interesante y que ellos hayan sido incapaces de
 desarrollar en toda sus posibilidades. 
@@ -3057,10 +3078,10 @@ capitalista del que alegremente forman parte?
 
 Además, ¿no les sirve la propia muerta, la verdadera muerta? Es pregunta retórica. No les
 sirve, porque si les hubiera servido me habrían dirigido hacia ella,
-no hacia Demelza. Tan chalada y escritora como ella, según he leído en
-los absurdos panegíricos que se han publicado sobre ella. ¿De qué escribiría? Lo podría
+no hacia Demelza. Les podría servir, porque es tan chalada y escritora como ella, según he leído en
+los absurdos panegíricos que se han publicado. ¿De qué escribiría? Lo podría
 averiguar pero, ¿para qué? Otra orate juntaletras difunta. No será la
-última. Ni la última por mi mano.
+última. Ni la última por mi mano. 
 
 Al menos a la muerta verdadera hay que agradecerle el buen humor con el que se tomó
 todo el tema. Los profesionales agradecemos eso en los clientes. Se
@@ -3661,10 +3682,10 @@ en la puerta.
 {: writer}
 
 Aunque no necesito hacerlo, o quizás precisamente por ello, me gusta
-pasear por el zoco. No como el viejo que va buscando el bullicio, ni
+pasear por el zoco de Larache. No como el viejo que va buscando el bullicio, ni
 como el descuidero que va buscando monederos unidos de forma endeble a
 sus propietarios, ni como las amas de casa locales, que van buscando
-algo que comprar. O quizás como estas últimas. Buscas gente con hambre
+algo que echar al tajine. O quizás como estas últimas. Buscas gente con hambre
 y por tanto con talento. Turistas, sobre todo. Los de Larache que
 tienen talento no tienen hambre  los que tienen hambre pero no talento
 no me sirven. Los únicos que son capaces de, con talento, tener hambre
@@ -4449,8 +4470,8 @@ foto de algún graffiti surgido en la última noche.
 
 El traqueteo y bullicio en el tren hasta Alcazarquivir ayudó considerablemente
 a que se asentara en mi un estado que, si no era equivalente a la
-calma, al menos se acercaba lo suficiente para que mi amigo Abdelatif
-Akalay me lo devolviera. La paciencia necesaria para emprender un
+serenidad, al menos se acercaba lo suficiente para que mi amigo Abdelatif
+Akalay me colocara con plenitud en ella. La paciencia necesaria para emprender un
 viaje que empieza cuando parte el tren y termina cuando llega, sin
 tener la más mínima pista de cuando va a suceder lo primero ni lo
 segundo, también me situó en un estado mental adecuado para lo que
@@ -4611,7 +4632,8 @@ Escritor, el libro que se está escribiendo. Porque uno escribe para que le quie
 
 Y estos lituanos son incapaces de proporcionármela. Lo tendré que hacer yo solo. La epifanía que tuve en presencia de Abdelatif, o por mediación de Abdelatif, se reveló en ese momento en toda su extensión. Hay lo que hay.
 
-Y lo que no hay es dinero para ir hasta allí en una línea aérea regular. 
+Y lo que no hay es dinero para ir hasta allí en una línea aérea
+regular. Como lo que soy. Un señor. 
 
 ## Correos y farmacias
 
@@ -4816,6 +4838,30 @@ YouWriteNow, por lo pronto, estaría satisfecho. Roble, por el momento, también
 
 Todavía había un asesino suelto. Y Nacho en el garaje. Pero en ese momento Roble no pensaba en ellos. 
 
+## Qué coño hago yo en Dinamarca
+
+Una vez que uno se hace a la idea de volar de cualquier manera, sigue
+siendo una forma elevada de hastío, pero al menos se hace uno a la
+idea, sobre todo si lo que deseas en la vida es no tener necesidades
+complicadas. Lo que en sí y acabo de darme cuenta de esto, es una
+necesidad complicada.
+
+Pero no deja de ser verdad que esas horas en el que el asedio de los
+azafatos devenidos en agentes de ventas de teletienda no cesa y el
+sueño no llega son propicios a la reflexión. Reflexión que me lleva a
+pensar que una escritora que estudia y que huye a Lituania no debe, no
+debería, mostrar tal pericia evadiendo a dos contratistas del
+delito. La incompetencia sucede en este gremio como en el de los
+demás. Pero como en el mundo de los pinzones de Darwin, solo
+sobreviven los más fuertes, los más capaces. La incompetencia va
+siendo eliminada de las especies hasta que sólo quedan los
+profesionales más eficientes, los que ofrecen una mejor calidad a un
+menor precio.
+
+Como yo. Que me pregunto en este momento que me ha dejado el avión en
+tierra qué diablos hago ahora en Aalborg. O quizás ni ahí, pero en un
+punto determinado de Jutlandia, lejos de casi todo. Corrijo cuando me
+acerco a la cristalera que separa la terminal del paisaje: de todo. 
 *seguir*
 
 ## Y una webserie
