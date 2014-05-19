@@ -4839,6 +4839,7 @@ YouWriteNow, por lo pronto, estaría satisfecho. Roble, por el momento, también
 Todavía había un asesino suelto. Y Nacho en el garaje. Pero en ese momento Roble no pensaba en ellos. 
 
 ## Qué coño hago yo en Dinamarca
+{: writer}
 
 Una vez que uno se hace a la idea de volar de cualquier manera, sigue
 siendo una forma elevada de hastío, pero al menos se hace uno a la
@@ -4862,7 +4863,33 @@ Como yo. Que me pregunto en este momento que me ha dejado el avión en
 tierra qué diablos hago ahora en Aalborg. O quizás ni ahí, pero en un
 punto determinado de Jutlandia, lejos de casi todo. Corrijo cuando me
 acerco a la cristalera que separa la terminal del paisaje: de todo. 
-*seguir*
+
+
+## Vuelta
+{: writer}
+
+Me habría gustado volver a Vilnius. Una vez estuve allí. No, en
+realidad no estuve. Era de ese tipo de misiones de las FML que
+incluían una cláusula de no revelación de secretos. En realidad, todas
+las misiones de las fuerzas militares del bueno de Lopezosa la
+incluían. Pero en esta especificaban claramente cuanto tardarían un
+par de Spetsnaz en matarte tras tortura y qué instrumentos usarían si
+es que revelabas tu participación.
+
+Que, por otra parte, consistió en ocupar unos cuantos edificios del
+gobierno haciéndonos pasar por prorrusos como paso previo a una
+invasión que, finalmente, no sucedió. No me preguntéis por qué. No
+porque no pueda decírloslo, sino porque es que realmente no tengo ni
+idea. Un buen día nos sacaron de allí, nos montaron en un autobús y
+nos llevaron en Minsk, donde nos recogieron todo el aparataje y nos
+dieron unos macutos y unos billetes para devolvernos a donde nos diera
+la gana. Más tarde recibimos, en mano por parte de un mocetón con los
+ojos muy juntos, un sobre lleno de yuanes y ni una palabra. El mensaje
+estaba claro: sabemos como localizarte. Por si algún día estás
+demasiado bebido o enchochado y se te ocurre hablar. Que no es lo que
+estoy haciendo. Porque no vais a decir nada, ¿verdad? 
+
+Necesidades simples. 
 
 ## Y una webserie
 
