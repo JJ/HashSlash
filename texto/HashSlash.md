@@ -1563,14 +1563,14 @@ Quizás me ame. Pero, sinceramente, no es algo que me preocupe. El amor
 es una emoción complicada, que crea necesidades
 complicadas. Presencia, afecto, reciprocidad. 
 
-Necesiadades complicadas. En la cárcel aprendí a no tenerlas. Las
+Necesidades complicadas. En la cárcel aprendí a no tenerlas. Las
 necesidades complicadas causaban, de forma totalmente natural,
 inherente, intrínseca, muchas complicaciones. Y en la cárcel casi
 todas las necesidades eran complicadas. El tabaco era complicado. El
 sexo era complicado. La soledad y la compañía, todo era complicado. El
 tedio era complicado, lo era la excitación.  Había, por tanto, que
 aprender a evitarlas, a controlarlas, a esquivarlas. Las necesidades
-crean deseos, los deseos encesidades. 
+crean deseos, los deseos necesidades. 
 
 A la ausencia de todo deseo le llaman los japoneses *zen*. No aspiro a tanto. Yo deseo. Deseo publicar, ver en un escaparate los libros del Escritor. Y para cumplir ese deseo y que se continúe cumpliendo, a veces hay que desear otras cosas y a veces son complicadas. Deseo que Demelza muera, porque así me lo han pedido y es la condición para cumplir mis otros deseos.
 
