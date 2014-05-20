@@ -4879,7 +4879,7 @@ es que revelabas tu participación.
 Que, por otra parte, consistió en ocupar unos cuantos edificios del
 gobierno haciéndonos pasar por prorrusos como paso previo a una
 invasión que, finalmente, no sucedió. No me preguntéis por qué. No
-porque no pueda decírloslo, sino porque es que realmente no tengo ni
+porque no pueda decíroslo, sino porque es que realmente no tengo ni
 idea. Un buen día nos sacaron de allí, nos montaron en un autobús y
 nos llevaron en Minsk, donde nos recogieron todo el aparataje y nos
 dieron unos macutos y unos billetes para devolvernos a donde nos diera
