@@ -4891,6 +4891,66 @@ estoy haciendo. Porque no vais a decir nada, ¿verdad?
 
 Necesidades simples. 
 
+## La CIA y el librero
+{:writer}
+
+Os voy a hacer una pregunta. ¿Qué servicio de espionaje llega hasta el
+último lugar del planeta? ¿Y puede saber la vida, los hábitos, los
+sentimientos más profundos de todos los seres vivos? 
+
+La CIA.
+La FSB.
+La guardia vaticana.
+La industria editorial.
+
+No, la última no es la respuesta que se pone en los ejercicios de
+elección múltiple para descartarla automáticamente y que todo sea más
+fácil. Es la respuesta correcta. 
+
+De los tres primeros no había ni rastro en el aeropuerto de
+Aalborg. Ni, de hecho, del vuelo que me tenía que llevar por unos
+pocos euros a Estocolmo y de ahí a Vilnius. O cerca. No me
+indigné cuando supe de la cancelación del vuelo, o más bien lo deduje
+cuando no aparecía entre la media docena de vuelos de los carteles
+anunciadores y siguió sin hacerlo durante una hora. No me indigné,
+porque hay lo que hay. Y lo que no había era vuelos que pudieran
+engarzar con otros vuelos que me llevaran a mi destino.
+
+Lo que había, además, era una posibilidad muy remota de que
+efectivamente Demelza estuviera allí a dónde me planteaba ir. El cómo había conseguido
+mostrarse allí se me escapaba, pero quizás tenía que ver con el hecho
+de que toda su *presencia* había sido electrónica y no hay nada más
+fácil que falsificar algo *electrónicamente*.
+
+Así que había unas horas en un
+[aeropuerto](http://en.wikipedia.org/wiki/Aalborg_Airport) repleto, y
+a continuación vacío, de nórdicos de faces rubicundas, camisas de
+flores y bermudas acompañadas de sandalias con calcetines a juego. Un
+vaivén que me serenaba y me provocaba un tedio aliviado ligeramente
+por alguna belleza nórdica peripatética. Un alivio escaso y aleatorio
+que me llevó a buscar uno algo más permanente en forma de un libro. 
+
+Me habría gustado leer algún libro mío. Algunos están traducidos al
+danés. Alguno. «La magdalena templaria», creo recordar. Una gran
+historia, sobre un jardinero portugués que encuentra un mensaje
+cifrado en los papeles que envolvían unas magdalenas caducadas. Es una
+historia que posee todos los ingredientes para ser un éxito: harina,
+aceite de oliva y unos cuantos aditivos misteriosos y posiblemente
+cancerígenos. Pero ni ese ni ningún otro estaban en el stand de
+prensa, revistas ahíto de bestsellers y libros de autoayuda. Me
+incliné por los primeros. Siempre es instructivo ver qué hacen tus
+compañeros y, de ninguna manera, amigos.
+
+Compré uno, el más grueso. «Por favor, no se olvide del ticket», debió
+decir el tendero tras escanear mi tarjeta de embarque; sólo entendí
+ticket, pero en las últimas líneas del ticket, entre números
+incomprensibles y despedidas amistosas.
+
+«Escritor: Julia Matesanz Vázquez. Madrid.»
+
+¿Qué red de espionaje llega hasta el último lugar del planeta? Piensa
+de nuevo. O piensa, si es que no lo has hecho ninguna vez antes.
+
 ## Y una webserie
 
 —De animación, por supuesto-, dijo Demelza. 
