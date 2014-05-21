@@ -149,7 +149,8 @@ de emitir el tono que indicaba la llegada de algún tipo de mensaje.
  que este chisme también hace eso? - preguntó, mostrándolo en alto y
  señalándolo. Roble, como contestación, asintió. 
  
-Cecilio volvió al cabo de un minuto. Sus zapatos se pegaban al suelo,
+Cecilio volvió al cabo de un minuto. A sus zapatos les costaba trabajo
+despegarse del suelo,
 recubierto de una sustancia pegajosa compuesta de capas de mugre y de
 diversos hidratos de carbono depositados de forma más o menos uniforme
 en el suelo tras caer de los vasos y manos de los asistentes a la
@@ -819,19 +820,23 @@ atrás.  Escucha oportunista que, pensó Roble, las redes sociales nunca podría
 emular. Legalmente, al menos.
 
 —No, los vídeos son muy de principio de década. Ahora lo que la peña
-demanda es el texto, ¿sabes?. Más portable, más ubicuo, más profundo,
+demanda es el texto, ¿sabes? Más portable, más ubicuo, más profundo,
 más modos de
-interacción. Más largo, más oportunidades de interacción, más
+interacción. Más largo, más oportunidades de interactividad, más
 posibilidades de viralidad, ¿no?
 
-Su compañero o compañera emitió un sonido para indicar continuidad en la
+Su compañero o compañera emitió un sonido para indicar reconocimiento de continuidad en la
 comunicación. Quien hablaba, una persona que, por la voz, podría tener
-tanto la edad de Cecilio como la de Roble como una situada entre las dos, continuaba. Las gafas de
+tanto la edad de Cecilio como la de Roble como una cualquiera situada
+entre las dos, continuaba. 
+
+Mientras tanto, las gafas de
 Roble habían recolectado las firmas electrónicas de todos los
 pasajeros del autobús y ya
 sabía, al menos, si se había encontrado con ellos alguna vez. Con un
-poco de suerte, podía tener alguna información adicional y asociar la
-firma electrónica a una persona. 
+poco de suerte, podía captar alguna información adicional y asociar la
+firma electrónica a una persona. Y eso, a su vez, se almacenaba para
+cuando pudiera resultar útil. 
 
 —No requiere nada, en realidad. Un vídeo son tres minutos, y luego es
 como, ahora qué veo,
