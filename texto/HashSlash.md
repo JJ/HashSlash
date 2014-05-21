@@ -4946,10 +4946,60 @@ decir el tendero tras escanear mi tarjeta de embarque; sólo entendí
 ticket, pero en las últimas líneas del ticket, entre números
 incomprensibles y despedidas amistosas.
 
-«Escritor: Julia Matesanz Vázquez. Madrid.»
+«A Escritor: Julia Matesanz Vázquez. Madrid.»
 
 ¿Qué red de espionaje llega hasta el último lugar del planeta? Piensa
 de nuevo. O piensa, si es que no lo has hecho ninguna vez antes.
+
+## Deudas pendientes
+{:writer}
+
+Y la ventana de comunicación con los matarifes llegó. 
+
+Y la ventana de comunicación no pasó.
+
+Los llamé desde una cabina que todavía funcionaba con monedas, en un
+pasillo lóbrego al que daban también varias puertas sin marcar. Tras
+las palabras clave de rigor, una frase que no esperaba oir. 
+
+—Hemos pillado una enfermedad incurable, tío.
+
+Es decir, hemos asesinado al objetivo. Si sólo hubiera salido
+malherida, habría sido una enfermedad leve.
+
+—No sabes cuanto lo siento, Bohdan. 
+
+Y lo cierto era que lo sentía. Lo sentía porque no me lo esperaba y no
+me gustan las cosas inesperadas. Y lo sentía porque ahora tendría que
+pagarles lo prometido. Y también oía en algún lado a mi sargento, jefe
+de proyecto se le llamaba en los presupuestos que las FML presentaban,
+«No te fíes de nadie y mucho menos del enemigo». Por eso la palabra no
+basta, nunca basta.
+
+—Me han llegado las pruebas hoy. Te las mando con Borís. 
+
+Es decir, me llegarían unas cuantas imágenes cifradas en un mensaje
+que, para casi cualquiera, parecería un correo basura que trataba de
+hacerse con las claves de uno y que se mandaba masivamente a
+muchísimas direcciones. Ninguna de las cuales sabía descifrar el
+mensaje y alguno de cuyos usuarios, quizás, quién sabe, picara y mira,
+un dinero que podrían obtener.
+
+—La familia está para ayudar. Cuando sepas en qué habitación estáis en
+el hospital, me lo comunicáis. 
+
+Cuentas, coordenadas, todo eso. Pero a estas alturas ya lo sabéis,
+¿no?
+
+Así continuamos un rato, preguntando por diferentes familiares
+inexistentes y todos con los nombres lituanos más comunies que pudimos
+encontrar.
+
+Me sentí, al terminar, un poco aliviado. Capítulo terminado antes de
+empezar el siguiente. 
+
+Sólo deseaba, que en este caso, fuera de verdad un *The End*. No un
+continuará. 
 
 ## Y una webserie
 
