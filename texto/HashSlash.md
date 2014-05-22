@@ -4737,7 +4737,7 @@ móvil.
 
 Hay personas, o instituciones, o empresas, que están creadas por
 personas, digo, hay personas en el mundo cuyo único propósito en la
-vida parece ser banalizar todo lo que pueda poseer glamour u ofrecer
+vida parece ser banalizar todo lo que pueda emanar glamour u ofrecer
 una brizna de lujo a las grises y uniformes vidas de los
 mortales. Crear diamantes en una fábrica, en vez de en las entrañas de
 la Tierra. Cruceros con bufé libre, en vez del oropel de las comidas a
@@ -4746,11 +4746,15 @@ iceberg.
 
 Y volar. 
 
-Elevarse por los aires, surcar las nubes, cabalgar los vientos puede ser lujoso, cómodo, una experiencia guardada en los
+Elevarse por los aires, surcar las nubes, cabalgar los vientos solía ser lujoso, cómodo, una experiencia guardada en los
 anaqueles de la memoria en ese sitio feliz al que uno va cuando su entorno o
-circunstancias se lo aconsejan. Pues el señor Ryan, el señor Easy y
+circunstancias se lo aconsejan, y en mi caso me lo aconsejaban unos
+diez minutos después de pasar la hora de visitas en la cárcel o el
+hospital. 
+
+Pues el señor Ryan, el señor Easy y
 algunos otros señores se han dedicado a extraer de ellos cualquier
-brizna de comodidad, de tranquilidad. 
+brizna de comodidad, de serenidad. 
 
 De pudor.
 
@@ -4759,17 +4763,17 @@ nunca, si las circunstancias hubieran sido otras, habría querido
 visitar, salvo bajo contrato de las FML con el objetivo de partir unas
 cuantas crismas locales. Me ofrecía cierto consuelo el hecho que, de ese país, iba a
 conocer sólo datos tales como si los guardias de fronteras, si es que
-todavía tenían, usaran gorras perfectamente circulares u
-ovoides. Algunos países lo más que pueden ofrecerte es una estancia
+todavía tenían, usaban gorras perfectamente circulares o por el
+contrario se inclinaban por las hexagonales. Algunos países lo más que pueden ofrecerte es una estancia
 breve y aislada en un aeropuerto breve y aislado de los que suele
 frecuentar Ryanair.
 
-Cuando los frecuenta, claro, y no cancela sin ningún pudor el vuelo
+Cuando los frecuenta, claro, y no cancela sin recato el vuelo
 alegando escasez de pasaje. Cosa, por otro lado, totalmente
 natural. ¿Quién va a querer volar al lago Balatón en pleno mes de
 enero? Uno se lo imagina azotado por las ventiscas, con el esqueleto grisáceo
 de un navío gangrenado deshaciéndose en sus orillas, y sombras
-oscilantes que, en la distancia, pueden ser icebergs o algún
+oscilantes que, en la distancia, pueden ser icebergs; o algún
 francotirador soviético buscando capitalistas que matar por desconocer
 que la guerra fría terminó, empezó y al parecer terminó de nuevo.
 
@@ -4973,7 +4977,7 @@ Pero eso no lo hacía automáticamente un criminal.
 ## Vuelta
 {: writer}
 
-Me habría gustado volver a Vilnius. Una vez estuve allí. No, en
+Me habría gustado volver a Vilna. Una vez estuve allí. No, en
 realidad no estuve. Era de ese tipo de misiones de las FML que
 incluían una cláusula de no revelación de secretos. En realidad, todas
 las misiones de las fuerzas militares del bueno de Lopezosa la
@@ -5057,7 +5061,7 @@ fácil. Es la respuesta correcta.
 
 De los tres primeros no había ni rastro en el aeropuerto de
 Aalborg. Ni, de hecho, del vuelo que me tenía que llevar por unos
-pocos euros a Estocolmo y de ahí a Vilnius. O cerca. No me
+pocos euros a Estocolmo y de ahí a Vilna. O cerca. No me
 indigné cuando supe de la cancelación del vuelo, o más bien lo deduje
 cuando no aparecía entre la media docena de vuelos de los carteles
 anunciadores y siguió sin hacerlo durante una hora. No me indigné,
