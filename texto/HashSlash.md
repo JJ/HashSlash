@@ -10,10 +10,14 @@
 —¿Cuál? - le contestó Roble, sin dejar de teclear con los dos
 pulgares en su móvil.
 
-—Como, ya sabes -, hizo una pequeña pausa. Roble siguió tecleando.
+—Como, ya sabes -, dijo Cecilio, haciendo una pequeña pausa. Roble
+siguió tecleando.
+
+Cecilio suspiró.
 
 —El que está introducido en el tercer espacio intercostal de la
-víctima - dijo, chasqueando la lengua.
+víctima -, continuó, chasqueando la lengua.
+
 Roble puso la boca en posición de "Ah", pero no dijo nada.
 
 —No estarás poniendo nada de esto -, dijo, haciendo un gesto señalando a su
@@ -24,9 +28,11 @@ encontraba sentado.
 
 —No -, respondió Roble.
 
-—Ah. Vayamos a pollas-, volvió a sentarse Cecilio, el mayor de los
-dos. Una vez hundido en el sillón, se cerró el abrigo sobre las
-rodillas. Eran cerca de las diez de la mañana de un día de enero, estaba
+—Ah. Vayamos a pollas-, dijo Cecilio. Volvió a sentarse, haciendo un
+gesto de cansancio. Una vez hundido en el sillón, se cerró el abrigo sobre las
+rodillas. 
+
+Eran cerca de las diez de la mañana de un día de enero, estaba
 nublado y la temperatura en el interior del piso era escasamente
 diferente de la que hacía al final de la carretera de la Sierra. En
 ninguno de los dos casos tenía más de una cifra significativa. 
@@ -34,7 +40,7 @@ ninguno de los dos casos tenía más de una cifra significativa.
 —Realmente... - Dijo Roble, levantando la cara del móvil y
 poniendo una expresión similar a esta :-) - ¿Qué cuchillo? 
 
-—El de la muerta. - Hizo una pausa e intentó levantarse de nuevo,
+—El de la muerta -, dijo Cecilio. Hizo una pausa e intentó levantarse de nuevo del sillón,
 sin lograrlo. - Espera, ¿qué coño has puesto? Afú, qué tropa.  
 
 Roble aprovechó la pausa para dejar el móvil en su
@@ -42,10 +48,11 @@ regazo y hacer copa con las manos para calentárselas.
 
 —Nada -, dijo Roble, mientras pensaba "sólo un poco de #escenadelcrimen en Instagram".  Ya tenía más 
 de veinte *me gusta*. Cecilio hizo un esfuerzo para intentar ver qué era lo que
-había en la pantalla. Se distinguían borrones rojos y figuras
+había en la pantalla del móvil de Roble. Se distinguían borrones rojos y figuras
 geométricas de color naranja. Poco más. Ninguna cara, nada
 distintivo que permitiera reconocer ni al sitio, ni a la
-víctima. Menos mal. 
+víctima. Menos mal. Si al final el miedo que le tenía el Roble este a
+la sangre y carnicería iba a ser una suerte. 
 
 —Cuidao con la polla... - Frunció ligeramente el ceño haciendo minería de
 datos de sus memorias de la academia de policía, casi treinta años
@@ -59,8 +66,8 @@ golpeado dos veces sobre sus pantallas, hecho *me gusta* sobre las
 fotos que el avatar de Roble había subido; Roble vio que llevaba veinticinco ya. Y en Twitter
 casi los mismos, con el doble de RTs.  
 
-—Lo que te decía, el cuchillo. De Ikea. - retomó el tema Cecilio, haciendo que el ritmo de tecleo
-de Roble variara.
+—Lo que te decía, el cuchillo. De Ikea, - retomó el tema Cecilio, haciendo que el ritmo de tecleo
+de Roble variara de forma perceptible. 
 
 —[Gynnsam](http://www.ikea.com/es/es/catalog/products/50134950/)-,
 dijo Roble, esforzándose en hacer una *n* lo suficientemente larga
@@ -72,12 +79,11 @@ poco los ojos.
 —No, el mango es así como triangular, y no tiene las tachuelas -, dijo
 Cecilio. 
 
-Se
-levantó con el móvil en la mano y fue a la habitación donde se encontraba el cadáver. Se oyó el
+Se levantó con el móvil en la mano y fue a la habitación donde se encontraba el cadáver. Se oyó el
 chasquido de la aplicación al hacer una foto. Roble arrugó los labios y alzó
 las cejas.
 
-—Has aprendido -, dijo Roble a modo de halago. Cecilio simplemente
+—Has aprendido -, dijo Roble, y a Cecilio le sonó a halago. Cecilio simplemente
 le mostró la foto en la que aparecía un mango negro con churretes
 marrones, triangular, aparentemente hincado en un montón de tela
 también con chafarrinones negros, marrones y rojos oscuros. Rojo
@@ -94,24 +100,25 @@ mensaje del que hablaba. Efectivamente, un blog americano de crímenes
 reales le compraba las fotos. Ahora no le quedaría otro remedio que
 acercarse a la chica. O que Cecilio lo siguiera haciendo.
 
-—Sí. Novelas -, le dijo a Cecilio. 
+—Sí. Novelas -, le dijo a Cecilio, - mías. 
 
 —Pues decía no sé qué de fotos. Joder, Robles, que la policía no es
 tonta -, dijo, riéndose de su propia gracia. - Tú verás lo que haces,
 pero si te cae un paquete a mi no me líes. 
 
-Roble seguía moviendo los dedos y golpeando la pantalla el teléfono.
+Roble seguía moviendo los dedos y golpeando la pantalla del móvil.
 
 —El app de Ikea. No funciona -, dijo Roble, que seguía pegado al
 teléfono.- Normal.  
 
-Era normal que no funcionara cuando la prístina forma de un cuchillo
+Era normal que no funcionara cuando la prístina forma óptima de un cuchillo
 diseñado por ingenieros industriales suecos estaba cubierto por todo
 tipo de sustancias orgánicas.  A los algoritmos de análisis de imagen
-les daba un pequeño ataque.
+les daba un pequeño ataque y el app de reconocimiento de productos de
+Ikea decidía renunciar a dar un vaticinio sobre el producto. 
 
 —¿Hay un app para eso? - Preguntó Cecilio, curioso. - ¿Para saber qué
-cosa de Ikea es?
+cosa de Ikea es un cuchillo o lo que sea?
 
 —Hay apps para *todo* -, señaló al mueble que sostenía la televisión -
   [Byaaas](http://www.ikea.com/es/es/catalog/products/80227797/). - 
@@ -126,18 +133,21 @@ cosa de Ikea es?
   ¿verdad? 
   
 Cecilio se rió de su propia gracia. Roble volvió al móvil, que acababa
-de emitir el tono que indicaba, de nuevo, que había llegado un
-mensaje.  
+de emitir el tono que indicaba la llegada de algún tipo de mensaje. 
   
- —Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Cecilio. 
+ —Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? -
+ Le alargó el móvil a Cecilio. - ¿Huellas?
  
  —¿Y por qué no las echas tú con tu polla? - le contestó Cecilio,
  socarrón,  extendiendo la mano para recibir el
  móvil. Roble también sonrió, asumiendo la respuesta como parte de esa seña de
  identidad llamada *malafollá granaína* que todavía, después de dos
- años de destino, seguía tratando de aprender. 
+ años de destino, seguía tratando de aprender. - ¿Huellas? ¿De veras
+ que este chisme también hace eso? - preguntó, mostrándolo en alto y
+ señalándolo. Roble, como contestación, asintió. 
  
-Cecilio volvió al cabo de un minuto. Sus pies se pegaban al suelo,
+Cecilio volvió al cabo de un minuto. A sus zapatos les costaba trabajo
+despegarse del suelo,
 recubierto de una sustancia pegajosa compuesta de capas de mugre y de
 diversos hidratos de carbono depositados de forma más o menos uniforme
 en el suelo tras caer de los vasos y manos de los asistentes a la
@@ -150,9 +160,22 @@ carnicería que venía de la habitación donde la muerta,
 irremediablemente, se descomponía. Le vino una náusea pero la combatió
 al recordar que tendría que pasar por el cuarto de baño que estaba, justamente, al lado de la
 habitación donde se encontraba el cadáver. Cecilio le dio una palmada
-en la espalda, lo que casi hizo que se le volviera a salir el vómito. 
+en la espalda, lo que casi hizo que se le volviera a salir el
+vómito. El app de huellas, el apropiadamente llamado Fingar, mostraba
+una barra de progreso pequeña como las posibilidades reales de que
+encontrara algo, pero nunca se sabía. La gente iba dejándose huellas
+en los sitios más insospechados, y ligarlas a un perfil social era tan
+fácil como recolectarlas. El app valía todo el medio bitcoin que había
+pagado con él. Pero cuando había avanzado una tercera parte de la
+pantalla, el móvil vibró, dijo «Gotcha» y mostró una foto y un nombre,
+Cristina Ródenas. 
 
-—La compañera de piso -, dijo Roble. Seguía durmiendo. Dos chicas en
+—La compañera de piso -, dijo Roble. El novio de la víctima, antes de
+que hubiera que llevárselo con un ataque de ansiedad, había acertado al menos a dar unos cuantos nombres
+de personas cercanas. Y al hacer un registro a la casa, se la habían
+encontrado roncando ruidosamente en su cuarto, impertérrita. 
+
+En ese momento, casi una hora más tarde, seguía durmiendo. Dos chicas en
 un piso de tres dormitorios, que podían permitirse, imaginaba Roble, porque estaba lejos
 de cualquier facultad y prácticamente de todo. Aún así, había
 vislumbrado en las fotos mobiliario que estaba muy por encima de los
@@ -193,7 +216,7 @@ Clínico le preguntaremos. Pero vamos, que no.
 
 —Mira las fotos. El cuchillo.
 
-—Espera. - Pasó el dedo unas cuantas veces por el móvil - Un
+—Espera -, dijo Roble. Pasó el índice unas cuantas veces por el móvil - Un
 [ñistra](http://www.ikea.com/es/es/catalog/products/00149317/). 
 
 —La posición del cuchillo, el ángulo, - hizo movimientos de Bates
@@ -222,7 +245,9 @@ miran, Ángulo, altura, ese tío tan largo es culpable, ese no.
 
 —Qué -, contestó Cecilio, apoyando el puño sobre su muslo. 
 
-—Quique. El periodista. - Aparentemente, Quique había visto que Roble había hecho check-in en
+—Quique. El periodista. 
+
+Aparentemente, Quique había visto que Roble había hecho check-in en
 FourSquare en el barrio y me acaba de poner un *me gusta* en él. - Viene.
 
 —Cuidao con la polla y con el chismecico. Porque se ha enterado por el
@@ -239,7 +264,7 @@ morros -, le contestó Cecilio.
 Roble no dijo nada y siguió golpeando con la yema de los dedos y la
 ocasional uña la pantalla de su móvil, cambiando de aplicación.
 
-—Mira, dicen que... - movió el
+—Mira, dicen que... - Movió el
 pulgar verticalmente, pasando algo por la pantalla - el color de la
 sangre - movió pulgar y corazón, ampliando algo - indica que... es auténtica.
 
@@ -409,7 +434,7 @@ que la presencia de Roble estuviera asociada, desde el principio, con una
 compañera asesinada. No es una buena forma de presentarte. “Hola, soy
 poli, tu compi ha muerto y, por casualidad, ¿no la habrás matado tu?“.
 
-—Menuda fiestuqui anoche, ¿eh? - dijo Roble, a modo de gancho para tratar de pescar algo sobre el conocimiento de Tina de la situación. 
+—Menuda fiestuqui anoche, ¿eh? - dijo Roble, lanzándolo como un anzuelo  para tratar de pescar algo sobre el conocimiento de Tina de la situación. 
 
 —Sí, ¿verdad? -, contestó Tina, un poco más animada tras haberse bebido
 el zumo de naranja de un trago y haber empezado con el café con leche
@@ -958,19 +983,23 @@ atrás.  Escucha oportunista que, pensó Roble, las redes sociales nunca podría
 emular. Legalmente, al menos.
 
 —No, los vídeos son muy de principio de década. Ahora lo que la peña
-demanda es el texto, ¿sabes?. Más portable, más ubicuo, más profundo,
+demanda es el texto, ¿sabes? Más portable, más ubicuo, más profundo,
 más modos de
-interacción. Más largo, más oportunidades de interacción, más
+interacción. Más largo, más oportunidades de interactividad, más
 posibilidades de viralidad, ¿no?
 
-Su compañero o compañera emitió un sonido para indicar continuidad en la
+Su compañero o compañera emitió un sonido para indicar reconocimiento de continuidad en la
 comunicación. Quien hablaba, una persona que, por la voz, podría tener
-tanto la edad de Cecilio como la de Roble como una situada entre las dos, continuaba. Las gafas de
+tanto la edad de Cecilio como la de Roble como una cualquiera situada
+entre las dos, continuaba. 
+
+Mientras tanto, las gafas de
 Roble habían recolectado las firmas electrónicas de todos los
 pasajeros del autobús y ya
 sabía, al menos, si se había encontrado con ellos alguna vez. Con un
-poco de suerte, podía tener alguna información adicional y asociar la
-firma electrónica a una persona. 
+poco de suerte, podía captar alguna información adicional y asociar la
+firma electrónica a una persona. Y eso, a su vez, se almacenaba para
+cuando pudiera resultar útil. 
 
 —No requiere nada, en realidad. Un vídeo son tres minutos, y luego es
 como, ahora qué veo,
@@ -1028,50 +1057,55 @@ Amazon no revela las ventas, pero el de las velas parecía estar en el tramo de 
 decenas de miles con más venta que indicaba que habría vendido quizás
 uno en las últimas horas. Igual decía la verdad.
 
-—Pues invítame a una caña. - contestó el amigo, o, más concretamente,
+—Pues invítame a una caña -, contestó el amigo, o, más concretamente,
 compañero de asiento en el autobús. 
 
 ## Los muertos no hablan, los vivos sí.
 
-El walkie de Cecilio emitió un sonido. Estaba de nuevo en el salón del
+El *walkie* de Cecilio emitió un trino. Se encontraba de nuevo en el salón del
 piso donde había sucedido el asesinato, evitando sentarse en el sillón caníbal y esperando que salieran
-los agentes de criminalística, que habían entrado hacía unos
+los funcionarios de criminalística, que habían entrado hacía unos
 minutos junto con el médico en la habitación donde se encontraba el
-cadáver. La jueza y el secretario judicial no andaban lejos,
+cadáver. La jueza y el secretario judicial no andarían lejos,
 posiblemente en el pasillo, porque en la habitación era improbable que
 cupieran todos.
 
 —Inspector, una tipa aquí que quiere subir porque dice que vive ahí o
-no sé qué.
+no sé qué, - oyó que le decía desde el *walkie* alguno de los agentes
+que estaba en la puerta.. 
 
-—¿Qué?
+—¿Qué? - contestó Cecilio. 
 
-La tal Tina estaba sentada en el sofá donde ellos habían estado
-sentado antes. Tras el breve berrinche se había puesto a disposición
+A menos que una consecuencia de la edad provecta de cincuenta años
+fuera que se le había olvidado totalmente la capacidad de contar,
+en el piso vivían dos chicas. Una estaba de cuerpo presente, y la tal Tina estaba sentada en el sofá donde ellos habían estado
+sentados antes. Tras el breve berrinche se había puesto a disposición
 de los agentes, posiblemente para asegurarse de que no rompían nada y
-después de trastear un rato en su propia habitación, “arreglándose“,
+después de trastear un rato en su propia habitación, «arreglándose»,
 decía. 
 
-—Aguántala ahí -, dijo Cecilio por el walkie.
+—Aguántala ahí -, dijo Cecilio por el *walkie*. Tina no reaccionó. 
 
 —Jefe, no sé si querrá...
 
-—Lavín, compae, que se espere, cojones.
+—Lavín, compae, que se espere, cojones -, dijo Cecilio, intentando no
+gritar. 
 
-—Es que...
+—Es que... 
 
 Cecilio cortó la comunicación. Le puso una mano en el hombro a Tina
-que estaba concentrada jugando en el móvil. Le habían pedido que no
+que estaba concentrada jugando en el móvil, con todo lo sucedido
+aparentemente ya olvidado. Le habían pedido que no
 dijera nada a nadie, pero seguro que ya lo había puesto en tres redes
 sociales diferentes.
 
-—Tina, ¿quienes vivís aquí?
+—Tina, ¿quiénes vivís aquí? - preguntó Cecilio, como con curiosidad. 
 
 —Bueno, Demelza y yo, pero Demelza está muerta, - se le escapó una
 risita -, así que yo sola. 
 
-—¿Nadie más? ¿Ningún amigo o amiga que venga de vez en cuando,
-conocido, familiar del dueño? Son tres dormitorios, ¿no?
+—¿Nadie más? - insistió Cecilio- ¿Ningún amigo o amiga que venga de vez en cuando,
+conocido, familiar de los dueños? Son tres dormitorios, ¿no?
 
 —Sí, pero el tercero no lo usamos, bueno, sí lo usamos, pero vamos, no
 vive nadie, vivir, lo que se dice vivir, vamos.
@@ -1080,21 +1114,22 @@ Cecilio se quedó pensando.
 
 —¿Me puedes acompañar un momento?
 
-Bajaron un tramo de escaleras, Cecilio delante, Tina unos escalones
-por detrás. Tina no dejó el móvil ni un momento, sus pies conocían el
+Tina lo siguió. Bajaron un tramo de escaleras, Cecilio delante, Tina unos escalones
+por detrás, sin dejar el móvil ni un momento, sus pies conocían el
 camino. 
 
-—¡Tinaaa! - Oyó Cecilio cuando se pusieron a la vista de la puerta. 
+—¡Tinaaa! - Oyó Cecilio cuando se pusieron a la vista de la puerta de
+entrada al bloque. 
 
 —¿Demelza? - dijo Tina, metiéndose el móvil en el bolsillo y bajando
 las escaleras de dos en dos.
 
-—¿Te han...? - comenzó a decir Demelza, pero Tina se abalanzó sobre
-ella y le dio un abrazo, chillando a la vez.
+—¿Te han...? - comenzó a decir Demelza, pero Tina la acalló abalanzándose sobre
+ella y dándole un abrazo, chillando a la vez.
 
 El agente de la puerta y Cecilio se miraron, el primero con una
 sonrisa socarrona. Cecilio se rascó el círculo depilado
-involuntariamente y en continuo aumento de su cabeza. Quique, que
+involuntariamente y en continuo aumento de la parte más alta de su cabeza. Quique, que
 estaba por los alrededores, se asomó al portal y le hizo un gesto
 inquisitivo con la cabeza, levantándola, seguido por otro señalando con
 la barbilla a la amalgama de dos chicas. Cecilio abrió las manos
@@ -1149,7 +1184,7 @@ babor.
 
 ## Vuelta al ruedo
 
-—¿Quién es la muerta? - preguntó Roble.
+—¿Quién es la muerta? - preguntó Roble por teléfono. 
 
 —Ainhoa González Tovar -, dijo Cecilio, mirando a cierta distancia el
 DNI que cogía con los guantes.
@@ -4794,11 +4829,19 @@ La jueza no iba a emitir ninguna requisitoria de información a Correos. Un aliv
 
 Estaba en su despacho. En el ordenador había varios mensajes que incluían informes, solicitados en el momento que descubrieron el cadáver. Las cuentas de Tina, de Kevin y de la propia Demelza. 
 
-Qué cantidad de dinero manejan los jóvenes de hoy en día. Caray. Kevin tenía ingresos continuos por todo tipo de concepto. Tina, en metálico, casi todos los días. Demelza, de editoriales. Cualquiera de los tres tenía saldos mayores que la cuenta donde Cecilio depositaba los gananciales. Que los que había habido en esa cuenta en cualquier momento de la historia. Los tres juntos podrían financiar un ejército para conquistar un archipiélago en el Índico. 
+Qué cantidad de dinero manejan los jóvenes de hoy en día. Caray. Kevin
+tenía ingresos continuos por todo tipo de conceptos. Tina, en
+metálico, casi todos los días. Demelza, de diferentes plataformas de
+distribución de libros. Cualquiera de los tres tenía saldos mayores
+que la cuenta donde Cecilio depositaba los gananciales. Que los que
+había habido en esa cuenta en cualquier momento de la historia. Los
+tres juntos podrían financiar un ejército para conquistar un
+archipiélago en el Índico.  
 
 ¿Y qué diablos significaba eso?
 
-Que el dinero no da la felicidad, pensó Cecilio. Con mucho menos de lo que tenían esta panda de personas, él se encontraba contento.
+Que el dinero no da la felicidad, pensó Cecilio. Con mucho menos de lo
+que tenían esta panda de personas humanas, él se encontraba contento.
 
 ## Pero escribir
 
@@ -4864,6 +4907,68 @@ tierra qué diablos hago ahora en Aalborg. O quizás ni ahí, pero en un
 punto determinado de Jutlandia, lejos de casi todo. Corrijo cuando me
 acerco a la cristalera que separa la terminal del paisaje: de todo. 
 
+## Y los gastos
+
+Cecilio era feliz con los dos días de descanso que tenía cada cinco en
+la policía. Lo era mucho más cuando coincidían en fin de semana. Podía
+emplearlo, completo, en disfrutar a la familia o, por el contrario, en
+evitarla, pero en cualquiera de los casos podría tomar la vida a
+grandes tragos y a su manera. 
+
+Era menos feliz cuando concurrían una serie de restricciones. Por
+ejemplo, reducir sus opciones a hacer una barbacoa para vecinos y
+familiares cercanos (en la distancia y en los vínculos
+sanguíneos). Pero la ocasión era su santo, San Cecilio. Y además, en
+uno de esos vuelcos tan característicos del tiempo granadino, el
+invierno se disfrazaba de primavera e incluso de verano, al menos durante unas cuantas
+horas al día. Las horas en que se estaba mejor sentado en una silla de
+playa, con una rodaja de pan en la mano con un cacho de carne dejando
+caer sus jugos encima en el breve espacio de tiempo que transcurre
+entre la abrasadora barbacoa y los destructores jugos gástricos. 
+
+La felicidad nunca era completa y empezaba por la preparación
+logística de todo el asunto, preparación que implicaba, siempre, dos
+horas al menos en una gran superficie porque, siendo sábado, llegar al
+Mercadona del Serrallo Plaza era simplemente imposible. Y esas dos
+horas empezaban también con la conjunción planetaria de cuatro
+personas levantándose, desayunando, aseándose  y metiéndose en el coche. En la
+historia reciente sólo recordaba haberlo conseguido en menos de una
+hora y media y era porque el mayor todavía usaba pañales, el pequeño
+estaba en la cunita y ninguno de ellos se había hecho popó
+precisamente en el momento en que iban a salir por la puerta. Desde
+entonces, sin sobornos de comida rápida, artículos de consumo cuyo
+placer terminaba en el momento que se sacaban de la caja, y a veces ni
+tanto y una cierta cantidad de elevación de voz y cabreos bi y
+trilaterales, era imposible organizar no sólo barbacoa sino, para el
+caso, cualquier expedición a una gran superficie. Cecilio había
+respirado aliviado cuando a toda esa logística habían dejado de
+añadirle el sigilo necesario para mantener la ficción de Reyes Magos,
+Santas Clauses y demás criaturas milagrosas que probaban la falsedad
+de la aseveración «No existe la comida gratis».
+
+Y no existe barbacoa en la que el gasto previo por persona no
+excediera el necesario para pagar una suculenta comida en el
+Damasqueros o la Ruta del Veleta. ¿Cómo podían gastarse casi cuarenta
+euros por asistente a la barbacoa?, se preguntaba siempre Cecilio
+cuando salían de la caja y revisaba la cuenta. Su mujer, que habría
+sido capaz de estimar el precio total del carrito sin haber
+participado en su llenado, lo miraba siempre con cara de «No sé de qué
+te extrañas». Y eso que habían comprado ginebra Lirios. Pero cuatro
+botellas. 
+
+«Bueno, si sobra, ya se gastará», siempre habría algún cuñado que se
+apalancara un sábado por la tarde y se la tomara, Pero cuatrocientos
+euros. 
+
+Había que comparar. Lo que se podía gastar Tina un par de veces a la
+semana, pensó. A veces tres, en un buen mes. Demelza, gastos
+semanales, de diario, claro. El novio de Demelza sólo sacaba eso una
+vez al mes. No todos los meses. 
+
+¿Y el tal Ignacio? ¿Cuanto gastaría el tal Ignacio? Ni siquiera tenía
+una cuenta corriente. 
+
+Pero eso no lo hacía automáticamente un criminal. 
 
 ## Vuelta
 {: writer}
@@ -4890,6 +4995,49 @@ demasiado bebido o enchochado y se te ocurre hablar. Que no es lo que
 estoy haciendo. Porque no vais a decir nada, ¿verdad? 
 
 Necesidades simples. 
+
+## Turnos
+
+Había llegado un momento en el que Roble no sabía en qué punto del
+turno estaba. Y es que no había un app para ello. Quizás seŕia una
+buena idea crear una. ¿El novio de Demelza sabría hacerlo? Todos los
+policías nacionales que, como él, fueran incapaces de guardar un
+calendario de bolsillo en la cartera se gastarían un euro o dos. 
+
+A falta de tal aplicación móvil, llegó a la comisaría un sábado por la
+mañana y se encontró con un grupo de compañeros que no esperaba
+encontrarse, provocándole momentáneamente esa sensación de haber
+entrado en un universo paralelo donde los muebles y las paredes y los
+olores son los mismos, pero la gente es diferente porque, años atrás,
+el abuelo de alguien pisó una cáscara de plátano y murió, dando lugar
+a una genealogía totalmente diferente y eliminando, generación a
+generación, exponencialmente más gente de la línea temporal. 
+
+—¿Sáenz? - le dijo el subinspector Jiménez, levantando los ojos de la tableta que
+descansaba, a modo de atril, encima de su mesa. Trató de recordar
+cuándo había visto por última vez a Jiménez, un policía que había sido
+gris y ahora, cerca de la edad de jubilación, volvía a serlo empezando
+por la corola de cabellos que se aferraba débilmente a su cabeza. Sus
+turnos sólo se solapaban en 
+un día y ese día a veces eran a horas diferentes - ¿Tu turno no
+acababa ayer?
+
+Pensó por un momento que el vejestorio de Jiménez se habría equivocado
+o que, cercana la edad de la jubilación, prefería echar horas entre
+compañeros antes de ejercer de niñero y de chófer de hijos, mujer y
+nietos. Pero se acercó a su mesa, encendió el ordenador y consultó sus
+turnos viendo que, efectivamente, su turno había terminado ayer. 
+
+Pero, ya que estaba...
+—Jiménez - dijo.
+
+—Qué - contestó Jiménez, sin levantar la cabeza.
+
+—Asesinos. Profesionales. - Había pocos más en la comisaría. Los
+sábados eran, después de todo, sábados y los compañeros se las
+ingeniaban para hacer trabajo de calle o cambiar el turno. Los sábados
+por la noche, especialmente, eran tierra de nadie dónde sólo los muy
+desafectos o muy desocupados ocupaban su mesa. 
 
 ## La CIA y el librero
 {:writer}
@@ -4998,8 +5146,12 @@ encontrar.
 Me sentí, al terminar, un poco aliviado. Capítulo terminado antes de
 empezar el siguiente. 
 
-Sólo deseaba, que en este caso, fuera de verdad un *The End*. No un
+Mi único deseo era, que en este caso, fuera de verdad un *The End*. No un
 continuará. 
+
+
+*seguir*
+
 
 ## Y una webserie
 
