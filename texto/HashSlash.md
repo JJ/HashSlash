@@ -4992,7 +4992,7 @@ Cuentas, coordenadas, todo eso. Pero a estas alturas ya lo sabéis,
 ¿no?
 
 Así continuamos un rato, preguntando por diferentes familiares
-inexistentes y todos con los nombres lituanos más comunies que pudimos
+inexistentes y todos con los nombres lituanos más comunes que pudimos
 encontrar.
 
 Me sentí, al terminar, un poco aliviado. Capítulo terminado antes de
