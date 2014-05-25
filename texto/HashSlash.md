@@ -4062,6 +4062,44 @@ ingeniaban para hacer trabajo de calle o cambiar el turno. Los sábados
 por la noche, especialmente, eran tierra de nadie dónde sólo los muy
 desafectos o muy desocupados ocupaban su mesa. 
 
+—Mala gente -, le contestó Jiménez. 
+
+Roble esperó a ver si había algo más. Pero Jiménez volvió a su trabajo
+policial o lo que fuera.
+
+—Pero ¿cómo? -, dijo Roble. - ¿Cómo localizarlos?
+
+Jiménez tardó en contestar. Sin cambiar su expresión y sin despegarla
+del monitor, le contestó:
+
+—¿Por qué? ¿Quieres uno para algo?
+
+La comisura izquiera de su boca se inclinó ligeramente hacia arriba,
+en lo que podía ser una sonrisa en una persona que no recordara qué
+músculos tenían que usarse para activarla. 
+
+Roble no respondió. Se dio la vuelta y se dirigió hacia su escritorio,
+en el otro extremo de la comisaría. A sus espaldas oyó
+
+—De veras, Sáenz, de verdad de la buena, que es un tema jodido. ¿Te
+crees que se anuncian por la Internet esa? ¿Con habilidades,
+disponibilidad horaria? Si alguien sabe algo, es la UDYCO. Y
+tampoco. ¿Sabes qué es lo más fácil?
+
+Roble se volvió y lo miró.
+
+—Averiguar quién ha encargado el trabajo. A partir de ahí, averiguar
+de qué profesional se trata puede ser fácil o imposible, pero da
+igual, porque es una simple arma. El gatillo, quién lo ha apretado,
+quién ha comprado al menda que ha ejercicido como arma, eso es lo
+importante. ¿Lo pillas o quieres que te mande un SMS explicándotelo?
+
+Roble estuvo por decirle que nadie usaba SMSs. Pero dijo gracias en
+voz muy baja y se fue a su mesa. 
+
+Estuvo allí apenas tres minutos. Susurró a su pulsera el nombre de su
+compañero de turno para hablar con él. 
+
 *seguir*
 
 ## Y una webserie
