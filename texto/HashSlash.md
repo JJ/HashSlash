@@ -4071,7 +4071,7 @@ del monitor, le contestó:
 
 —¿Por qué? ¿Quieres uno para algo?
 
-La comisura izquiera de su boca se inclinó ligeramente hacia arriba,
+La comisura izquierda de su boca se inclinó ligeramente hacia arriba,
 en lo que podía ser una sonrisa en una persona que no recordara qué
 músculos tenían que usarse para activarla. 
 
@@ -4079,8 +4079,8 @@ Roble no respondió. Se dio la vuelta y se dirigió hacia su escritorio,
 en el otro extremo de la comisaría. A sus espaldas oyó
 
 —De veras, Sáenz, de verdad de la buena, que es un tema jodido. ¿Te
-crees que se anuncian por la Internet esa? ¿Con habilidades,
-disponibilidad horaria? Si alguien sabe algo, es la UDYCO. Y
+crees que se anuncian por la Internet esa? ¿Con habilidades específicas,
+disponibilidad horaria? Si alguien sabe algo, es la peña de la UDYCO. Y
 tampoco. ¿Sabes qué es lo más fácil?
 
 Roble se volvió y lo miró.
@@ -4088,7 +4088,7 @@ Roble se volvió y lo miró.
 —Averiguar quién ha encargado el trabajo. A partir de ahí, averiguar
 de qué profesional se trata puede ser fácil o imposible, pero da
 igual, porque es una simple arma. El gatillo, quién lo ha apretado,
-quién ha comprado al menda que ha ejercicido como arma, eso es lo
+quién ha comprado al menda que ha ejercido como arma, eso es lo
 importante. ¿Lo pillas o quieres que te mande un SMS explicándotelo?
 
 Roble estuvo por decirle que nadie usaba SMSs. Pero dijo gracias en
@@ -4096,6 +4096,31 @@ voz muy baja y se fue a su mesa.
 
 Estuvo allí apenas tres minutos. Susurró a su pulsera el nombre de su
 compañero de turno para hablar con él. 
+
+## Chuletas
+
+—Suena un teléfono -, dijo alguien en el patio de Cecilio. Alguien que
+confiaba especialmente en sus habilidades para reconocer sonidos de
+teléfono o en la falta de las mismas en el resto de la gente que lo
+rodeaba.
+
+De hecho, Cecilio no lo había oído al principio, porque se encontraba
+masticando un filete de cabezada embutido en sendas rodajas de pan y
+el sonido de las mandíbulas y la concentración que estaba poniendo en
+el asunto le evitaba oir cualquier cosa. Pero era su teléfono y cuando
+se acercó en él aparecía la foto de un árbol.
+
+—Tenemos que vernos- le dijo Roble, al otro lado del éter, sin esperar
+siquiera una salutación por parte de Cecilio.
+
+—Afú-, dijo Cecilio. Hizo una pausa. Dijo otra vez - Afú. 
+
+Podía preguntarle para qué, pero Roble no se lo iba a explicar por
+teléfono. 
+
+—¿Sabes dónde vivo? - Preguntó Cecilio.
+
+—Sí. - contestó Roble. Y colgó.
 
 *seguir*
 
