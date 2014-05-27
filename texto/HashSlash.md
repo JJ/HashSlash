@@ -32,8 +32,9 @@ encontraba sentado.
 gesto de cansancio. Una vez hundido en el sillón, se cerró el abrigo sobre las
 rodillas. 
 
-Eran cerca de las diez de la mañana de un día de enero, estaba
-nublado y la temperatura en el interior del piso era escasamente
+Eran cerca de las diez de la mañana de un día de enero. Había
+amanecido nublado y el mutis del sol y el aire que venía de la sierra
+hacía que la temperatura en el interior del piso era escasamente
 diferente de la que hacía al final de la carretera de la Sierra. En
 ninguno de los dos casos tenía más de una cifra significativa. 
 
@@ -4122,6 +4123,38 @@ teléfono.
 
 —Sí. - contestó Roble. Y colgó.
 
+## Viaje a la periferia del crimen
+
+En realidad, si se lo hubiera preguntado a sí mismo con insistencia, Roble no
+se habría sabido explicar a sí mismo por qué había decidido hablar
+personalmente con su compañero. Porque no se le ocurría qué podría
+saber, o deducir, o averiguar, que él no pudiera hacer.
+
+Había cogido un autobús en el callejón del Pretorio, y en el buen rato
+que había estado esperándolo había tratado de usar sus fuentes de la
+web profunda para averiguar más sobre Ainhoa y Demelza. También le
+mandó un mensaje: «¿Quiénes querrían matarte?».
+
+La contestación, que le llegó a los pocos minutos y en una volea de
+mensajes, enumeraba diferentes grupos humanos que no tendrían ninguna
+razón para matarla, o, en caso de tenerla, carecerían de medios
+suficientes para contratar a un personal. En sentido amplio, abarcaban
+prácticamente a toda la humanidad. Ni ex novios o novios putativos
+ricos y cresos, ni compañeros del instituto víctimas de su acoso
+directa o indirectamente, ni amantes despechados, ex-socios, nadie que
+hubiera proferido amenazas, nadie con envidia suficiente para pensar
+que el retorno de la inversión en un asesinato podía ser adecuado. 
+
+El mensaje final le decía que, si le hubiera preguntado antes del
+asesinato, habría puesto a la pobre Ainhoa en una lista en la que sólo
+estaría ella. 
+
+Ainhoa. ¿Podría tener dinero suficiente para encargar el asesinato,
+pero no el suficiente como para hacerlo a un asesino lo
+suficientemente hábil para distinguir a su patrona de su encargo?
+
+Cecilio había examinado las cuentas. Por lo menos en eso podría
+ayudarle. 
 *seguir*
 
 ## Y una webserie
