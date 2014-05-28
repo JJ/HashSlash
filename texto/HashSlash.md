@@ -4188,13 +4188,14 @@ número en la pared, pero asoma un caqui por encima de la valla. Bueno,
 y el humo de la barbacoa». 
 
 Había humo de barbacoas o de quema ritual de animales vivos o no en
-una de cada dos casas, así que la segunda indicación no sirvió de
+una de cada dos casas, un clásico sábado al mediodía en la ciudad jardín, así que la segunda indicación no sirvió de
 mucho. Pero el *app* *TreeDeQuiénEres* le identificó el castaño de
 Indias, el caqui, y pinos, cipreses, tuyas y aligustres diversos por
 todo el camino. Cuando hizo una llamada perdida desde la puerta del
 que, sin duda alguna, era el chalet de Cecilio podía haber escrito un
 tratado sobre la flora urbana. O haberle pedido al *app* que lo
 hiciera sólo, que al parecer también lo hacía. 
+
 *seguir*
 
 ## Y una webserie
