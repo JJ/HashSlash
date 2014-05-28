@@ -4153,8 +4153,48 @@ Ainhoa. ¿Podría tener dinero suficiente para encargar el asesinato,
 pero no el suficiente como para hacerlo a un asesino lo
 suficientemente hábil para distinguir a su patrona de su encargo?
 
-Cecilio había examinado las cuentas. Por lo menos en eso podría
-ayudarle. 
+Cecilio había examinado las cuentas de todas las personas involucradas. Por lo menos en eso podría
+ayudarle.
+
+## Tufo culpable
+
+— ¿La Ainhoa? Ná pelao. Cuatro perras -, dijo Cecilio, a la vez que
+volvía unas chuletas en la barbacoa.
+
+Roble había llegado pasadas las cuatro de la tarde. El autobús lo
+había dejado en lo alto de una cuesta, en los Rebites y a partir de
+ahí la cosa se había complicado. 
+
+Era sólo culpa de Roble, claro. No quería meter en el móvil las
+coordenadas de la casa de su amigo policía, porque bien sabía él que
+cualquier cosa que se buscaba quedaba almacenada, y cualquier cosa que
+quedaba almacenada podía ser recuperada y eventualmente vendida por
+una fracción de bitcoin. Periódicamente compraba ficheros con
+direcciones de casas de maderos en la web profunda y comprobaba, con
+cierto alivio, que no se encontraba ni la suya ni la de Cecilio. Lo
+cierto es que acababa de aparecer una actualización al fichero. Y no
+había tenido tiempo de hacerse con ella. Y eso estaba empezando a
+preocuparle. 
+
+Pero a falta de direcciones automáticas, tuvo que recurrir al viejo
+«dime cómo se va desde ahí». La instrucciones de Cecilio incluían
+rotondas, tiendas que habían cerrado, una esquina con una cantidad de
+cagadas de perro excesiva y árboles de especie indeterminada y altura
+determinada. 
+
+Éstos últimos fueron los que le ayudaron a encontrar el sitio. Cuando
+llegues a un castaño de Indias, giras a la izquierda. «Mi casa no tiene
+número en la pared, pero asoma un caqui por encima de la valla. Bueno,
+y el humo de la barbacoa». 
+
+Había humo de barbacoas o de quema ritual de animales vivos o no en
+una de cada dos casas, así que la segunda indicación no sirvió de
+mucho. Pero el *app* *TreeDeQuiénEres* le identificó el castaño de
+Indias, el caqui, y pinos, cipreses, tuyas y aligustres diversos por
+todo el camino. Cuando hizo una llamada perdida desde la puerta del
+que, sin duda alguna, era el chalet de Cecilio podía haber escrito un
+tratado sobre la flora urbana. O haberle pedido al *app* que lo
+hiciera sólo, que al parecer también lo hacía. 
 *seguir*
 
 ## Y una webserie
