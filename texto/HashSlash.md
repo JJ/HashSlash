@@ -305,10 +305,9 @@ en su habitación, pero justamente lo que necesitaba a esa hora.
 No la
 había encontrado en la cocina. Quizás su compañera Demelza tuviera. O
 si no, quien quiera que anduviera por la casa, que llevaba oyendo el
-chirrido de los muebles del salón durante un rato. Efectivamente, allí
-había dos personas. 
+trajín en el salón y crujidos en sus muebles durante un rato. 
 
-Serían amigos de Demelza. O restos de la fiesta. Uno de ellos sí podría haber estado en la fiesta de lanzamiento del día anterior. Incluso lo
+Efectivamente, desde el pasillo vislumbró a dos tíos. Serían amigos de Demelza. O escombros de la fiesta. Uno de ellos sí podría haber estado en la fiesta de lanzamiento del día anterior. Incluso lo
 recordaba, junto con unas trescientas caras y unos cuantos culitos preciosos. Tenía el pelo
 castaño rizado y peinado de forma que huyera de los laterales de la
 cabeza. Llevaba una
