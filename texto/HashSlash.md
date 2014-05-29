@@ -360,9 +360,9 @@ mortadela debajo del sofá y ahora los ácidos grasos se estaban
 hidrolizando. Cuando Demelza se levantara, habría que ponerse a
 limpiar rápidamente. Alguien tendría que hacerlo, vamos. 
 Que el suelo esté pegajoso se puede aguantar y es
-algo inherente a cualquier piso de estudiantes. Pero el olor... Eso sí
-que no. Además, es posible que huela un poco a... No. eso no, nunca. 
-
+algo que va de suyo en cualquier piso de estudiantes. Pero el olor... Eso sí
+que no. Además, es posible que huela un poco a... No. eso no,
+nunca.
 — Vale, vale. No pasa nada. Me voy a hacer un café. ¿Queréis algo? -
 dijo, mirando a hipster de nuevo. Este miró al otro, como si pidiera
 permiso. El otro no dijo nada, pero se echó mano al bolsillo, sacó un
@@ -452,7 +452,7 @@ pudo evitar sonreír. El humor negro le ganaba, aunque fuera él mismo quien lo 
 —No, espera, Demelza...sí, estuvo, pero yo no la vi desde las dos o las tres. ¿O
 las una? Espera, cuando nos quedamos con el Riki y la Santi y nos... -
 le dio una risita - No, había un grupo de tíos un poco raros ahí,
-chungos, y pasamos de ellos, pero Demelza... no sé, no me
+chungos, y pasamos de ellos, pero esta... no sé, no me
 acuerdo. Estaría en su habitación cuando acabamos. O se habría ido.
 
 —Las fotos... - Roble había visto ya el perfil de Facebook de Tina,
@@ -479,8 +479,8 @@ recibiera el impacto de la muerte de su compañera trataría de sacarle
 algo más. No una confesión de culpabilidad, claro. No parecía que supiera nada, y lo sabía, no parecía fácil pillarla en un
 renuncio. Pero había que intentarlo.
 
-—Demelza... - empezó diciendo. Tina parecía de ese tipo de personas
-que necesitaban rellenar con palabras la conversación, al menos si no
+—Demelza... - empezó diciendo Roble. Tina parecía de ese tipo de personas
+que necesitaban rellenar con palabras el espacio entre dos personas, al menos si no
 estaba, como en ese momento, entretenida mirando fotos en el móvil.
 
 —Sí, oye, ¿llevaba mucho rato el novio dentro? Es que fíjate cómo
@@ -493,8 +493,8 @@ estás diciendo”-. No, bueno, no mejor, si ella al fin y al cabo...
 
 —Ea -, dijo, rotundamente, Roble. 
 
-—Fíjate, el otro día... - Tina comenzó un relato complejo y con muchas
-hebras de algo que empezó con la compra de yogures en el supermercado
+—Fíjate, el otro día... - Tina comenzó un relato complejo, con muchas
+hebras y un elenco de personajes extenso de algo que empezó con la compra de yogures en el supermercado
 y terminó con la pérdida de un cargador del móvil. - ¡Y ni siquiera
 era de ella! 
 
@@ -768,25 +768,27 @@ eventualmente, se fue.
 
 ## Sentido y sensibilidad
  
-Tina no estaba tampoco, en ese momento, en condiciones de responder a muchas
-preguntas. Cecilio le pidió que le hiciera una lista de las personas
-que habían asistido a la fiesta más adelante, pero por el momento que tratara de recordar cuando había
+En otro lugar de Granada, Cecilio se dio cuenta de que Tina no estaba tampoco, en ese momento, en condiciones de responder a muchas
+preguntas. Le pidió que le hiciera una lista de las personas
+que habían asistido a la fiesta más adelante, pero por el momento que tratara de recordar cuándo había
 visto a Demelza por última vez. Dejó la pregunta sobre drogas y
 cualquier otra actividad ilegal de la difunta para más adelante. Total, acabaría
-saliendo. Esas cosas siempre salían. Tina le contestó entre hipidos,
+saliendo. Esas cosas siempre salían. Tina le contestó entre hipidos;
 había dejado de verla a partir de las una o las dos de la mañana. 
 
 —¿Había alguien extraño en la fiesta? - le preguntó, finalmente. Tina
 dejó de secarse los ojos y lo miró.
 
-—A partir de cierta hora, *todos* éramos extraños.
+—A partir de cierta hora, *todos* éramos extraños - le contestó Tina, con
+esfuerzos visibles para no dejar los ojos en blanco antes de hacerlo. 
 
-No tenía mucho más que preguntarle, por lo pronto. Se la pasó, como había prometido, a Quique. Móvil en mano, éste le
+A Cecilio esa respuesta le dejó un tanto bloqueado; ninguna pregunta
+más se le vino a la mente a partir de ese momento. Así que se la pasó, como había prometido, a Quique. Móvil en mano, éste le
 preguntó:
 
 —¿Cómo se siente por la muerte de su compañera de piso?
 
-Cécil no se sorprendió en absoluto de que, una vez más, los periodistas
+Cecilio no se sorprendió en absoluto de que, una vez más, los periodistas
 hicieran grandes esfuerzos para sacar de dentro de cada persona los
 tópicos que contenían. Sin embargo, la respuesta fue
 
@@ -854,11 +856,12 @@ sociales, ¿sabes? Después de eso, leerlos es un extra, pero no es
 estrictamente necesario, ¿te das cuenta?
 
 Roble se entretuvo mirando el perfil en las redes sociales de la chica muerta, Demelza. Ahí
-estaban sus compras de libros, efectivamente. Una cantidad
+había compartido sus compras de libros, efectivamente. No resultaba difícil ver
+qué le servía de inspiración: una cantidad
 considerable de títulos que incluían referencias tórridas o
 abiertamente eróticas. Y ahí estaban sus propios libros publicados y
 las felicitaciones correspondientes, algunas veces miles de ellas. *69
-tonos de 0XEEE* parecía uno de los más populares, con historias que
+tonos de 0XEEE* parecía uno de los más populares, con mensajes en el perfil que
 hablaban de cómo escalaba los puestos de ventas y cómo había alcanzado
 mil ventas y luego mil quinientas, dos mil... *Rearrancando tus
 sentimientos* parecía también bastante popular, y *Fundiéndote la
