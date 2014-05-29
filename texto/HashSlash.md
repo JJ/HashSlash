@@ -972,7 +972,7 @@ sonrisa socarrona. Cecilio se rascó el círculo depilado
 involuntariamente y en continuo aumento de la parte más alta de su cabeza. Quique, que
 estaba por los alrededores, se asomó al portal y le hizo un gesto
 inquisitivo con la cabeza, levantándola, seguido por otro señalando con
-la barbilla a la amalgama de dos chicas. Cecilio abrió las manos
+la barbilla a la amalgama de las dos chicas. Cecilio abrió las manos
 indicándole que no tenía ni idea y le hizo dos gestos simétricos con
 la cabeza indicándole que se largara.
 
@@ -980,16 +980,16 @@ la cabeza indicándole que se largara.
 
 —¿Quién es la muerta? - preguntó Roble por teléfono. 
 
-—Ainhoa González Tovar -, dijo Cecilio, mirando a cierta distancia el
-DNI que cogía con los guantes.
+—Ainhoa González Tovar -, dijo Cecilio, alejando el DNI que cogía con
+los guantes hasta que fue capaz de leerlo.
 
 Roble se frotó los ojos y le dio una palmada a la pulsera, que le
-avisaba insistentemente para que se fuera a dormir. 
+avisaba insistentemente para que se fuera a dormir, para acallarla. 
 
 La llamada de Cecilio le había pillado subiendo la cuesta del Barranco
 del Abogado hacia su
 casa, desde donde una cama confortable y cálida parecía llamarle. Pero
-quien le había llamado había sido Cecilio o, en plan más general, *el
+quien le había llamado, en realidad, había sido Cecilio o, en plan más general, *el
 deber* y había sustituido su cama por una bebida energética que había
 comprado por el camino en una tienda de inmigrantes orientales
 posiblemente ilegales. 
@@ -1027,6 +1027,8 @@ de verdad. La otra, sólo *la muerta*, - dijo Cecilio.
 
 —Ni peros ni manzanas. Yo me entiendo, - dijo, haciendo un gesto
 tajante con la mano, Cecilio.
+
+*Descripción de Demelza* 
 
 Roble miró de reojo a Tina que, apoyada en una pared, charlaba
 animadamente con Demelza. Esta, sin embargo, miraba con cierto
