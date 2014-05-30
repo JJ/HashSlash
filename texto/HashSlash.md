@@ -956,7 +956,8 @@ por detrás, sin dejar el móvil ni un momento, sus pies conocían el
 camino. 
 
 —¡Tinaaa! - Oyó Cecilio cuando se pusieron a la vista de la puerta de
-entrada al bloque. 
+entrada al bloque. Una voz femenina con ciertos matices de haber sido
+usada intensivamente el día anterior. 
 
 —¿Demelza? - dijo Tina, metiéndose el móvil en el bolsillo y bajando
 las escaleras de dos en dos.
@@ -1018,17 +1019,26 @@ o sea que era de la muerta.
 Roble miró el DNI y le hizo una mueca a Cecilio. 
 
 —La de verdad. A partir de ahora, la muerta de verdad será la muerta
-de verdad. La otra, sólo *la muerta*, - dijo Cecilio.
+de verdad. La otra, sólo *la muerta*, - dijo Cecilio, haciendo la
+marca de las comillas en el aire. 
 
 —Pero... -, objetó Roble. 
 
 —Ni peros ni manzanas. Yo me entiendo, - dijo, haciendo un gesto
 tajante con la mano, Cecilio.
 
-*Descripción de Demelza* 
-
 Roble miró de reojo a Tina que, apoyada en una pared, charlaba
-animadamente con Demelza. Esta, sin embargo, miraba con cierto
+animadamente con Demelza, pero se paró en la propia Demelza. Tenía el
+pelo castaño, liso y recogido en una coleta, pero, aún así, parecía
+rubia. Quizás por los ojos claros, o quizás porque el tono de la piel
+era tostado, algo intermedio entre cabina de rayos UVA y moreno de la
+sierra que, de alguna forma, sugería las dos cosas. Con la piel más
+morena podría haber sido sacerdotisa de Kali o estrella de
+Bollywood. Y con el pelo más rubio podría haber sido Scarlett Johanson
+de incógnito. En un caso o en otro, Roble sintió que podía ser más
+adictiva que un juego de pájaros en un móvil. 
+
+Demelza no parecía ser consciente en ese momento de la atención de Roble. Miraba con cierto
 nerviosismo hacia la puerta del pasillo que daba a su habitación,
 de donde procedían ruidos de frotar de plásticos, de fotos disparadas
 y de indicaciones monosilábicas de un miembro del equipo de
