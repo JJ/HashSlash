@@ -1,7 +1,7 @@
 ---
 layout: index
 ---
-<!--- -*-  eval: (typopunct-mode 1); eval: (typopunct-change-language: english) -*- -->
+<!--- -*-  eval: (typopunct-mode 1) -*- -->
 
 <h1>#slash</h1>
 
@@ -1035,9 +1035,9 @@ animadamente con Demelza, pero se paró en la propia Demelza. Tenía el
 pelo castaño, liso y recogido en una coleta, pero, aún así, parecía
 rubia. Quizás por los ojos claros, o quizás porque el tono de la piel
 era tostado, algo intermedio entre cabina de rayos UVA y moreno de la
-sierra que, de alguna forma, sugería las dos cosas. Con la piel más
-morena podría haber sido sacerdotisa de Kali o estrella de
-Bollywood. Y con el pelo más rubio podría haber sido Scarlett Johanson
+sierra que, de alguna forma, sugería las dos cosas. Si el tono hubiese
+sido ligeramente más oscuro podría haber sido sacerdotisa de Kali o estrella de
+Bollywood. Y con el pelo más rubio podría haber sido Scarlett Johansson
 de incógnito. En un caso o en otro, Roble sintió que podía ser más
 adictiva que un juego de pájaros en un móvil. 
 
