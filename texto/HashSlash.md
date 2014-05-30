@@ -983,7 +983,7 @@ la cabeza indicándole que se largara.
 —Ainhoa González Tovar -, dijo Cecilio, alejando el DNI que cogía con
 los guantes hasta que fue capaz de leerlo.
 
-Roble se frotó los ojos y le dio una palmada a la pulsera, que le
+Roble se frotó los ojos y le dio un manotazo a la pulsera, que le
 avisaba insistentemente para que se fuera a dormir, para acallarla. 
 
 La llamada de Cecilio le había pillado subiendo la cuesta del Barranco
