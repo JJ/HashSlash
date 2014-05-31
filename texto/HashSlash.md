@@ -4039,28 +4039,33 @@ buena idea crear una. ¿El novio de Demelza sabría hacerlo? Todos los
 policías nacionales que, como él, fueran incapaces de guardar un
 calendario de bolsillo en la cartera se gastarían un euro o dos. 
 
-A falta de tal aplicación móvil, llegó a la comisaría un sábado por la
+A falta de la información que tal aplicación móvil podría darle, llegó a la comisaría un sábado por la
 mañana y se encontró con un grupo de compañeros que no esperaba
 encontrarse, provocándole momentáneamente esa sensación de haber
 entrado en un universo paralelo donde los muebles y las paredes y los
 olores son los mismos, pero la gente es diferente porque, años atrás,
-el abuelo de alguien pisó una cáscara de plátano y murió, dando lugar
+el abuelo de alguien pisó una piel de plátano, resbaló y murió, dando lugar
 a una genealogía totalmente diferente y eliminando, generación a
-generación, exponencialmente más gente de la línea temporal. 
+generación, exponencialmente más gente de la línea temporal. Y
+acabando también con los Sugus de limón. 
 
-—¿Sáenz? - le dijo el subinspector Jiménez, levantando los ojos de la tableta que
+—¿Sáenz? - le dijo el subinspector Jiménez desde su derecha. En su visión
+periférica, Jiménez pareció levantar los ojos de la tableta que
 descansaba, a modo de atril, encima de su mesa. Trató de recordar
-cuándo había visto por última vez a Jiménez, un policía que había sido
+cuándo lo había visto por última vez, un policía que había sido
 gris y ahora, cerca de la edad de jubilación, volvía a serlo empezando
-por la corola de cabellos que se aferraba débilmente a su cabeza. Sus
+por la corola de cabellos que se aferraba débilmente a su cabeza y
+siguiendo por la ropa que llevaba; había cambiado de ropa, pero no de uniforme. Sus
 turnos sólo se solapaban en 
-un día y ese día a veces eran a horas diferentes - ¿Tu turno no
-acababa ayer?
+un día y ese día a veces eran a horas diferentes.
 
-Pensó por un momento que el vejestorio de Jiménez se habría equivocado
-o que, cercana la edad de la jubilación, prefería echar horas entre
+— ¿Tu turno no acababa ayer? - le preguntó Jiménez, son una sonrisa
+que deletreaba «pringao». 
+
+Pensó por un momento que sería el vejestorio de Jiménez el que se habría equivocado
+o que, ya en edad de pasar a segunda actividad antes de la jubilación, prefería echar horas entre
 compañeros antes de ejercer de niñero y de chófer de hijos, mujer y
-nietos. Pero se acercó a su mesa, encendió el ordenador y consultó sus
+nietos. Sin contestarle,  se acercó a su mesa, encendió el ordenador y consultó sus
 turnos viendo que, efectivamente, su turno había terminado ayer. 
 
 Pero, ya que estaba...
