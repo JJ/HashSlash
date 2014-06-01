@@ -4244,7 +4244,48 @@ que, sin duda alguna, era el chalet de Cecilio podía haber escrito un
 tratado sobre la flora urbana. O haberle pedido al *app* que lo
 hiciera sólo, que al parecer también lo hacía. 
 
-*seguir*
+## Una pasta
+
+—Una pasta, ya te lo digo -, efectivamente dijo Cecilio, contestando a
+la pregunta de Roble sobre las finanzas de Demelza.
+
+—Pero... ¿de dónde?
+
+La respuesta de Cecilio no llegó inmediatamente, porque tenía una
+chuleta sobre una rodaja de pan de dos dedos de profundidad en la mano
+y estaba tratando de morderla sin tener que soltar la cerveza de la
+otra mano. Finalmente mordió y deglutió lo suficiente como para seguir hablando
+
+—A ver, todos los meses de Amazon, dos, tres mil, a veces más, pocas
+veces menos. Y luego, de gente, de fundaciones, de empresas... -
+
+—¿Editoriales? - preguntó Roble.
+
+—Ninguna que yo conozca, pero es que yo conozco pocas, bueno, algunas
+ponía «editorial» en el nombre, «servicios editoriales»,
+«*coching*»...
+
+—*Coaching* - dijo Roble.
+
+—Eso, *coaching*. Qué mijicas eres, cojones, qué más dará, si me
+entiendes... 
+
+—O sea que... - dijo Roble.
+
+—O sea que gana más que tú y que yo. Juntos - dijo Cecilio. Aunque
+enseguida pensó que él no tenía ni idea de lo que ganaba
+Roble. Exactamente lo mismo que pensó Roble, un minuto más tarde. 
+
+O sea que ganaba mucho dinero con sus libros, pero fuera la *industria
+tradicional*. O sea que querrían matarla, ¿por eso? ¿En serio?
+
+Roble miró la barbacoa y las bebidas que navegaban en cubos y en
+neveras de plástico por el suelo. No vio nada de su gusto y se fue. 
+
+Trató de encontrar la parada de autobús sin buscar nada en el móvil,
+pero finalmente sucumbió cuando llevaba media hora subiendo cuestas. 
+
+*>*
 
 ## Y una webserie
 
