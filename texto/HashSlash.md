@@ -2494,9 +2494,32 @@ todavía con el moreno pillado en Almuñécar, y terminado en julio del
 hacía, unas veces por encima y otras veces por debajo. Era esa persona
 inexistente que se llama el español medio, y único por ello. 
 
-Y una persona normal hace su trabajo con normalidad. Hace lo que tiene que hacer, ni más ni menos. Es decir, ni un poco más de lo debido ni demasiado poco como para que le caiga un paquete o simplemente sea el hazmerreír de la comisaría. O, en concreto, del Yimi. Así que mientras Roble se hacía lo que quiera que estuviera haciendo en ese momento, o nada, Cecilio se dedicó a hacer el resumen del interrogatorio y de los informes forenses para la jueza, tecleando con dos dedos y pulgar sobre barra espaciadora y gafas sobre el puente de la nariz. Un montón de palabras, dos mil trescientas veinticinco, como informó Word fielmente, para decir que no sabían mucho y que en realidad tampoco habían descartado a nadie. "Todas las vías de investigación permanecen abiertas". Y la muerta sigue muerta, y su asesino suelto.
+Y una persona normal hace su trabajo con normalidad. Hace lo que tiene
+que hacer, ni más ni menos. Es decir, ni un poco más de lo debido ni
+demasiado poco como para que le caiga un paquete o simplemente sea el
+hazmerreír de la comisaría. O, en concreto, del Yimi. Así que mientras
+Roble se hacía lo que quiera que estuviera haciendo en ese momento, o
+nada, Cecilio se dedicó a hacer el resumen del interrogatorio y de los
+informes forenses para la jueza, tecleando con dos dedos y pulgar
+sobre barra espaciadora y gafas sobre el puente de la nariz. Un montón
+de palabras, dos mil trescientas veinticinco, como informó Word
+fielmente, para decir que no sabían mucho y que en realidad tampoco
+habían descartado a nadie. "Todas las vías de investigación permanecen
+abiertas". Y la muerta sigue muerta, y su asesino suelto. 
 
-Una vez enviado el informe a la jueza, que decidiría registros, imputaciones o lo que tuviera que decidir, ¿qué tocaba ahora? Lo normal. Cecilio siempre hacía lo normal. Familia, amigos. La lista que había proporcionado Tina de los que habían asistido a la fiesta, con algunos teléfonos. Un montón de niñatos y niñatas a los que tuvo que llamar, uno por uno, para pedirles que pasaran por comisaría cuando lo tuvieran a bien, y si tenían el teléfono de un tal este o de una tal aquella. Y luego una segunda ronda para los que no habían contestado, los nuevos teléfonos, teléfonos equivocados, "Buenas tardes, soy el inspector Cecilio Martín, ¿estoy hablando con Vicente Pérez", "Yo no he sido, no he hecho nada", "Qué me hace si no voy", "Uf, con lo liado que estoy", así toda la tarde, el turno avanzando hasta su conclusión.
+Una vez enviado el informe a la jueza, que decidiría registros,
+imputaciones o lo que tuviera que decidir, ¿qué tocaba ahora? Lo
+normal. Cecilio siempre hacía lo normal. Familia, amigos. La lista que
+había proporcionado Tina de los que habían asistido a la fiesta, con
+algunos teléfonos. Un montón de niñatos y niñatas a los que tuvo que
+llamar, uno por uno, para pedirles que pasaran por comisaría cuando lo
+tuvieran a bien, y si tenían el teléfono de un tal este o de una tal
+aquella. Y luego una segunda ronda para los que no habían contestado,
+los nuevos teléfonos, teléfonos equivocados, "Buenas tardes, soy el
+inspector Cecilio Martín, ¿estoy hablando con Vicente Pérez", "Yo no
+he sido, no he hecho nada", "Qué me hace si no voy", "Uf, con lo liado
+que estoy", así toda la tarde, el turno avanzando hasta su
+conclusión. 
 
 Y entonces, el MXE. Los informes de tóxicos se hacen por algo. Pueden haber sido un factor coadyuvante, "ayudante", decía uno de sus alumnos tutorizados, en el crimen. ¿La habían intoxicado para que no gritara o se defendiera? 
 
@@ -4071,6 +4094,7 @@ nietos. Sin contestarle,  se acercó a su mesa, encendió el ordenador y consult
 turnos viendo que, efectivamente, su turno había terminado ayer. 
 
 Pero, ya que estaba...
+
 —Jiménez - dijo.
 
 —Qué - contestó Jiménez, sin levantar la cabeza.
@@ -4079,17 +4103,22 @@ Pero, ya que estaba...
 sábados eran, después de todo, sábados y los compañeros se las
 ingeniaban para hacer trabajo de calle o cambiar el turno. Los sábados
 por la noche, especialmente, eran tierra de nadie dónde sólo los muy
-desafectos o muy desocupados ocupaban su mesa. 
+desafectos o muy desocupados ocupaban su mesa. Pero la hora del vermú
+era siempre el momento «de ir a interrogar a un testigo». 
 
-—Mala gente -, le contestó Jiménez. 
+—Mala gente -, le contestó Jiménez, y en su voz sonó como un dictamen
+experto. Sólo había una persona más en la sala donde tenían sus mesas
+los subinspectores, y salió en ese momento. Del pasillo donde se
+encontraban los despachos de los inspectores llegaban sonidos que
+podían ser de una conversación. 
 
-Roble esperó a ver si había algo más. Pero Jiménez volvió a su trabajo
-policial o lo que fuera.
+Roble esperó a ver si había algo más en ese diagnóstico. Pero Jiménez volvió a su trabajo
+policial o lo que fuera que estuviera haciendo en la tablet. 
 
 —Pero ¿cómo? -, dijo Roble. - ¿Cómo localizarlos?
 
 Jiménez tardó en contestar. Sin cambiar su expresión y sin despegarla
-del monitor, le contestó:
+del tablet, le contestó:
 
 —¿Por qué? ¿Quieres uno para algo?
 
@@ -4113,7 +4142,7 @@ igual, porque es una simple arma. El gatillo, quién lo ha apretado,
 quién ha comprado al menda que ha ejercido como arma, eso es lo
 importante. ¿Lo pillas o quieres que te mande un SMS explicándotelo?
 
-Roble estuvo por decirle que nadie usaba SMSs. Pero dijo gracias en
+Roble estuvo por decirle que nadie usaba ya SMSs. Pero dijo gracias en
 voz muy baja y se fue a su mesa. 
 
 Estuvo allí apenas tres minutos. Susurró a su pulsera el nombre de su
@@ -4142,7 +4171,7 @@ teléfono.
 
 —¿Sabes dónde vivo? - Preguntó Cecilio.
 
-—Sí. - contestó Roble. Y colgó.
+—Sí -, contestó Roble. Y colgó.
 
 ## Viaje a la periferia del crimen
 
@@ -4199,7 +4228,8 @@ preocuparle.
 
 Pero a falta de direcciones automáticas, tuvo que recurrir al viejo
 «dime cómo se va desde ahí». La instrucciones de Cecilio incluían
-rotondas, tiendas que habían cerrado, una esquina con una cantidad de
+rotondas, tiendas que habían cerrado sin dejar ningún signo externo de
+nunca haber existido salvo una persiana con un graffiti, una esquina con una cantidad de
 cagadas de perro excesiva y árboles de especie indeterminada y altura
 determinada. 
 
