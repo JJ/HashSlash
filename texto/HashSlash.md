@@ -2084,8 +2084,7 @@ tuvieran demasiado trabajo en reducirlo.
  
  Allí estaban Eladio, el Yimi y, por supuesto, Rosalía; algunos otros
  compañeros más que Cecilio no conocía y más de un extranjero
- cometiendo el sacrilegio de comer
- el jamón con cuchillo y tenedor.
+ cometiendo el sacrilegio de comerse las lonchas de jamón con cuchillo y tenedor.
  
  —¿Qué? ¿Qué os contáis? - dijo Cecilio, a modo de saludo.
  
