@@ -24,6 +24,10 @@ Puri Blanco | - | - | Jueza de instrucción del caso |
 Paco | - | - | Secretario judicial
 Marisol González Verdú | 1971 | Alicante | Antigua compañera de Cecilio, ahora en narcóticos (droga y crimen organizado, en realidad)
 Gil Gil | 1973 | Caravaca de la Cruz, Murcia ! Droga y Crimen Organizado | El Cabraloca; trabajó en el campo, luego en seguridad privada 
+Rosalía | - | - | - |
+Yimi | - | - | - | Graciosillo de la comisaría, compañero de Cecilio
+Eladio | - | - | - | 
+Jiménez | 1954 | - | Subinspector | Único que estuvo en los grises
 
 Las muertas y amistades diversas
 ---
