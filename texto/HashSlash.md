@@ -4254,7 +4254,7 @@ la pregunta de Roble sobre las finanzas de Demelza. El humo de la
 barbacoa a veces rodeaba a su cabeza y el resto de los participantes
 en la barbacoa a veces los rodeaban a ellos ofreciéndoles comida o
 bebida o, por el contrario, pidiéndoles bebida y comida. Una pausa en
-la conversación y una mirada inexcrutable eran, a veces, suficiente
+la conversación y una mirada inescrutable eran, a veces, suficiente
 para que se alejaran. Roble había registrado la firma electrónica de
 todos y los tenía almacenados. Para futura referencia. 
 
@@ -4276,14 +4276,16 @@ veces menos. Y luego, de gente, de fundaciones, de empresas... -
 
 —Ninguna que yo conozca, pero es que yo conozco pocas, bueno, algunas
 ponía «editorial» en el nombre, «servicios editoriales»,
-«*coching*»...
+«*coching*»... - dijo Cecilio - por cierto, de esto del *coching*, no
+te he contado una que... 
 
 —*Coaching* - dijo Roble.
 
 —Eso, *coaching*. Qué mijicas eres, cojones, qué más dará, si me
-entiendes... 
+entiendes... Bueno, lo que me pasó con uno de la esta, la Demelza, fue
+que... 
 
-—O sea que... - dijo Roble.
+—O sea que... - dijo Roble -, ¿gana? 
 
 —O sea que gana más que tú y que yo. Juntos - dijo Cecilio. Aunque
 enseguida pensó que él no tenía ni idea de lo que ganaba
