@@ -4247,14 +4247,24 @@ hiciera sólo, que al parecer también lo hacía.
 ## Una pasta
 
 —Una pasta, ya te lo digo -, efectivamente dijo Cecilio, contestando a
-la pregunta de Roble sobre las finanzas de Demelza.
+la pregunta de Roble sobre las finanzas de Demelza. El humo de la
+barbacoa a veces rodeaba a su cabeza y el resto de los participantes
+en la barbacoa a veces los rodeaban a ellos ofreciéndoles comida o
+bebida o, por el contrario, pidiéndoles bebida y comida. Una pausa en
+la conversación y una mirada inexcrutable eran, a veces, suficiente
+para que se alejaran. Roble había registrado la firma electrónica de
+todos y los tenía almacenados. Para futura referencia. 
 
 —Pero... ¿de dónde?
 
 La respuesta de Cecilio no llegó inmediatamente, porque tenía una
 chuleta sobre una rodaja de pan de dos dedos de profundidad en la mano
 y estaba tratando de morderla sin tener que soltar la cerveza de la
-otra mano. Finalmente mordió y deglutió lo suficiente como para seguir hablando
+otra mano. Finalmente mordió y deglutió lo suficiente como para seguir
+hablando. habría sido una pena que se derramara y le manchara la
+camiseta del Granada y el chándal de color rosa expuesto al sol y a
+lavados enérgicos más de
+lo aconsejable, pensó Roble.
 
 —A ver, todos los meses de Amazon, dos, tres mil, a veces más, pocas
 veces menos. Y luego, de gente, de fundaciones, de empresas... -
@@ -4276,14 +4286,23 @@ entiendes...
 enseguida pensó que él no tenía ni idea de lo que ganaba
 Roble. Exactamente lo mismo que pensó Roble, un minuto más tarde. 
 
-O sea que ganaba mucho dinero con sus libros, pero fuera la *industria
-tradicional*. O sea que querrían matarla, ¿por eso? ¿En serio?
+O sea que ganaba mucho dinero con sus libros, pero fuera de la *industria
+tradicional*. O sea que querrían matarla, ¿por eso? ¿En serio? El que
+la industria editorial contratara asesinos a sueldo sería, pensó
+Roble, algo digno del guión de una mala novela de las de a euro que se
+encuentran por millones en Amazon. Como las suyas. Y al pensar en
+ellas resistió la tentación de consultar el móvil para ver cómo iban
+las ventas. Y luego se alegró de haberlo hecho porque, comparadas con
+las de Demelza, serían ridículas. «Mi vecino coleccionaba motosierras»
+no había llegado todavía a la centena de ventas. Y todavía no se le
+ocurría que hacer para el siguiente ejemplar. 
 
 Roble miró la barbacoa y las bebidas que navegaban en cubos y en
 neveras de plástico por el suelo. No vio nada de su gusto y se fue. 
 
-Trató de encontrar la parada de autobús sin buscar nada en el móvil,
-pero finalmente sucumbió cuando llevaba media hora subiendo cuestas. 
+Trató de encontrar la parada de autobús sin introducir ningún  dato revelador en el móvil,
+pero finalmente sucumbió cuando llevaba media hora subiendo cuestas y
+lo hizo. 
 
 *>*
 
