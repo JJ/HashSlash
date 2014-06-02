@@ -23,7 +23,7 @@ Roble puso la boca en posición de "Ah", pero no dijo nada.
 —No estarás poniendo nada de esto -, dijo, haciendo un gesto señalando a su
 alrededor con la mano - en la Internet esa.
 
-Cecilio hizo un pequeño, pero creciente, esfuerzo para levantarse del sillón desfondado en el que se
+Cecilio hizo un inicialmente débil, pero paulatinamente más fuerte, esfuerzo para levantarse del sillón desfondado en el que se
 encontraba sentado.
 
 —No -, respondió Roble.
