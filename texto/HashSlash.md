@@ -583,7 +583,7 @@ que *la gente* te hable o te haga cosas.
 de la contestación que no tengo las más exiguas ganas de interaccionar
 con él; y si la pausa no es suficiente, la mirada. Que tampoco será
 suficiente, porque quien es camarero no lo es precisamente por haber
-hecho un máster.  
+hecho un máster en comprensión del lenguaje no verbal. 
 
 Y por eso es el tipo de personas a las que suelo contestar; a veces lo
 hago, si pienso que puedo darle una lección a alguien. Era
@@ -594,13 +594,13 @@ más volver. Del este, quizás.
 —¿Escribe? ¿Novelas? - la *s*, un poco sibilante, balcánica o del Cáucaso. - ¿Hay... ha publicado
 algo? 
 
-—Sí -, un sí para tres preguntas. Estaba empezando a cargarme. Me
+—Sí -, un sí para tres preguntas. Estaba empezando a cargarme. Pocas lecciones podía darle así que volvía al modo no-me-gusta-la-gente. Me
 levanté para irme, dirigiéndome hacia la barra y dejándolo atrás.
 
-—Yo  escribo también. Y mataría por publicar -, dijo, suspirando y
-dejando de barrer por un momento.
+—Yo  escribo también -, dijo, suspirando y
+dejando de barrer por un momento. - Y mataría por publicar.
 
-—A veces uno tiene que hacer lo que tiene que hacer -, le contesté.
+—En ocasiones uno tiene que hacer lo que tiene que hacer -, le contesté.
 
 Sin mirarle. Dejé el dinero del café sobre la barra y me
 largué. Todavía me quedaba más de una hora para llegar al puerto de Algeciras y
@@ -725,12 +725,12 @@ los contornos de tus nalgas. Y viceversa.
 
 A veces, el sillón es una persona.
 
-Cuando llego al puerto de Algeciras, a veces se ve el país que llamo,
-por lo pronto, mi hogar. A veces no. Hoy es de esos días. Hay
+Cuando llegue al puerto de Algeciras, a veces se ve el país que constituye,
+en el momento presente, mi hogar. A veces no. Hoy es de esos días. Hay
 nubarrones negros sobre el estrecho. De esos que los escritores suelen
 usar para reflejar un temperamento sombrío o un estado de ánimo
 tormentoso en los personajes. Pero sólo son nubes. Y yo me siento
-estupendamente. Por, ya saben. La misión cumplida y eso. 
+estupendamente. Por, ya saben. La misión cumplida y eso. Final satisfactorio, si bien con un ligero tufo a *ex machina*. *Machina* de matar, Es bueno, pero no espero que se rían.
 
 De repente, un rayo de sol abre las nubes y crea una isla de luz muy
 cerca de mi coche, dentro del que espero que la cola avance para
@@ -739,7 +739,7 @@ introducirlo en las fauces del paquebote.
 Es mentira. Sigue nublado. ¿Por qué diablos iba a salir un rayo de luz
 para nadie? Pero os he hecho creer que sí, ¿verdad? 
 
-Así somos los escritores.
+Así somos los escritores. Ni siquiera estoy metido en el coche ni lo voy a meter el en paquebote. Voy por la carretera y he visto un cartel con una imagen naïf de un barco que anuncia venta de tickets para el ferry. Inspirador. 
 
 
 Asuntos propios
@@ -911,7 +911,7 @@ La condición humana. No encuentro nada nuevo en ella, nada que me sorprenda. Me
 sorprendía cuando era un chaval ahí, en Barbate. Todavía siento algo
 cuando veo en la autovía las indicaciones que lo mencionan, Barbate,
 32 kilómetros, salida Barbate Norte, como si hubiera suficiente
-Barbate para que tuviera un norte y un sur. Además, Barbate es sólo
+Barbate para que tuviera un norte y un sur. Además, Barbate Norte es un lugar imaginario, Barbate es sólo
 Sur, un sur profundo donde todo el mundo es como tiene que ser y hace
 lo que tiene que hacer. 
 
@@ -924,7 +924,7 @@ La pieza es pequeñita, pero tiene los bordes dentados. Como las
 piedras que le tiramos, desde las marismas del río, a aquel helicóptero. Y
 lo hicimos porque teníamos que hacerlo, porque el helicóptero de la
 Benemérita iba a descender e impedirnos que cargásemos los fardos que
-acababan de aligerar  de la lanzadera. Fardos que eran la vida de mi
+acababan de aligerar  de la lanzadera. Fardos que, acarreados al lugar indicado, eran la vida de mi
 familia durante un par de meses. Uno, si mi tío se pasaba bebiendo,
 que solía pasarse, pero sólo Fino La Ina, de la mejor calidad. Decía,
 el pobre, que cuando uno pillaba la curda de Fino La Ina se creía
@@ -942,23 +942,23 @@ lucidez que transcurrían entre que llegaba de trabajar en el atún y se
 idiotizaba con el vaso lleno de Don Simón blanco, siempre blanco, le
 parecía más fino, enfrente de la tele. 
 
-No era a esta familia a la que iba a salvar la vida cuando, con el
+No era a esta familia a la que iba a arreglar la vida de forma temporal cuando, con el
 tirachinas y los balines en los bolsillos de los pantalones,
 pantalones de esos de la mili, que eran los mejores para ir a las
 recogidas en la playa, me unía a la mitad del pueblo esperando a las
 lanzaderas. A la Silvia y al Rafael nadie los salvaba ya de esa vida
-en una casamata de garbanzos con bacalao y vino en cartones o en
+en una casamata a base de garbanzos con bacalao y vino en cartones o en
 botellas que rellenan en la bodega. Era a mi, primero, y segundo, al
 tío Isma, el hermano de mi madre que me regaló un Rólex el día de mi
-comunión y desde entonces fue mi héroe. Y mi patrón, al que entregaba
+comunión y desde entonces fue mi héroe y mi maestro. Y mi patrón, al que entregaba
 todo lo que ganaba, luego la mitad, luego algo. Y cuando volví de la
 cárcel, nada. El duque Ismael era, entonces, un filósofo renegrido
 que, a la puerta de las tabernas, te cantaba o te narraba historias
 inventadas por un chato de vino.  
 
-Tampoco me sorprendió. ¿Cómo podía sorprenderme? Sí me sorprendería
-que siguiera vivo ahora, casi veinte años más tarde. O no, porque no
-pienso salirme de mi ruta para comprobarlo.  
+Tampoco me sorprendió hallarlo así. ¿Cómo podía sorprenderme? Sí me sorprendería
+que siguiera vivo ahora, casi veinte años más tarde. Pero no va haber sorpresas, porque no
+pienso salirme de mi ruta, el camino a mi hogar, para comprobarlo.
 
 
 ## Identidad
