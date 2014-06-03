@@ -290,7 +290,7 @@ Huir tampoco es fácil
 {: .writer}
 
 En realidad sí lo es. Y mancha mucho menos que cualquier
-cosa que uno haya hecho para necesitar embarcarse en tal huida.
+actividad que uno haya realizado para necesitar embarcarse en tal huida.
 
 Durmiendo con un cadáver. Y luego despertando.
 ---
@@ -392,14 +392,14 @@ Consejos para una huida
 -----
 {: .writer}
 
-La gente piensa que el factor más importante cuando te encuentras en la
-condición de fugitivo es la velocidad del movimiento. No tienen ni idea. Lo más parecido a una huida que conocen es
+La gente común piensa que la característica más determinante cuando posees la
+condición de fugitivo es la velocidad de tu movimiento. La gente común no tiene ni idea. Lo más parecido a una huida que conocen es
 cuando han escapado de un ex cambiándose de acera.
 
-Lo más importante es no mearse. 
+Lo más importante es no mearte. 
 
-Tener ganas de mear significa no poder centrarse en el asunto entre manos
-para concentrarse en el asunto entre piernas. Significa que tienes que
+Tener ganas de mear significa no poder centrarte en el asunto entre manos
+para tener que hacerlo en el asunto entre piernas. Significa que tienes que
 pararte. O significa que tienes que llevar un pañal.
 
 ¿Qué pasa? La gente lleva pañal. Es un inconveniente, pero no tanto
@@ -411,9 +411,9 @@ Pero lo mejor es no tener que hacérselo ni encima ni en el pañal.
 Ergo: nada de café. Nada de agua. Nada de colas ni bebidas energéticas
 ni diuréticos endulzados.
 
-—¿Desea tomar algo más?
+—¿Desea tomar algo más? - me pregunta el camarero. 
 
-—Sí, un vasito de agua para después del café, si es tan amable.
+—Sí, un vasito de agua para después del café, si es tan amable-, le contesto.
 
 Porque ¿quién está  huyendo?. Yo no. Sólo soy un escritor.
 
