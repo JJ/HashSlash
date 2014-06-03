@@ -1139,7 +1139,7 @@ la cabeza indicándole que se largara.
 ## Motivaciones
 {: .writer}
 
-La ciudad de mi infancia. Barbate. Tú sales de ella, para siempre, pero ella no sale de ti. Larache, en realidad, es Barbate. 
+La ciudad de mi infancia. Barbate. Tú sales de ella, para siempre, pero ella no sale de ti. Larache, mi hogar, en realidad, es Barbate. 
 
 No te estoy diciendo esto, en realidad. Lo estoy pensando. Tampoco lo
 estoy pensando, lo está pensando un personaje. Y todo esto te da igual
@@ -1148,7 +1148,7 @@ parecen un poco a Algeciras, a donde llego y devuelvo el coche
 alquilado, que son unos geniales vehículos con la anonimidad
 programada de serie. Nadie repara en un coche alquilado. No tiene nada
 personal, nada distinguible, colores anodinos, ninguna pegatina de
-equipo de fútbol, nada. Olvidables. 
+equipo de fútbol, nada. Olvidables. Y si no le añades adminículos modernos que te sigan la pista, también desmemoriados. 
 
 En Barbate no había donde alquilar coches, pero
 los olores, la luz, el Levante que sopla durante semanas y hace que la
@@ -1156,7 +1156,7 @@ gente se vuelva loca o que no haya nada que echarse a la boca
 si no te metes en algo que, si la cosa viene mal dada, te pondrá enfrente de
 un juez. 
 
-Y más tarde enfrente de una puerta grande con las palabras Prisión Provincial encima, aunque cuando entras lo haces en una furgoneta y no llegas a verlo, ni siquiera cuando pasas al otro lado. Sólo hay rejas y tedio y gente que sabe mucho y otras que ignoran hasta el planeta en el que viven. Como en cualquier otro sitio, en el ferry que me llevará a mi casa. 
+Y más tarde enfrente de una puerta imponente con las palabras Prisión Provincial grabadas en piedra encima, aunque cuando entras lo haces en una furgoneta y no llegas a verlas, ni siquiera cuando pasas al otro lado. Sólo hay rejas y tedio y gente que sabe mucho y otras que ignoran hasta el planeta en el que viven. Como en cualquier otro sitio, por ejemplo en el ferry que me llevará a mi casa. 
 
 Pero allí me hice la persona que soy.
 
@@ -1169,7 +1169,7 @@ no eres escritor. Yo sí.
 Y es que nadie recuerda su primer café. ¿Por qué recuerdan su primer
 beso y su primer polvo y no su primer café? Ese primer café fue el que
 te inició en una vida de adicción y de electrodomésticos y de
-psiconáutica cafeínica que durará toda tu vida. El que hizo que,
+psiconáutica teobromínica que durará toda tu vida. El que hizo que,
 veinte años más tarde, fueras incapaz hasta de hacerte un café hasta
 que no te tomaras el primer café. Pero nadie se acuerda. Y el primer
 café sí que te hace la persona que eres. No la cárcel.  
