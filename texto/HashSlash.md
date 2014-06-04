@@ -4541,20 +4541,19 @@ foto de algún graffiti surgido en la última noche.
 {: writer}
 
 El traqueteo y bullicio en el tren hasta Alcazarquivir ayudó considerablemente
-a que se asentara en mi un estado que, si no era equivalente a la
-serenidad, al menos se acercaba lo suficiente para que mi amigo Abdelatif
+a que se asentara en mi un estado que, si no se podía llamar de forma precisa
+serenidad, al menos se acercaba lo suficiente para que el encuentro con mi amigo Abdelatif
 Akalay me colocara con plenitud en ella. La paciencia necesaria para emprender un
 viaje que empieza cuando parte el tren y termina cuando llega, sin
 tener la más mínima pista de cuando va a suceder lo primero ni lo
-segundo, también me situó en un estado mental adecuado para lo que
+segundo, también me situó en un estado mental adecuado para que
 todo ello sucediera. 
 
-Y no uso amigo a la ligera. Lo es en todos los sentidos de la
+Aquí no uso amigo a la ligera. Lo es en todos los sentidos de la
 palabra. Amigo es a quien le puedes dar un sablazo, dos o tres sin que
 se resienta lo más mínimo tu amistad. A quien puedes acudir buscando
-serenidad sin que él te moleste buscando lo mismo. Y a quien puedes
-tratar con desdén o indiferencia sin que la relación se resienta lo
-más mínimo. Ese es Abdelatif.
+serenidad sin que él te perturbe buscando lo mismo o algo totalmente diferente. Y a quien puedes
+tratar con desdén o indiferencia sin que la relación se resienta un ápice. Ese es Abdelatif.
 
 Cuando llegué al café Al Menara, el podía llevar allí horas, o días, o
 haber salido de su casa, que nunca visité, un minuto antes, avisado
