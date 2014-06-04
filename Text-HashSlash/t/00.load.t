@@ -46,9 +46,11 @@ $clean_text =~  s/\{:.+?\}//g;
 my @words = split /\s+/, $clean_text;
 my $word_re = qr/([a-zA-Z'áéíóúÁÉÍÓÚñÑü]+)/;
 
+my $prev_word = '';
 for my $w (@words) {
   my ($stripped_word) = ( $w =~ $word_re );
-  ok( $speller->check( $stripped_word), "Checking $stripped_word in text")   if ( $stripped_word ) ;
+  ok( $speller->check( $stripped_word), "Checking $prev_word $stripped_word in text")   if ( $stripped_word ) ;
+  $prev_word = $stripped_word;
 }
 
 for my $a (keys %{$hashslash->appendices()}) {
