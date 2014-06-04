@@ -5224,28 +5224,28 @@ Y la ventana de comunicación con los matarifes llegó.
 Y la ventana de comunicación no pasó.
 
 Los llamé desde una cabina que todavía funcionaba con monedas, en un
-pasillo lóbrego al que daban también varias puertas sin marcar. Tras
+pasillo lóbrego al que daban también varias puertas sin identificar. Tras pronunciar en el auricular
 las palabras clave de rigor, una frase que no esperaba oir. 
 
 —Hemos pillado una enfermedad incurable, tío.
 
-Es decir, hemos asesinado al objetivo. Si sólo hubiera salido
-malherida, habría sido una enfermedad leve.
+Es decir, hemos asesinado al objetivo, cumplido la misión. Escrito el último capítulo. Si sólo hubiera salido
+malherida, sólo habrían hablado de cualquier pejiguera mínima, un resfriado o un orzuelo. Dependiendo de, ya saben. Dónde.
 
 —No sabes cuanto lo siento, Bohdan. 
 
 Y lo cierto era que lo sentía. Lo sentía porque no me lo esperaba y no
 me gustan las cosas inesperadas. Y lo sentía porque ahora tendría que
-pagarles lo prometido. Y también oía en algún lado a mi sargento, jefe
+pagarles lo prometido, lo que me creaba un problema de liquidez temporal. Y también oía en algún lado a mi sargento, jefe
 de proyecto se le llamaba en los presupuestos que las FML presentaban,
 «No te fíes de nadie y mucho menos del enemigo». Por eso la palabra no
-basta, nunca basta.
+basta, nunca basta. Ellos lo sabían.
 
 —Me han llegado las pruebas hoy. Te las mando con Borís. 
 
 Es decir, me llegarían unas cuantas imágenes cifradas en un mensaje
-que, para casi cualquiera, parecería un correo basura que trataba de
-hacerse con las claves de uno y que se mandaba masivamente a
+que, para casi cualquiera, parecería un correo basura de los que trata de
+arrebatar las claves de uno y que se mandaba masivamente a
 muchísimas direcciones. Ninguna de las cuales sabía descifrar el
 mensaje y alguno de cuyos usuarios, quizás, quién sabe, picara y mira,
 un dinero que podrían obtener.
@@ -5258,9 +5258,9 @@ Cuentas, coordenadas, todo eso. Pero a estas alturas ya lo sabéis,
 
 Así continuamos un rato, preguntando por diferentes familiares
 inexistentes y todos con los nombres lituanos más comunes que pudimos
-encontrar.
+encontrar y que acordamos. Por si alguien estaba escuchando. Qué tontería. Directamente, para quien estuviera escuchando. 
 
-Me sentí, al terminar, un poco aliviado. Capítulo terminado antes de
+Pasado el efecto de la sorpresa me sentí, al terminar, un poco aliviado. Capítulo terminado antes de
 empezar el siguiente. 
 
 Mi único deseo era, que en este caso, fuera de verdad un *The End*. No un
