@@ -739,7 +739,7 @@ introducirlo en las fauces del paquebote.
 Es mentira. Sigue nublado. ¿Por qué diablos iba a salir un rayo de luz
 para nadie? Pero os he hecho creer que sí, ¿verdad? 
 
-Así somos los escritores. Ni siquiera estoy metido en el coche ni lo voy a meter el en paquebote. Voy por la carretera y he visto un cartel con una imagen naïf de un barco que anuncia venta de tickets para el ferry. Inspirador. 
+Así somos los escritores. Ni siquiera estoy metido en el coche ni éste va a ser introducido, a su vez, el en paquebote. Voy por la carretera y he visto un cartel con una imagen kitsch de un barco que anuncia venta de tickets para el ferry. Inspirador. 
 
 
 Asuntos propios
