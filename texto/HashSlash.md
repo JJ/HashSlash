@@ -909,15 +909,15 @@ humana nunca dejaría de sorprenderle.
 ## Condición humana
 {: .writer}
 
-La condición humana. No encuentro nada nuevo en ella, nada que me sorprenda. Me
-sorprendía cuando era un chaval ahí, en Barbate. Todavía siento algo
+La condición humana. Ahora, hoy, no encuentro nada nuevo en ella, nada que me sorprenda. Me
+sorprendía cuando era un chaval ahí, en Barbate. Es posible que esa sea la razón por la que todavía me recorre un amago de estremecimiento
 cuando veo en la autovía las indicaciones que lo mencionan, Barbate,
 32 kilómetros, salida Barbate Norte, como si hubiera suficiente
 Barbate para que tuviera un norte y un sur. Además, Barbate Norte es un lugar imaginario, Barbate es sólo
-Sur, un sur profundo donde todo el mundo es como tiene que ser y hace
-lo que tiene que hacer. 
+Sur, un sur profundo donde todo el mundo es como no le queda otro remedio que ser y hace
+lo que no le queda otro remedio que hacer. 
 
-Esa sacudida que siento no es realmente una sacudida. Sentimental, quiero
+Ese conato de estremecimiento que siento nunca deviene en sacudida. Sentimental, quiero
 decir. Es simplemente un asalto a las neuronas de los recuerdos, o más
 bien coma una pieza de un puzzle que encaja, dejando el retrato de una
 persona completo. El retrato es mío, claro.  
