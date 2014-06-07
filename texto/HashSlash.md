@@ -1,6 +1,6 @@
 <!--- -*-  eval: (typopunct-mode 1) -*- -->
 
-<h1>#slash</h1>
+<h1>#slash: La muerta de verdad</h1>
 
 ## Prólogo
 
