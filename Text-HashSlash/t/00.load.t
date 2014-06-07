@@ -38,7 +38,6 @@ my $dir = $hashslash->abs_dir();
 
 diag( "Testing Text::HashSlash $Text::HashSlash::VERSION in $dir" );
 
-#$speller->add_dic("$dir/words.dic");
 $speller->set_option('personal',"$dir/.aspell.es.pws");
 
 my $clean_text = $hashslash->text;
@@ -46,9 +45,12 @@ $clean_text =~  s/\{:.+?\}//g;
 my @words = split /\s+/, $clean_text;
 my $word_re = qr/([a-zA-Z'áéíóúÁÉÍÓÚñÑü]+)/;
 
+my $prev_word = '';
 for my $w (@words) {
   my ($stripped_word) = ( $w =~ $word_re );
-  ok( $speller->check( $stripped_word), "Checking $stripped_word in text")   if ( $stripped_word ) ;
+  ok( $speller->check( $stripped_word), "Checking $prev_word $stripped_word in text")   if ( $stripped_word ) ;
+  $prev_word = $stripped_word || '';
+  
 }
 
 for my $a (keys %{$hashslash->appendices()}) {

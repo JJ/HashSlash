@@ -1,4 +1,4 @@
-<!--- -*-  eval: (typopunct-mode 1); eval: (typopunct-change-language: english) -*- -->
+<!--- -*-  eval: (typopunct-mode 1) -*- -->
 
 <h1>#slash</h1>
 
@@ -34,31 +34,38 @@ leyendo tendrás que acudir a la web o esperar a la salida del segundo libro.
 —¿Cuál? - le contestó Roble, sin dejar de teclear con los dos
 pulgares en su móvil.
 
-—Como, ya sabes -, hizo una pequeña pausa. Roble siguió tecleando.
+—Como, ya sabes -, dijo Cecilio, haciendo una pequeña pausa. Roble
+siguió tecleando.
+
+Cecilio suspiró.
 
 —El que está introducido en el tercer espacio intercostal de la
-víctima - dijo, chasqueando la lengua.
+víctima -, continuó, chasqueando la lengua.
+
 Roble puso la boca en posición de "Ah", pero no dijo nada.
 
 —No estarás poniendo nada de esto -, dijo, haciendo un gesto señalando a su
 alrededor con la mano - en la Internet esa.
 
-Cecilio hizo un pequeño, pero creciente, esfuerzo para levantarse del sillón desfondado en el que se
+Cecilio hizo un inicialmente débil, pero paulatinamente más fuerte, esfuerzo para levantarse del sillón desfondado en el que se
 encontraba sentado.
 
 —No -, respondió Roble.
 
-—Ah. Vayamos a pollas-, volvió a sentarse Cecilio, el mayor de los
-dos. Una vez hundido en el sillón, se cerró el abrigo sobre las
-rodillas. Eran cerca de las diez de la mañana de un día de enero, estaba
-nublado y la temperatura en el interior del piso era escasamente
+—Ah. Vayamos a pollas-, dijo Cecilio. Volvió a sentarse, haciendo un
+gesto de cansancio. Una vez hundido en el sillón, se cerró el abrigo sobre las
+rodillas. 
+
+Eran cerca de las diez de la mañana de un día de enero. Había
+amanecido nublado y el mutis del sol y el aire que venía de la sierra
+hacía que la temperatura en el interior del piso era escasamente
 diferente de la que hacía al final de la carretera de la Sierra. En
 ninguno de los dos casos tenía más de una cifra significativa. 
 
 —Realmente... - Dijo Roble, levantando la cara del móvil y
 poniendo una expresión similar a esta :-) - ¿Qué cuchillo? 
 
-—El de la muerta. - Hizo una pausa e intentó levantarse de nuevo,
+—El de la muerta -, dijo Cecilio. Hizo una pausa e intentó levantarse de nuevo del sillón,
 sin lograrlo. - Espera, ¿qué coño has puesto? Afú, qué tropa.  
 
 Roble aprovechó la pausa para dejar el móvil en su
@@ -66,10 +73,11 @@ regazo y hacer copa con las manos para calentárselas.
 
 —Nada -, dijo Roble, mientras pensaba "sólo un poco de #escenadelcrimen en Instagram".  Ya tenía más 
 de veinte *me gusta*. Cecilio hizo un esfuerzo para intentar ver qué era lo que
-había en la pantalla. Se distinguían borrones rojos y figuras
+había en la pantalla del móvil de Roble. Se distinguían borrones rojos y figuras
 geométricas de color naranja. Poco más. Ninguna cara, nada
 distintivo que permitiera reconocer ni al sitio, ni a la
-víctima. Menos mal. 
+víctima. Menos mal. Si al final el miedo que le tenía el Roble este a
+la sangre y carnicería iba a ser una suerte. 
 
 —Cuidao con la polla... - Frunció ligeramente el ceño haciendo minería de
 datos de sus memorias de la academia de policía, casi treinta años
@@ -83,8 +91,8 @@ golpeado dos veces sobre sus pantallas, hecho *me gusta* sobre las
 fotos que el avatar de Roble había subido; Roble vio que llevaba veinticinco ya. Y en Twitter
 casi los mismos, con el doble de RTs.  
 
-—Lo que te decía, el cuchillo. De Ikea. - retomó el tema Cecilio, haciendo que el ritmo de tecleo
-de Roble variara.
+—Lo que te decía, el cuchillo. De Ikea, - retomó el tema Cecilio, haciendo que el ritmo de tecleo
+de Roble variara de forma perceptible. 
 
 —[Gynnsam](http://www.ikea.com/es/es/catalog/products/50134950/)-,
 dijo Roble, esforzándose en hacer una *n* lo suficientemente larga
@@ -96,12 +104,11 @@ poco los ojos.
 —No, el mango es así como triangular, y no tiene las tachuelas -, dijo
 Cecilio. 
 
-Se
-levantó con el móvil en la mano y fue a la habitación donde se encontraba el cadáver. Se oyó el
+Se levantó con el móvil en la mano y fue a la habitación donde se encontraba el cadáver. Se oyó el
 chasquido de la aplicación al hacer una foto. Roble arrugó los labios y alzó
 las cejas.
 
-—Has aprendido -, dijo Roble a modo de halago. Cecilio simplemente
+—Has aprendido -, dijo Roble, y a Cecilio le sonó a halago. Cecilio simplemente
 le mostró la foto en la que aparecía un mango negro con churretes
 marrones, triangular, aparentemente hincado en un montón de tela
 también con chafarrinones negros, marrones y rojos oscuros. Rojo
@@ -118,24 +125,25 @@ mensaje del que hablaba. Efectivamente, un blog americano de crímenes
 reales le compraba las fotos. Ahora no le quedaría otro remedio que
 acercarse a la chica. O que Cecilio lo siguiera haciendo.
 
-—Sí. Novelas -, le dijo a Cecilio. 
+—Sí. Novelas -, le dijo a Cecilio, - mías. 
 
 —Pues decía no sé qué de fotos. Joder, Robles, que la policía no es
 tonta -, dijo, riéndose de su propia gracia. - Tú verás lo que haces,
 pero si te cae un paquete a mi no me líes. 
 
-Roble seguía moviendo los dedos y golpeando la pantalla el teléfono.
+Roble seguía moviendo los dedos y golpeando la pantalla del móvil.
 
 —El app de Ikea. No funciona -, dijo Roble, que seguía pegado al
 teléfono.- Normal.  
 
-Era normal que no funcionara cuando la prístina forma de un cuchillo
+Era normal que no funcionara cuando la prístina forma óptima de un cuchillo
 diseñado por ingenieros industriales suecos estaba cubierto por todo
 tipo de sustancias orgánicas.  A los algoritmos de análisis de imagen
-les daba un pequeño ataque.
+les daba un pequeño ataque y el app de reconocimiento de productos de
+Ikea decidía renunciar a dar un vaticinio sobre el producto. 
 
 —¿Hay un app para eso? - Preguntó Cecilio, curioso. - ¿Para saber qué
-cosa de Ikea es?
+cosa de Ikea es un cuchillo o lo que sea?
 
 —Hay apps para *todo* -, señaló al mueble que sostenía la televisión -
   [Byaaas](http://www.ikea.com/es/es/catalog/products/80227797/). - 
@@ -150,18 +158,21 @@ cosa de Ikea es?
   ¿verdad? 
   
 Cecilio se rió de su propia gracia. Roble volvió al móvil, que acababa
-de emitir el tono que indicaba, de nuevo, que había llegado un
-mensaje.  
+de emitir el tono que indicaba la llegada de algún tipo de mensaje. 
   
- —Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? - Le alargó el móvil a Cecilio. 
+ —Paco, el secretario judicial, - dijo Roble.- Tardará. ¿Más fotos? -
+ Le alargó el móvil a Cecilio. - ¿Huellas?
  
  —¿Y por qué no las echas tú con tu polla? - le contestó Cecilio,
  socarrón,  extendiendo la mano para recibir el
  móvil. Roble también sonrió, asumiendo la respuesta como parte de esa seña de
  identidad llamada *malafollá granaína* que todavía, después de dos
- años de destino, seguía tratando de aprender. 
+ años de destino, seguía tratando de aprender. - ¿Huellas? ¿De veras
+ que este chisme también hace eso? - preguntó, mostrándolo en alto y
+ señalándolo. Roble, como contestación, asintió. 
  
-Cecilio volvió al cabo de un minuto. Sus pies se pegaban al suelo,
+Cecilio volvió al cabo de un minuto. A sus zapatos les costaba trabajo
+despegarse del suelo,
 recubierto de una sustancia pegajosa compuesta de capas de mugre y de
 diversos hidratos de carbono depositados de forma más o menos uniforme
 en el suelo tras caer de los vasos y manos de los asistentes a la
@@ -174,9 +185,22 @@ carnicería que venía de la habitación donde la muerta,
 irremediablemente, se descomponía. Le vino una náusea pero la combatió
 al recordar que tendría que pasar por el cuarto de baño que estaba, justamente, al lado de la
 habitación donde se encontraba el cadáver. Cecilio le dio una palmada
-en la espalda, lo que casi hizo que se le volviera a salir el vómito. 
+en la espalda, lo que casi hizo que se le volviera a salir el
+vómito. El app de huellas, el apropiadamente llamado Fingar, mostraba
+una barra de progreso pequeña como las posibilidades reales de que
+encontrara algo, pero nunca se sabía. La gente iba dejándose huellas
+en los sitios más insospechados, y ligarlas a un perfil social era tan
+fácil como recolectarlas. El app valía todo el medio bitcoin que había
+pagado con él. Pero cuando había avanzado una tercera parte de la
+pantalla, el móvil vibró, dijo «Gotcha» y mostró una foto y un nombre,
+Cristina Ródenas. 
 
-—La compañera de piso -, dijo Roble. Seguía durmiendo. Dos chicas en
+—La compañera de piso -, dijo Roble. El novio de la víctima, antes de
+que hubiera que llevárselo con un ataque de ansiedad, había acertado al menos a dar unos cuantos nombres
+de personas cercanas. Y al hacer un registro a la casa, se la habían
+encontrado roncando ruidosamente en su cuarto, impertérrita. 
+
+En ese momento, casi una hora más tarde, seguía durmiendo. Dos chicas en
 un piso de tres dormitorios, que podían permitirse, imaginaba Roble, porque estaba lejos
 de cualquier facultad y prácticamente de todo. Aún así, había
 vislumbrado en las fotos mobiliario que estaba muy por encima de los
@@ -217,7 +241,7 @@ Clínico le preguntaremos. Pero vamos, que no.
 
 —Mira las fotos. El cuchillo.
 
-—Espera. - Pasó el dedo unas cuantas veces por el móvil - Un
+—Espera -, dijo Roble. Pasó el índice unas cuantas veces por el móvil - Un
 [ñistra](http://www.ikea.com/es/es/catalog/products/00149317/). 
 
 —La posición del cuchillo, el ángulo, - hizo movimientos de Bates
@@ -246,7 +270,9 @@ miran, Ángulo, altura, ese tío tan largo es culpable, ese no.
 
 —Qué -, contestó Cecilio, apoyando el puño sobre su muslo. 
 
-—Quique. El periodista. - Aparentemente, Quique había visto que Roble había hecho check-in en
+—Quique. El periodista. 
+
+Aparentemente, Quique había visto que Roble había hecho check-in en
 FourSquare en el barrio y me acaba de poner un *me gusta* en él. - Viene.
 
 —Cuidao con la polla y con el chismecico. Porque se ha enterado por el
@@ -263,7 +289,7 @@ morros -, le contestó Cecilio.
 Roble no dijo nada y siguió golpeando con la yema de los dedos y la
 ocasional uña la pantalla de su móvil, cambiando de aplicación.
 
-—Mira, dicen que... - movió el
+—Mira, dicen que... - Movió el
 pulgar verticalmente, pasando algo por la pantalla - el color de la
 sangre - movió pulgar y corazón, ampliando algo - indica que... es auténtica.
 
@@ -289,7 +315,7 @@ Huir tampoco es fácil
 {: .writer}
 
 En realidad sí lo es. Y mancha mucho menos que cualquier
-cosa que uno haya hecho para necesitar embarcarse en tal huida.
+actividad que uno haya realizado para necesitar embarcarse en tal huida.
 
 Durmiendo con un cadáver. Y luego despertando.
 ---
@@ -307,10 +333,9 @@ en su habitación, pero justamente lo que necesitaba a esa hora.
 No la
 había encontrado en la cocina. Quizás su compañera Demelza tuviera. O
 si no, quien quiera que anduviera por la casa, que llevaba oyendo el
-chirrido de los muebles del salón durante un rato. Efectivamente, allí
-había dos personas. 
+trajín en el salón y crujidos en sus muebles durante un rato. 
 
-Serían amigos de Demelza. O restos de la fiesta. Uno de ellos sí podría haber estado en la fiesta de lanzamiento del día anterior. Incluso lo
+Efectivamente, desde el pasillo vislumbró a dos tíos. Serían amigos de Demelza. O escombros de la fiesta. Uno de ellos sí podría haber estado en la fiesta de lanzamiento del día anterior. Incluso lo
 recordaba, junto con unas trescientas caras y unos cuantos culitos preciosos. Tenía el pelo
 castaño rizado y peinado de forma que huyera de los laterales de la
 cabeza. Llevaba una
@@ -366,9 +391,9 @@ mortadela debajo del sofá y ahora los ácidos grasos se estaban
 hidrolizando. Cuando Demelza se levantara, habría que ponerse a
 limpiar rápidamente. Alguien tendría que hacerlo, vamos. 
 Que el suelo esté pegajoso se puede aguantar y es
-algo inherente a cualquier piso de estudiantes. Pero el olor... Eso sí
-que no. Además, es posible que huela un poco a... No. eso no, nunca. 
-
+algo que va de suyo en cualquier piso de estudiantes. Pero el olor... Eso sí
+que no. Además, es posible que huela un poco a... No. eso no,
+nunca.
 — Vale, vale. No pasa nada. Me voy a hacer un café. ¿Queréis algo? -
 dijo, mirando a hipster de nuevo. Este miró al otro, como si pidiera
 permiso. El otro no dijo nada, pero se echó mano al bolsillo, sacó un
@@ -391,18 +416,18 @@ Consejos para una huida
 -----
 {: .writer}
 
-La gente piensa que lo más importante a la hora de huir es moverse muy
-rápidamente. No tienen ni idea. Lo más parecido a una huida que conocen es
+La gente común piensa que la característica más determinante cuando posees la
+condición de fugitivo es la velocidad de tu movimiento. La gente común no tiene ni idea. Lo más parecido a una huida que conocen es
 cuando han escapado de un ex cambiándose de acera.
 
-Lo más importante es no mearse. 
+Lo más importante es no mearte. 
 
-Tener ganas de mear significa no poder estar centrado en el asunto entre manos
-para concentrarse en el asunto entre piernas. Significa que tienes que
+Tener ganas de mear significa no poder centrarte en el asunto entre manos
+para tener que hacerlo en el asunto entre piernas. Significa que tienes que
 pararte. O significa que tienes que llevar un pañal.
 
 ¿Qué pasa? La gente lleva pañal. Es un inconveniente, pero no tanto
-como mearse encima. Es la diferencia entre ser un hediondo y no
+como el haberse meado encima. Es la diferencia entre ser un hediondo y no
 serlo. 
 
 Pero lo mejor es no tener que hacérselo ni encima ni en el pañal.
@@ -410,9 +435,9 @@ Pero lo mejor es no tener que hacérselo ni encima ni en el pañal.
 Ergo: nada de café. Nada de agua. Nada de colas ni bebidas energéticas
 ni diuréticos endulzados.
 
-—¿Desea tomar algo más?
+—¿Desea tomar algo más? - me pregunta el camarero. 
 
-—Sí, un vasito de agua para después del café, si es tan amable.
+—Sí, un vasito de agua para después del café, si es tan amable-, le contesto.
 
 Porque ¿quién está  huyendo?. Yo no. Sólo soy un escritor.
 
@@ -433,7 +458,7 @@ que la presencia de Roble estuviera asociada, desde el principio, con una
 compañera asesinada. No es una buena forma de presentarte. “Hola, soy
 poli, tu compi ha muerto y, por casualidad, ¿no la habrás matado tu?“.
 
-—Menuda fiestuqui anoche, ¿eh? - dijo Roble, a modo de gancho para tratar de pescar algo sobre el conocimiento de Tina de la situación. 
+—Menuda fiestuqui anoche, ¿eh? - dijo Roble, lanzándolo como un anzuelo  para tratar de pescar algo sobre el conocimiento de Tina de la situación. 
 
 —Sí, ¿verdad? -, contestó Tina, un poco más animada tras haberse bebido
 el zumo de naranja de un trago y haber empezado con el café con leche
@@ -489,7 +514,7 @@ pudo evitar sonreír. El humor negro le ganaba, aunque fuera él mismo quien lo 
 —No, espera, Demelza...sí, estuvo, pero yo no la vi desde las dos o las tres. ¿O
 las una? Espera, cuando nos quedamos con el Riki y la Santi y nos... -
 le dio una risita - No, había un grupo de tíos un poco raros ahí,
-chungos, y pasamos de ellos, pero Demelza... no sé, no me
+chungos, y pasamos de ellos, pero esta... no sé, no me
 acuerdo. Estaría en su habitación cuando acabamos. O se habría ido.
 
 —Las fotos... - Roble había visto ya el perfil de Facebook de Tina,
@@ -516,8 +541,8 @@ recibiera el impacto de la muerte de su compañera trataría de sacarle
 algo más. No una confesión de culpabilidad, claro. No parecía que supiera nada, y lo sabía, no parecía fácil pillarla en un
 renuncio. Pero había que intentarlo.
 
-—Demelza... - empezó diciendo. Tina parecía de ese tipo de personas
-que necesitaban rellenar con palabras la conversación, al menos si no
+—Demelza... - empezó diciendo Roble. Tina parecía de ese tipo de personas
+que necesitaban rellenar con palabras el espacio entre dos personas, al menos si no
 estaba, como en ese momento, entretenida mirando fotos en el móvil.
 
 —Sí, oye, ¿llevaba mucho rato el novio dentro? Es que fíjate cómo
@@ -530,8 +555,8 @@ estás diciendo”-. No, bueno, no mejor, si ella al fin y al cabo...
 
 —Ea -, dijo, rotundamente, Roble. 
 
-—Fíjate, el otro día... - Tina comenzó un relato complejo y con muchas
-hebras de algo que empezó con la compra de yogures en el supermercado
+—Fíjate, el otro día... - Tina comenzó un relato complejo, con muchas
+hebras y un elenco de personajes extenso de algo que empezó con la compra de yogures en el supermercado
 y terminó con la pérdida de un cargador del móvil. - ¡Y ni siquiera
 era de ella! 
 
@@ -582,7 +607,7 @@ que *la gente* te hable o te haga cosas.
 de la contestación que no tengo las más exiguas ganas de interaccionar
 con él; y si la pausa no es suficiente, la mirada. Que tampoco será
 suficiente, porque quien es camarero no lo es precisamente por haber
-hecho un máster.  
+hecho un máster en comprensión del lenguaje no verbal. 
 
 Y por eso es el tipo de personas a las que suelo contestar; a veces lo
 hago, si pienso que puedo darle una lección a alguien. Era
@@ -593,13 +618,13 @@ más volver. Del este, quizás.
 —¿Escribe? ¿Novelas? - la *s*, un poco sibilante, balcánica o del Cáucaso. - ¿Hay... ha publicado
 algo? 
 
-—Sí -, un sí para tres preguntas. Estaba empezando a cargarme. Me
+—Sí -, un sí para tres preguntas. Estaba empezando a cargarme. Pocas lecciones podía darle así que volvía al modo no-me-gusta-la-gente. Me
 levanté para irme, dirigiéndome hacia la barra y dejándolo atrás.
 
-—Yo  escribo también. Y mataría por publicar -, dijo, suspirando y
-dejando de barrer por un momento.
+—Yo  escribo también -, dijo, suspirando y
+dejando de barrer por un momento. - Y mataría por publicar.
 
-—A veces uno tiene que hacer lo que tiene que hacer -, le contesté.
+—En ocasiones uno tiene que hacer lo que tiene que hacer -, le contesté.
 
 Sin mirarle. Dejé el dinero del café sobre la barra y me
 largué. Todavía me quedaba más de una hora para llegar al puerto de Algeciras y
@@ -724,12 +749,12 @@ los contornos de tus nalgas. Y viceversa.
 
 A veces, el sillón es una persona.
 
-Cuando llego al puerto de Algeciras, a veces se ve el país que llamo,
-por lo pronto, mi hogar. A veces no. Hoy es de esos días. Hay
+Cuando llegue al puerto de Algeciras, a veces se ve el país que constituye,
+en el momento presente, mi hogar. A veces no. Hoy es de esos días. Hay
 nubarrones negros sobre el estrecho. De esos que los escritores suelen
 usar para reflejar un temperamento sombrío o un estado de ánimo
 tormentoso en los personajes. Pero sólo son nubes. Y yo me siento
-estupendamente. Por, ya saben. La misión cumplida y eso. 
+estupendamente. Por, ya saben. La misión cumplida y eso. Final satisfactorio, si bien con un ligero tufo a *ex machina*. *Machina* de matar, Es bueno, pero no espero que se rían.
 
 De repente, un rayo de sol abre las nubes y crea una isla de luz muy
 cerca de mi coche, dentro del que espero que la cola avance para
@@ -738,7 +763,7 @@ introducirlo en las fauces del paquebote.
 Es mentira. Sigue nublado. ¿Por qué diablos iba a salir un rayo de luz
 para nadie? Pero os he hecho creer que sí, ¿verdad? 
 
-Así somos los escritores.
+Así somos los escritores. Ni siquiera estoy metido en el coche ni éste va a ser introducido, a su vez, el en paquebote. Voy por la carretera y he visto un cartel con una imagen kitsch de un barco que anuncia venta de tickets para el ferry. Inspirador. 
 
 
 Asuntos propios
@@ -875,25 +900,27 @@ eventualmente, se fue.
 
 ## Sentido y sensibilidad
  
-Tina no estaba tampoco, en ese momento, en condiciones de responder a muchas
-preguntas. Cecilio le pidió que le hiciera una lista de las personas
-que habían asistido a la fiesta más adelante, pero por el momento que tratara de recordar cuando había
+En otro lugar de Granada, Cecilio se dio cuenta de que Tina no estaba tampoco, en ese momento, en condiciones de responder a muchas
+preguntas. Le pidió que le hiciera una lista de las personas
+que habían asistido a la fiesta más adelante, pero por el momento que tratara de recordar cuándo había
 visto a Demelza por última vez. Dejó la pregunta sobre drogas y
 cualquier otra actividad ilegal de la difunta para más adelante. Total, acabaría
-saliendo. Esas cosas siempre salían. Tina le contestó entre hipidos,
+saliendo. Esas cosas siempre salían. Tina le contestó entre hipidos;
 había dejado de verla a partir de las una o las dos de la mañana. 
 
 —¿Había alguien extraño en la fiesta? - le preguntó, finalmente. Tina
 dejó de secarse los ojos y lo miró.
 
-—A partir de cierta hora, *todos* éramos extraños.
+—A partir de cierta hora, *todos* éramos extraños - le contestó Tina, con
+esfuerzos visibles para no dejar los ojos en blanco antes de hacerlo. 
 
-No tenía mucho más que preguntarle, por lo pronto. Se la pasó, como había prometido, a Quique. Móvil en mano, éste le
+A Cecilio esa respuesta le dejó un tanto bloqueado; ninguna pregunta
+más se le vino a la mente a partir de ese momento. Así que se la pasó, como había prometido, a Quique. Móvil en mano, éste le
 preguntó:
 
 —¿Cómo se siente por la muerte de su compañera de piso?
 
-Cécil no se sorprendió en absoluto de que, una vez más, los periodistas
+Cecilio no se sorprendió en absoluto de que, una vez más, los periodistas
 hicieran grandes esfuerzos para sacar de dentro de cada persona los
 tópicos que contenían. Sin embargo, la respuesta fue
 
@@ -906,24 +933,24 @@ humana nunca dejaría de sorprenderle.
 ## Condición humana
 {: .writer}
 
-La condición humana. Nada nuevo en ella, nada que me sorprenda. Me
-sorprendía cuando era un chaval ahí, en Barbate. Todavía siento algo
+La condición humana. Ahora, hoy, no encuentro nada nuevo en ella, nada que me sorprenda. Me
+sorprendía cuando era un chaval ahí, en Barbate. Es posible que esa sea la razón por la que todavía me recorre un amago de estremecimiento
 cuando veo en la autovía las indicaciones que lo mencionan, Barbate,
 32 kilómetros, salida Barbate Norte, como si hubiera suficiente
-Barbate para que tuviera un norte y un sur. Además, Barbate es sólo
-Sur, un sur profundo donde todo el mundo es como tiene que ser y hace
-lo que tiene que hacer. 
+Barbate para que tuviera un norte y un sur. Además, Barbate Norte es un lugar imaginario, Barbate es sólo
+Sur, un sur profundo donde todo el mundo es como no le queda otro remedio que ser y hace
+lo que no le queda otro remedio que hacer. 
 
-Ese algo que siento no es realmente algo. Sentimental, quiero
+Ese conato de estremecimiento que siento nunca deviene en sacudida. Sentimental, quiero
 decir. Es simplemente un asalto a las neuronas de los recuerdos, o más
 bien coma una pieza de un puzzle que encaja, dejando el retrato de una
 persona completo. El retrato es mío, claro.  
 
 La pieza es pequeñita, pero tiene los bordes dentados. Como las
-piedras que le tiramos, desde las marismas del río, al helicóptero. Y
+piedras que le tiramos, desde las marismas del río, a aquel helicóptero. Y
 lo hicimos porque teníamos que hacerlo, porque el helicóptero de la
-Benemérita iba a descender e impedirnos que cargáramos los fardos que
-acababan de descargar de la lanzadera. Fardos que eran la vida de mi
+Benemérita iba a descender e impedirnos que cargásemos los fardos que
+acababan de aligerar  de la lanzadera. Fardos que, acarreados al lugar indicado, eran la vida de mi
 familia durante un par de meses. Uno, si mi tío se pasaba bebiendo,
 que solía pasarse, pero sólo Fino La Ina, de la mejor calidad. Decía,
 el pobre, que cuando uno pillaba la curda de Fino La Ina se creía
@@ -941,21 +968,23 @@ lucidez que transcurrían entre que llegaba de trabajar en el atún y se
 idiotizaba con el vaso lleno de Don Simón blanco, siempre blanco, le
 parecía más fino, enfrente de la tele. 
 
-No era a esta familia a la que iba a salvar la vida cuando, con el
+No era a esta familia a la que iba a arreglar la vida de forma temporal cuando, con el
 tirachinas y los balines en los bolsillos de los pantalones,
 pantalones de esos de la mili, que eran los mejores para ir a las
 recogidas en la playa, me unía a la mitad del pueblo esperando a las
 lanzaderas. A la Silvia y al Rafael nadie los salvaba ya de esa vida
-en una casamata de garbanzos con bacalao y vino en cartones o en
+en una casamata a base de garbanzos con bacalao y vino en cartones o en
 botellas que rellenan en la bodega. Era a mi, primero, y segundo, al
 tío Isma, el hermano de mi madre que me regaló un Rólex el día de mi
-comunión y desde entonces fue mi héroe. Y mi patrón, al que entregaba
+comunión y desde entonces fue mi héroe y mi maestro. Y mi patrón, al que entregaba
 todo lo que ganaba, luego la mitad, luego algo. Y cuando volví de la
 cárcel, nada. El duque Ismael era, entonces, un filósofo renegrido
 que, a la puerta de las tabernas, te cantaba o te narraba historias
 inventadas por un chato de vino.  
 
-Tampoco me sorprendió. ¿Cómo podía sorprenderme? Sí me sorprendería que siguiera vivo ahora, casi veinte años más tarde. O no, porque no pienso salirme de mi ruta para comprobarlo. 
+Tampoco me sorprendió hallarlo así. ¿Cómo podía sorprenderme? Sí me sorprendería
+que siguiera vivo ahora, casi veinte años más tarde. Pero no va haber sorpresas, porque no
+pienso salirme de mi ruta, el camino a mi hogar, para comprobarlo.
 
 
 ## Identidad
@@ -980,19 +1009,23 @@ atrás.  Escucha oportunista que, pensó Roble, las redes sociales nunca podría
 emular. Legalmente, al menos.
 
 —No, los vídeos son muy de principio de década. Ahora lo que la peña
-demanda es el texto, ¿sabes?. Más portable, más ubicuo, más profundo,
+demanda es el texto, ¿sabes? Más portable, más ubicuo, más profundo,
 más modos de
-interacción. Más largo, más oportunidades de interacción, más
+interacción. Más largo, más oportunidades de interactividad, más
 posibilidades de viralidad, ¿no?
 
-Su compañero o compañera emitió un sonido para indicar continuidad en la
+Su compañero o compañera emitió un sonido para indicar reconocimiento de continuidad en la
 comunicación. Quien hablaba, una persona que, por la voz, podría tener
-tanto la edad de Cecilio como la de Roble como una situada entre las dos, continuaba. Las gafas de
+tanto la edad de Cecilio como la de Roble como una cualquiera situada
+entre las dos, continuaba. 
+
+Mientras tanto, las gafas de
 Roble habían recolectado las firmas electrónicas de todos los
 pasajeros del autobús y ya
 sabía, al menos, si se había encontrado con ellos alguna vez. Con un
-poco de suerte, podía tener alguna información adicional y asociar la
-firma electrónica a una persona. 
+poco de suerte, podía captar alguna información adicional y asociar la
+firma electrónica a una persona. Y eso, a su vez, se almacenaba para
+cuando pudiera resultar útil. 
 
 —No requiere nada, en realidad. Un vídeo son tres minutos, y luego es
 como, ahora qué veo,
@@ -1013,11 +1046,12 @@ sociales, ¿sabes? Después de eso, leerlos es un extra, pero no es
 estrictamente necesario, ¿te das cuenta?
 
 Roble se entretuvo mirando el perfil en las redes sociales de la chica muerta, Demelza. Ahí
-estaban sus compras de libros, efectivamente. Una cantidad
+había compartido sus compras de libros, efectivamente. No resultaba difícil ver
+qué le servía de inspiración: una cantidad
 considerable de títulos que incluían referencias tórridas o
 abiertamente eróticas. Y ahí estaban sus propios libros publicados y
 las felicitaciones correspondientes, algunas veces miles de ellas. *69
-tonos de 0XEEE* parecía uno de los más populares, con historias que
+tonos de 0XEEE* parecía uno de los más populares, con mensajes en el perfil que
 hablaban de cómo escalaba los puestos de ventas y cómo había alcanzado
 mil ventas y luego mil quinientas, dos mil... *Rearrancando tus
 sentimientos* parecía también bastante popular, y *Fundiéndote la
@@ -1050,50 +1084,55 @@ Amazon no revela las ventas, pero el de las velas parecía estar en el tramo de 
 decenas de miles con más venta que indicaba que habría vendido quizás
 uno en las últimas horas. Igual decía la verdad.
 
-—Pues invítame a una caña. - contestó el amigo, o, más concretamente,
+—Pues invítame a una caña -, contestó el amigo, o, más concretamente,
 compañero de asiento en el autobús. 
 
 ## Los muertos no hablan, los vivos sí.
 
-El walkie de Cecilio emitió un sonido. Estaba de nuevo en el salón del
+El *walkie* de Cecilio emitió un trino. Se encontraba de nuevo en el salón del
 piso donde había sucedido el asesinato, evitando sentarse en el sillón caníbal y esperando que salieran
-los agentes de criminalística, que habían entrado hacía unos
+los funcionarios de criminalística, que habían entrado hacía unos
 minutos junto con el médico en la habitación donde se encontraba el
-cadáver. La jueza y el secretario judicial no andaban lejos,
+cadáver. La jueza y el secretario judicial no andarían lejos,
 posiblemente en el pasillo, porque en la habitación era improbable que
 cupieran todos.
 
 —Inspector, una tipa aquí que quiere subir porque dice que vive ahí o
-no sé qué.
+no sé qué, - oyó que le decía desde el *walkie* alguno de los agentes
+que estaba en la puerta.. 
 
-—¿Qué?
+—¿Qué? - contestó Cecilio. 
 
-La tal Tina estaba sentada en el sofá donde ellos habían estado
-sentado antes. Tras el breve berrinche se había puesto a disposición
+A menos que una consecuencia de la edad provecta de cincuenta años
+fuera que se le había olvidado totalmente la capacidad de contar,
+en el piso vivían dos chicas. Una estaba de cuerpo presente, y la tal Tina estaba sentada en el sofá donde ellos habían estado
+sentados antes. Tras el breve berrinche se había puesto a disposición
 de los agentes, posiblemente para asegurarse de que no rompían nada y
-después de trastear un rato en su propia habitación, “arreglándose“,
+después de trastear un rato en su propia habitación, «arreglándose»,
 decía. 
 
-—Aguántala ahí -, dijo Cecilio por el walkie.
+—Aguántala ahí -, dijo Cecilio por el *walkie*. Tina no reaccionó. 
 
 —Jefe, no sé si querrá...
 
-—Lavín, compae, que se espere, cojones.
+—Lavín, compae, que se espere, cojones -, dijo Cecilio, intentando no
+gritar. 
 
-—Es que...
+—Es que... 
 
 Cecilio cortó la comunicación. Le puso una mano en el hombro a Tina
-que estaba concentrada jugando en el móvil. Le habían pedido que no
+que estaba concentrada jugando en el móvil, con todo lo sucedido
+aparentemente ya olvidado. Le habían pedido que no
 dijera nada a nadie, pero seguro que ya lo había puesto en tres redes
 sociales diferentes.
 
-—Tina, ¿quienes vivís aquí?
+—Tina, ¿quiénes vivís aquí? - preguntó Cecilio, como con curiosidad. 
 
 —Bueno, Demelza y yo, pero Demelza está muerta, - se le escapó una
 risita -, así que yo sola. 
 
-—¿Nadie más? ¿Ningún amigo o amiga que venga de vez en cuando,
-conocido, familiar del dueño? Son tres dormitorios, ¿no?
+—¿Nadie más? - insistió Cecilio- ¿Ningún amigo o amiga que venga de vez en cuando,
+conocido, familiar de los dueños? Son tres dormitorios, ¿no?
 
 —Sí, pero el tercero no lo usamos, bueno, sí lo usamos, pero vamos, no
 vive nadie, vivir, lo que se dice vivir, vamos.
@@ -1102,60 +1141,70 @@ Cecilio se quedó pensando.
 
 —¿Me puedes acompañar un momento?
 
-Bajaron un tramo de escaleras, Cecilio delante, Tina unos escalones
-por detrás. Tina no dejó el móvil ni un momento, sus pies conocían el
+Tina lo siguió. Bajaron un tramo de escaleras, Cecilio delante, Tina unos escalones
+por detrás, sin dejar el móvil ni un momento, sus pies conocían el
 camino. 
 
-—¡Tinaaa! - Oyó Cecilio cuando se pusieron a la vista de la puerta. 
+—¡Tinaaa! - Oyó Cecilio cuando se pusieron a la vista de la puerta de
+entrada al bloque. Una voz femenina con ciertos matices de haber sido
+usada intensivamente el día anterior. 
 
 —¿Demelza? - dijo Tina, metiéndose el móvil en el bolsillo y bajando
 las escaleras de dos en dos.
 
-—¿Te han...? - comenzó a decir Demelza, pero Tina se abalanzó sobre
-ella y le dio un abrazo, chillando a la vez.
+—¿Te han...? - comenzó a decir Demelza, pero Tina la acalló abalanzándose sobre
+ella y dándole un abrazo, chillando a la vez.
 
 El agente de la puerta y Cecilio se miraron, el primero con una
 sonrisa socarrona. Cecilio se rascó el círculo depilado
-involuntariamente y en continuo aumento de su cabeza. Quique, que
+involuntariamente y en continuo aumento de la parte más alta de su cabeza. Quique, que
 estaba por los alrededores, se asomó al portal y le hizo un gesto
 inquisitivo con la cabeza, levantándola, seguido por otro señalando con
-la barbilla a la amalgama de dos chicas. Cecilio abrió las manos
+la barbilla a la amalgama de las dos chicas. Cecilio abrió las manos
 indicándole que no tenía ni idea y le hizo dos gestos simétricos con
 la cabeza indicándole que se largara.
 
 ## Motivaciones
 {: .writer}
 
-La ciudad de mi infancia. Barbate. Tú sales de ella, para siempre, pero ella no sale de ti. Larache, en realidad, es Barbate. 
+La ciudad de mi infancia. Barbate. Tú sales de ella, para siempre, pero ella no sale de ti. Larache, mi hogar, en realidad, es Barbate. 
 
 No te estoy diciendo esto, en realidad. Lo estoy pensando. Tampoco lo
 estoy pensando, lo está pensando un personaje. Y todo esto te da igual
 porque no has estado nunca ni en Larache ni en Barbate. Los dos se
-parecen un poco a Algeciras, donde llego y devuelvo el coche
+parecen un poco a Algeciras, a donde llego y devuelvo el coche
 alquilado, que son unos geniales vehículos con la anonimidad
-programada de serie. En Barbate no había donde alquilar coches, pero
-los olores, la luz, el aire que sopla durante semanas y hace que la
-gente se vuelva loca o que hace que no haya nada que echarse a la boca
-si no haces algo que, si la cosa viene mal dada, te pondrá enfrente de
+programada de serie. Nadie repara en un coche alquilado. No tiene nada
+personal, nada distinguible, colores anodinos, ninguna pegatina de
+equipo de fútbol, nada. Olvidables. Y si no le añades adminículos modernos que te sigan la pista, también desmemoriados. 
+
+En Barbate no había donde alquilar coches, pero
+los olores, la luz, el Levante que sopla durante semanas y hace que la
+gente se vuelva loca o que no haya nada que echarse a la boca
+si no te metes en algo que, si la cosa viene mal dada, te pondrá enfrente de
 un juez. 
 
-Y luego enfrente de una puerta grande con las palabras Prisión Provincial encima, aunque cuando entras lo haces en una furgoneta y no llegas a verlo, ni siquiera cuando pasas al otro lado. Sólo hay rejas y tedio y gente que sabe mucho y otras que ignoran hasta el planeta en el que viven. Como en cualquier otro sitio, en el ferry que me llevará a mi casa. 
+Y más tarde enfrente de una puerta imponente con las palabras Prisión Provincial grabadas en piedra encima, aunque cuando entras lo haces en una furgoneta y no llegas a verlas, ni siquiera cuando pasas al otro lado. Sólo hay rejas y tedio y gente que sabe mucho y otras que ignoran hasta el planeta en el que viven. Como en cualquier otro sitio, por ejemplo en el ferry que me llevará a mi casa. 
 
 Pero allí me hice la persona que soy.
 
-Lo que también es mentira. Porque me hice lo que soy allí, aquél día en clase de lengua y literatura en el que presté atención, un día que me saqué mocos y no me vio nadie y cuando me tomé mi primer café.
+Lo que también es mentira. Porque me hice lo que soy allí, aquél día
+en clase de lengua y literatura en el que presté atención, otro día
+que me saqué mocos y no me vio nadie y cuando me tomé mi primer
+café. ¿Tú recuerdas el día que te tomaste el primer café? ¿No? Por eso
+no eres escritor. Yo sí. 
 
 Y es que nadie recuerda su primer café. ¿Por qué recuerdan su primer
 beso y su primer polvo y no su primer café? Ese primer café fue el que
 te inició en una vida de adicción y de electrodomésticos y de
-psiconáutica cafeínica que durará toda tu vida. El que hizo que,
+psiconáutica teobromínica que durará toda tu vida. El que hizo que,
 veinte años más tarde, fueras incapaz hasta de hacerte un café hasta
-que no te hicieras el primer café. Pero nadie se acuerda. Y el primer
+que no te tomaras el primer café. Pero nadie se acuerda. Y el primer
 café sí que te hace la persona que eres. No la cárcel.  
 
 Pero sí hay una posibilidad, quizás remota, de que yo no hubiera sido
-escritor si no hubiera estado en la cárcel. Si la costa del Atlántico
-y el Levante no me hubieran colocado enfrente de un juez. Si no
+escritor si no hubiera estado en la cárcel. Si la costa del Atlántico,
+la miseria y ese aire malhadado que viene del Este no me hubieran colocado enfrente de un juez. Si no
 hubiera tirado con un tirachinas un rodamiento de bolas a un
 helicóptero de vigilancia aduanera. Mira, como ese que se ve. Por
 babor. 
@@ -1163,18 +1212,18 @@ babor.
 
 ## Vuelta al ruedo
 
-—¿Quién es la muerta? - preguntó Roble.
+—¿Quién es la muerta? - preguntó Roble por teléfono. 
 
-—Ainhoa González Tovar -, dijo Cecilio, mirando a cierta distancia el
-DNI que cogía con los guantes.
+—Ainhoa González Tovar -, dijo Cecilio, alejando el DNI que cogía con
+los guantes hasta que fue capaz de leerlo.
 
-Roble se frotó los ojos y le dio una palmada a la pulsera, que le
-avisaba insistentemente para que se fuera a dormir. 
+Roble se frotó los ojos y le dio un manotazo a la pulsera, que le
+avisaba insistentemente para que se fuera a dormir, para acallarla. 
 
 La llamada de Cecilio le había pillado subiendo la cuesta del Barranco
 del Abogado hacia su
 casa, desde donde una cama confortable y cálida parecía llamarle. Pero
-quien le había llamado había sido Cecilio o, en plan más general, *el
+quien le había llamado, en realidad, había sido Cecilio o, en plan más general, *el
 deber* y había sustituido su cama por una bebida energética que había
 comprado por el camino en una tienda de inmigrantes orientales
 posiblemente ilegales. 
@@ -1206,7 +1255,8 @@ o sea que era de la muerta.
 Roble miró el DNI y le hizo una mueca a Cecilio. 
 
 —La de verdad. A partir de ahora, la muerta de verdad será la muerta
-de verdad. La otra, sólo *la muerta*, - dijo Cecilio.
+de verdad. La otra, sólo *la muerta*, - dijo Cecilio, haciendo la
+marca de las comillas en el aire. 
 
 —Pero... -, objetó Roble. 
 
@@ -1214,7 +1264,17 @@ de verdad. La otra, sólo *la muerta*, - dijo Cecilio.
 tajante con la mano, Cecilio.
 
 Roble miró de reojo a Tina que, apoyada en una pared, charlaba
-animadamente con Demelza. Esta, sin embargo, miraba con cierto
+animadamente con Demelza, pero se paró en la propia Demelza. Tenía el
+pelo castaño, liso y recogido en una coleta, pero, aún así, parecía
+rubia. Quizás por los ojos claros, o quizás porque el tono de la piel
+era tostado, algo intermedio entre cabina de rayos UVA y moreno de la
+sierra que, de alguna forma, sugería las dos cosas. Si el tono hubiese
+sido ligeramente más oscuro podría haber sido sacerdotisa de Kali o estrella de
+Bollywood. Y con el pelo más rubio podría haber sido Scarlett Johansson
+de incógnito. En un caso o en otro, Roble sintió que podía ser más
+adictiva que un juego de pájaros en un móvil. 
+
+Demelza no parecía ser consciente en ese momento de la atención de Roble. Miraba con cierto
 nerviosismo hacia la puerta del pasillo que daba a su habitación,
 de donde procedían ruidos de frotar de plásticos, de fotos disparadas
 y de indicaciones monosilábicas de un miembro del equipo de
@@ -1569,14 +1629,27 @@ ella algo si se lo permitía. Le mandó un mensaje de vuelta.
 “Estoy ahí en quince minutos.“
 
 ## Sombreros
+{: writer}
 
 Es que tampoco tengo gustos complicados. Por eso Miriam, cuando llego, no hace nunca nada complicado. Eso sí, lo hace siempre que se lo digo. Mañana, tarde o noche. Cualquier necesidad que un hombre pueda tener. O creer tener. 
 
-Quizás me ame. Pero, sinceramente, no es algo que me preocupe. El amor es una necesidad complicada. En la cárcel aprendí a no tenerlas. Las necesidades complicadas causaban, de forma totalmente natural, muchas complicaciones. Y en la cárcel casi todas las necesidades eran complicadas. El tabaco era complicado. El sexo era complicado. La soledad y la compañía, todo era complicado. El tedio era complicado, lo era la excitación. 
+Quizás me ame. Pero, sinceramente, no es algo que me preocupe. El amor
+es una emoción complicada, que crea necesidades
+complicadas. Presencia, afecto, reciprocidad. 
 
-A la ausencia de todo deseo le llaman los japoneses *zen*. No aspiro a tanto. Yo deseo. Deseo publicar, ver en un escaparate los libros del Escritor. Y para cumplir ese deseo, y que se siga cumpliendo, a veces hay que desear otras cosas y a veces son complicadas. Deseo que Demelza muera, porque así me lo han pedido, y es la condición para cumplir mis otros deseos.
+Necesidades complicadas. En la cárcel aprendí a no tenerlas. Las
+necesidades complicadas causaban, de forma totalmente natural,
+inherente, intrínseca, muchas complicaciones. Y en la cárcel casi
+todas las necesidades eran complicadas. El tabaco era complicado. El
+sexo era complicado. La soledad y la compañía, todo era complicado. El
+tedio era complicado, lo era la excitación.  Había, por tanto, que
+aprender a evitarlas, a controlarlas, a esquivarlas. Las necesidades
+crean deseos, los deseos necesidades. 
 
-Pero ahora deseo olvidarme de todo ello por unos momentos. Y no es un deseo complicado, porque estoy en Larache y en Larache está Miriam. 
+A la ausencia de todo deseo le llaman los japoneses *zen*. No aspiro a tanto. Yo deseo. Deseo publicar, ver en un escaparate los libros del Escritor. Y para cumplir ese deseo y que se continúe cumpliendo, a veces hay que desear otras cosas y a veces son complicadas. Deseo que Demelza muera, porque así me lo han pedido y es la condición para cumplir mis otros deseos.
+
+Pero ahora deseo olvidarme de todo ello por unos momentos. Y no es un
+deseo complicado, porque estoy en Larache y en Larache está Miriam.  
 
 ## Mientras tanto, en un lugar de la periferia granadina
 
