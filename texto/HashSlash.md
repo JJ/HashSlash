@@ -1629,7 +1629,7 @@ ella algo si se lo permitía. Le mandó un mensaje de vuelta.
 “Estoy ahí en quince minutos.“
 
 ## Sombreros
-{: writer}
+{: .writer}
 
 Es que tampoco tengo gustos complicados. Por eso Miriam, cuando llego, no hace nunca nada complicado. Eso sí, lo hace siempre que se lo digo. Mañana, tarde o noche. Cualquier necesidad que un hombre pueda tener. O creer tener. 
 
