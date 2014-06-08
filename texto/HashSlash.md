@@ -1,6 +1,8 @@
 <!--- -*-  eval: (typopunct-mode 1) -*- -->
 
-<h1>#slash</h1>
+<h1>#slash: El fin del capítulo</h1>
+
+## Libro 2 de la serie El Escritor
 
 ## Prólogo
 
@@ -59,7 +61,7 @@ Código bla bla bla artículo bla bla bla caso bla bla bla sentencia bla
 bla bla.
 
 ## Escribir es sufrir
-{: writer}
+{: .writer}
 
 Sufra usted primero, le dijo algún famoso escritor ruso a un no tan
 famoso escritor en ciernes. Es posible que fuera un escritor
@@ -1428,7 +1430,7 @@ sistema operativo de su casa para hacerlo más seguro, ya era la
 segunda vez que se lo saltaba. 
 
 ## Finales felices
-{: writer}
+{: .writer}
 
 Y es que a los escritores nos gustan los finales felices, pero a la
 vez sorprendentes. Por eso el llevar a su conclusión ilógica pero
@@ -1700,7 +1702,7 @@ Se abrió una ventana en el ordenador para indicarle que Demelza estaba
 en la puerta.
 
 ## El zoco
-{: writer}
+{: .writer}
 
 Aunque no necesito hacerlo, o quizás precisamente por ello, me gusta
 pasear por el zoco de Larache. No como el viejo que va buscando el bullicio, ni
@@ -1869,7 +1871,7 @@ mucho que cambie de ruta, quién sabe...
 
 
 ## Qué horas son mi corazón
-{: writer}
+{: .writer}
 
 ¿Qué hora será ahora en Lituania? Pero la pregunta no es esa.
 
@@ -2267,7 +2269,7 @@ citara al tal Daniel en el
 juzgado. Se imaginaba a la media docena mirándolo con cara de asombro. Mejor pensado, no podía imaginarse lo que podía pasar por la cabeza ni estar haciendo ninguno de ellos en ese momento. En realidad, estaban los seis escribiendo mensajes de Whatsapp en el móvil. 
 
 ## De hoy no pasa
-{: writer}
+{: .writer}
 
 No pude ni siquiera pasear por la orilla del mar al amanecer, cuando
 solía. Me revolví en la cama y ni siquiera llamar a Miriam, para
@@ -2317,8 +2319,6 @@ Roble sonrió. Levemente, claro. Volvió a pensar en asesinos y en
 Demelza. Y luego cayó en que no le habían devuelto el mando del
 garaje, así que dejó de sonreír.
 
-<<<<<<< HEAD
-=======
 ## En el círculo de la droga
 
 Marisol lo esperaba en su despacho, situado en la comisaría
@@ -2489,7 +2489,7 @@ trotaba por las cuestas pedregosas del Barranco del Abogado y sacaba
 foto de algún graffiti surgido en la última noche. 
 
 ## Había lo que había
-{: writer}
+{: .writer}
 
 El traqueteo y bullicio en el tren hasta Alcazarquivir ayudó considerablemente
 a que se asentara en mi un estado que, si no se podía llamar de forma precisa
@@ -2873,7 +2873,7 @@ YouWriteNow, por lo pronto, estaría satisfecho. Roble, por el momento, también
 Todavía había un asesino suelto. Y Nacho en el garaje. Pero en ese momento Roble no pensaba en ellos. 
 
 ## Qué coño hago yo en Dinamarca
-{: writer}
+{: .writer}
 
 Una vez que uno se hace a la idea de volar de cualquier manera, sigue
 siendo una forma elevada de hastío, pero al menos se hace uno a la
@@ -2962,7 +2962,7 @@ una cuenta corriente.
 Pero eso no lo hacía automáticamente un criminal. 
 
 ## Vuelta
-{: writer}
+{: .writer}
 
 Me habría gustado volver a Vilna. Una vez estuve allí. No, en
 realidad no estuve. Era de ese tipo de misiones de las FML que
@@ -3081,8 +3081,6 @@ compañero de turno para hablar con él.
 
 ## Chuletas
 
-*seguir*
-=======
 —Suena un teléfono -, dijo alguien en el patio de Cecilio. Alguien que
 confiaba especialmente en sus habilidades para reconocer sonidos de
 teléfono o en la falta de las mismas en el resto de la gente que lo
@@ -3107,7 +3105,7 @@ teléfono.
 —Sí -, contestó Roble. Y colgó.
 
 ## La CIA y el librero
-{:writer}
+{: .writer}
 
 Os voy a hacer una pregunta. ¿Qué servicio de espionaje llega hasta el
 último lugar del planeta? ¿Y puede saber la vida, los hábitos, los
@@ -3167,7 +3165,7 @@ incomprensibles y despedidas amistosas.
 de nuevo. O piensa, si es que no lo has hecho ninguna vez antes.
 
 ## Deudas pendientes
-{:writer}
+{: .writer}
 
 Y la ventana de comunicación con los matarifes llegó. 
 
