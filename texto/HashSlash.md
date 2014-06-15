@@ -4312,11 +4312,49 @@ neveras de plástico por el suelo. No vio nada de su gusto.
 
 Giró la cabeza en la dirección a la puerta, sacudió la mano al la altura de la barriga, primero en dirección a Cecilio y a continuación en dirección al resto, y se fue. Al abrir la cancela de salida oyó:
 
--¿Un café tampoco? - Lo ignoró. El café que pudiera hacer su compañero Cecilio le resultaba inimaginable. 
+-¿Un café tampoco? - Lo ignoró. El café que pudiera tener en su casa su compañero Cecilio le resultaba inimaginable. 
 
 Trató de encontrar la parada de autobús sin introducir ningún  dato revelador en el móvil,
 pero finalmente sucumbió cuando llevaba media hora subiendo cuestas y
 lo hizo. 
+
+## O sea que
+
+Cecilio tenía las neuronas policiales anuladas por el exceso de
+hidratos de carbono, proteínas y alcohol, y una cantidad considerable
+de humo, que había absorbido. Esa era razón suficiente para justificar
+que no entendiera absolutamente nada de lo que su compañero podía
+estar haciendo o pensando. ¿Qué importancia podía tener cuánto dinero
+ganaba? ¿Ella y el resto? Si lo recibía por el banco, y tributaba a
+Hacienda, que somos todos, tampoco podía ser tan malo como para ser la causa
+un asesinato, ¿no? No de ella, de alguien. Nadie mata por dinero y más
+si ese dinero está a buen recaudo, teóricamente, claro, en un banco. Y
+éste debía estar a buen recaudo, porque era el mismo banco en el que
+lo tenía Cecilio. Seguro que a ella le regalaban más tostadoras y
+aparatos electrónicos que a él, que conseguía bien pocos por el breve
+tránsito que sus emolumentos hacían por el susodicho banco camino de
+financieras, empresas de tarjetas de crédito y demás.
+
+—¿Qué te pasa, que estás mohino? — le preguntó su mujer, que se le
+había acercado por detrás — ¿Quieres otra cerveza? ¿Está caliente esa?
+
+Cecilio levantó la cerveza y la movió, en un movimiento que nada tenía
+que ver con dilucidar su temperatura. 
+
+—Sí — le contestó, y le alargó la lata — gracias, guapa – le dijo,
+sonriendo y recibiendo una sonrisa cansada como respuesta. 
+
+Una cerveza le ayudaría a pensar mejor. O le quitaría la sed. Se
+levantó y se fue hacia un grupo de vecinos sentados en el poyete, que
+levantaron sus cervezas al verlo acercarse.
+
+—O sea, que ya tenéis al asesino — le dijo uno. — La policía no es
+tonta, ¿a que sí?
+
+La policía quizás no. Pero este policía, en este momento, se sentía un
+poco inútil. Le pegó a la cerveza un largo trago y se metió en la
+conversación, que ya había rebasado la fase familiar para adentrarse
+en los procelosos terrenos del deporte. 
 
 *>*
 
