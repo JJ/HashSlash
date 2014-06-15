@@ -4335,7 +4335,7 @@ aparatos electrónicos que a él, que conseguía bien pocos por el breve
 tránsito que sus emolumentos hacían por el susodicho banco camino de
 financieras, empresas de tarjetas de crédito y demás.
 
-—¿Qué te pasa, que estás mohino? — le preguntó su mujer, que se le
+—¿Qué te pasa, que estás mohíno? — le preguntó su mujer, que se le
 había acercado por detrás — ¿Quieres otra cerveza? ¿Está caliente esa?
 
 Cecilio levantó la cerveza y la movió, en un movimiento que nada tenía
