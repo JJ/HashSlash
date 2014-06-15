@@ -4299,9 +4299,10 @@ las de Demelza, serían ridículas. «Mi vecino coleccionaba motosierras»
 no había llegado todavía a la centena de ventas. Y todavía no se le
 ocurría que hacer para el siguiente ejemplar. 
 
-—Venga, tómate algo -, le dijo Cecilio. - Ya que te has pegado el viaje, ¿no?.
+—Venga, tómate algo - le dijo Cecilio, alzando su lata de Alhambra,
+roja, dorada y brillante con la condensación. - Ya que te has pegado el viaje, ¿no?
 
-Roble miró proteínas en forma de carne desnaturalizándose poco a poco por el calor barbacoa y  bebidas que navegndo en cubos y en
+Roble miró proteínas en forma de carne desnaturalizándose poco a poco por el calor barbacoa y  bebidas  navegando en cubos y en
 neveras de plástico por el suelo. No vio nada de su gusto.
 
 —Gracias - contestó, llevándose la palma a la barriga - pero ya... - hizo una espiral alrededor de su ombligo, notando con desagrado que había cierta cantidad de carne allí. La separó rápidamente. - No. Gracias.
