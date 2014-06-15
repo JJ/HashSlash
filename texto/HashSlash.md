@@ -45,7 +45,7 @@ ninguno de los dos casos tenía más de una cifra significativa.
 poniendo una expresión similar a esta :-) - ¿Qué cuchillo? 
 
 —El de la muerta -, dijo Cecilio. Hizo una pausa e intentó levantarse de nuevo del sillón,
-sin lograrlo. - Espera, ¿qué coño has puesto? Afú, qué tropa.  
+sin lograrlo. - Espera, ¿qué coño has puesto? Afú, qué panda me viene tocando...  
 
 Roble aprovechó la pausa para dejar el móvil en su
 regazo y hacer copa con las manos para calentárselas. 
@@ -4287,12 +4287,12 @@ que...
 
 —O sea que... - dijo Roble -, ¿gana? 
 
-—O sea que gana más que tú y que yo. Juntos - dijo Cecilio. Aunque
+—O sea que gana más que tú y que yo. Juntos -, dijo Cecilio. Aunque
 enseguida pensó que él no tenía ni idea de lo que ganaba
 Roble. Exactamente lo mismo que pensó Roble, un minuto más tarde. 
 
 O sea que ganaba mucho dinero con sus libros, pero fuera de la *industria
-tradicional*. O sea que querrían matarla, ¿por eso? ¿En serio? El que
+tradicional*. O sea que alguien había contratado a un profesional para matarla, ¿por eso? ¿En serio? El que
 la industria editorial contratara asesinos a sueldo sería, pensó
 Roble, algo digno del guión de una mala novela de las de a euro que se
 encuentran por millones en Amazon. Como las suyas. Y al pensar en
@@ -4302,8 +4302,17 @@ las de Demelza, serían ridículas. «Mi vecino coleccionaba motosierras»
 no había llegado todavía a la centena de ventas. Y todavía no se le
 ocurría que hacer para el siguiente ejemplar. 
 
-Roble miró la barbacoa y las bebidas que navegaban en cubos y en
-neveras de plástico por el suelo. No vio nada de su gusto y se fue. 
+—Venga, tómate algo - le dijo Cecilio, alzando su lata de Alhambra,
+roja, dorada y brillante con la condensación. - Ya que te has pegado el viaje, ¿no?
+
+Roble miró proteínas en forma de carne desnaturalizándose poco a poco por el calor barbacoa y  bebidas  navegando en cubos y en
+neveras de plástico por el suelo. No vio nada de su gusto.
+
+—Gracias - contestó, llevándose la palma a la barriga - pero ya... - hizo una espiral alrededor de su ombligo, notando con desagrado que había cierta cantidad de carne allí. La separó rápidamente. - No. Gracias.
+
+Giró la cabeza en la dirección a la puerta, sacudió la mano al la altura de la barriga, primero en dirección a Cecilio y a continuación en dirección al resto, y se fue. Al abrir la cancela de salida oyó:
+
+-¿Un café tampoco? - Lo ignoró. El café que pudiera hacer su compañero Cecilio le resultaba inimaginable. 
 
 Trató de encontrar la parada de autobús sin introducir ningún  dato revelador en el móvil,
 pero finalmente sucumbió cuando llevaba media hora subiendo cuestas y
