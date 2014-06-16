@@ -16,9 +16,9 @@ siguió tecleando.
 Cecilio suspiró.
 
 —El que está introducido en el tercer espacio intercostal de la
-víctima -, continuó, chasqueando la lengua.
+víctima - continuó, chasqueando la lengua.
 
-Roble puso la boca en posición de "Ah", pero no dijo nada.
+Roble puso la boca en posición de "Ah".
 
 —No estarás poniendo nada de esto -, dijo, haciendo un gesto señalando a su
 alrededor con la mano - en la Internet esa.
@@ -4352,6 +4352,29 @@ La policía quizás no. Pero este policía, en este momento, se sentía un
 poco inútil. Le pegó a la cerveza un largo trago y se metió en la
 conversación, que ya había rebasado la fase familiar para adentrarse
 en los procelosos terrenos del deporte. 
+
+## Se escapa
+
+Roble sentía que el caso se le escapaba. No sabían quién, ni por
+qué. Lo único que estaba claro es el cómo. ¿Qué podían darle a la juez
+para solicitar pruebas adicionales? Y, lo que era peor, ¿qué podía
+darle la web profunda para agarrarse a él? Y ¿qué podía ofrecerle a
+cambio? Sus reserva de *bitcoins* descendía peligrosamente y cada vez
+más.
+
+Lleva sin mirar las apuestas sobre el asesinato ya algunos días. ¿Qué
+decían ahora?
+
+Accedió a la página `crimebet.onion` para ver que ahora la apuesta se
+pagaba 12 a 1. 12 a que encontraban al asesino, 1 a que no lo
+encontraban. Ni siquiera había nombres.
+
+Volvió hacia su casa desde la parada de autobús con las manos en los
+bolsillos. La cuesta arriba se le hizo, literalmente, cuesta arriba. Y
+aún más cuando vio que había luz en el salón principal, haciendo
+parecer a su casa una nave espacial dorada iluminando a los nativos
+del Barranco del Abogado. Un bonito efecto del que solía disfrutar,
+cuando era él quien había encendido la luz, claro. 
 
 *>*
 
