@@ -4365,12 +4365,13 @@ darle la web profunda para agarrarse a él? Y ¿qué podía ofrecerle a
 cambio? Sus reserva de *bitcoins* descendía peligrosamente y cada vez
 más.
 
-Lleva sin mirar las apuestas sobre el asesinato ya algunos días. ¿Qué
-decían ahora?
+Llevaba sin mirar las apuestas sobre el asesinato ya algunos días. ¿Qué
+dirían ahora?
 
 Accedió a la página `crimebet.onion` para ver que ahora la apuesta se
 pagaba 12 a 1. 12 a que encontraban al asesino, 1 a que no lo
-encontraban. Ni siquiera había nombres.
+encontraban. Ni siquiera se podía apostar ya sobre sospechosos, número
+de asesinos encontrados, cero, gana la banca.
 
 Volvió hacia su casa desde la parada de autobús con las manos en los
 bolsillos. La cuesta arriba se le hizo, literalmente, cuesta arriba. Y
@@ -4378,6 +4379,17 @@ aún más cuando vio que había luz en el salón principal, haciendo
 parecer a su casa una nave espacial dorada iluminando a los nativos
 del Barranco del Abogado. Un bonito efecto del que solía disfrutar,
 cuando era él quien había encendido la luz, claro. 
+
+Accedió desde su tablet a los registros de seguridad del sistema
+domótico, que le aseguraron fehacientemente que él mismo llevaba en la
+casa un buen rato y que había usado sus propias claves para encender
+luces, pantallas y, ah, borrar unos cuantos registros de días
+anteriores, seguramente con alguna buena razón.
+
+El resto de la cuesta hacia arriba se le hizo todavía más cuesta
+arriba, mientras el app NoFlab le animaba y le decía que si seguía
+subiendo durante treinta minutos adicionales, habría conseguido
+igualar su consumo de calorías medio del último mes.
 
 *>*
 
