@@ -2689,7 +2689,7 @@ gesto, con el dedo índice, de "No, no, no".
 
 —¿Qué quieres? ¿Qué es que quierres? - preguntó Jože.
 
-—Sólo hablar - contestó Roble. - ¿Hablamos? - le dijo, indicándole los escalones de los comedores, a la sombra de múltiples anuncios de cursos, fiestas para Erasmus, estos últimos todos activos y retransmitiendo solicitudes de envío de información que provocaban una continua vibración en la pulsera de Roble.
+—Sólo hablar, - contestó Roble. - ¿Hablamos? - le dijo, indicándole los escalones de los comedores, a la sombra de múltiples anuncios de cursos, fiestas para Erasmus, estos últimos todos activos y retransmitiendo solicitudes de envío de información que provocaban una continua vibración en la pulsera de Roble.
 
 Se sentaron en los escalones, recuperando poco a poco el resuello. Cuando Jože hubo llenado sus alveolos de una cantidad suficiente de oxígeno, éstos se sintieron incómodos y le pidieron un poco de nicotina y alquitrán. El cumplió su deseo encendiendo un cigarro y tomando una larga calada. Exhaló el humo y se quedó mirando a Roble.
 
@@ -2701,10 +2701,10 @@ Se sentaron en los escalones, recuperando poco a poco el resuello. Cuando Jože 
 
 —Tío, no sé, de verdad, no sé. Yo estuve en la fiesta, desapareció, yo me fui. Al día siguiente, muerta como la otra. Muchas muertas, yo no quiero saber nada, me voy a mi casa -, contestó Jože.
 
-—¿Por qué fuiste? No conocías a nadie - le preguntó Roble, recordando el mapa de conexiones entre los asistentes a la fiesta que había encontrado. 
+—¿Por qué fuiste? No conocías a nadie - le preguntó Roble, recordando el mapa de conexiones entre los asistentes a la fiesta que había encontrado. Y sin aclararle que la *otra* no estaba, en realidad, muerta, sólo había una muerta. Ainhoa. 
 
-—¿Qué dices? Tú no sabes. No sabes, tío. Conocía a Ainhoa -, contestó,
-chupando otra vez el cigarro y echando el humo, esta vez a la cara de
+—¿Qué dices? Tú no sabes. No sabes, tío. Yo conocía a Ainhoa -, contestó,
+chupando otra vez del cigarro y echando el humo, esta vez a la cara de
 Roble. Roble se tuvo que recordar a sí mismo que no todo está en la
 red. Uno añade la conexión, o comenta, si le apetece, si le da la
 gana, y si es de los que va aireando sus relaciones con otra gente. La
@@ -2720,7 +2720,7 @@ delincuentes, ¿no es?
 —Conoció de la fiesta por Facebook. Demelza invitaba a todos
 amigos. Ainhoa dice que ella es amiga. 
 
-Ainhoa, pensó Roble, era capaz de atraer a una cantidad de amigos
+Demelza, pensó Roble, era capaz de atraer a una cantidad de amigos
 considerable, o de atraer a una cantidad de gente que se auto-consideraban amigos. Tenía amigos por encima de sus posibilidades. Y
 novios. Al pensar esto último, sintió la zona de su escroto expandirse
 y contraerse, esto último más lentamente, como el parpadeo de un
