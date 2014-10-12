@@ -25,7 +25,7 @@ POST_COMMIT {
     for my $f ( @mds ) {
       $git->command( 'checkout', 'master', '--', $f );
       my $file_content = read_file( $f );
-      $file_content =~ s/\.md\)/\)/g; # Change links
+      $file_content =~ s/\.md\)/\)/g; # Change links to gh-pages style
       $file_content = $layout_preffix.$file_content;
       if ( $f ne 'README.md' ) {
 	write_file($f, $file_content);
@@ -58,7 +58,7 @@ installation you're using (I use perlbrew), In my case it was:
   bash% cp /usr/share/perl5/Git.pm ~/perl5/perlbrew/perls/perl-5.16.1/lib/site_perl/5.16.1/
 
 Then copy git-hooks.pl to .git/hooks, make it runnable (chmod +x
-    git-hooks) and then
+    git-hooks) and then (inside C<.git/hooks>)
 
   bash% ln -s git-hooks.pl post-commit
 
