@@ -2735,10 +2735,10 @@ indicador que te avisa de un peligro inminente.
 
 —Y... - dijo Roble, a la vez que se levantaba. La ceniza estaba empezando a dispersarse en direcciones a tejidos que no se la tomaban tan a la ligera. Y cambiando la postura puede que aparentara más autoridad. 
 
-—¿Y qué? ¿Y está muerta? - dio una larga chupada al cigarro y
-entrecerró los ojos, pensando quién sabe en Ainhoa, a quien podía
+—¿Y qué? ¿Y está muerta? - dio una larga calada al cigarro y
+entrecerró los ojos, pensando quién sabe si en Ainhoa, a quien podía
 conocer desde hacía dos días o dos años, o en el futuro de su pequeño
-país. 
+país, del que Roble no sabía absolutamente nada salvo una idea vaga del tamaño. 
 
 Roble no acababa de entenderlo. Era todo muy normal, aparentemente la única secuencia lógica de los acontecimientos. Te cuelas en la
 fiesta, te llevas a un amigo, el amigo te deja muerta y se va, tan
@@ -2756,29 +2756,29 @@ acento a veces hacía el español que profería indistinguible de su idioma nati
  nadie entraba, nadie salía de habitación. Ella desapareció y no la
  veía, estaba con puerta cerrada quizás, había salido, no sabía
  nada. Luego abrió puerta cocina y salió ella, cantaba, dijo “José, tú
- pequeño“, miraba mano, “Te cojo con esta mano grande, te cojo“ y
+ pequeño“, miraba mano, “Te cojo con esta manota grande, te cojo“ y
  hacía así, ella loca, loca y luego fue a habitación, a la habitación
  que, a la habitación, y yo decía, vamos, nos verán, y ella loca, “El
  USB es graaaaande y ordenador pequeñooooo“, decía, “cómo copio,
- copio, cómo copio, no puedo, no entra, como copio“, y se reía, loca, loca y se quedó allí, en la
+ copio, cómo copio, no puedo, no entra, es graaande, como copio“, y se reía, loca, loca y se quedó allí, en la
  cama, miraba sus manos, yo me fui, nos iban a ver, no quiero
  problemas, yo estudio, no quiero problemas, locas dan problemas, eso
- pensé, locas dan problemas, no hice nada. 
+ pensé, locas dan problemas, amigas locas dan problemas... No hice nada. 
  
  –Problemas... - dijo Roble. Problemas mortales. 
 
-—Era amiga, buena amiga. Pero... No quiero problemas -, dijo Jože. Y se fue en dirección contraria a su barrio, en la dirección que había más bullicio.
+—Era amiga, buena amiga. Pero... No quiero problemas -, dijo Jože. Y se fue en dirección contraria a su barrio, en la dirección que se percibía más bullicio, hacia Fuentenueva, donde las hordas procedentes de la Facultad de Ciencias subían hacia sus pisos y residencias o se apelotonaban en el interior de los autobuses que subían hacia el Campus de Cartuja. 
 
 Problemas iba a tener. Ya no era Ignacio el último que la había visto
 con vida. Ahora era él. De las declaraciones en el juzgado no se iba a
-librar. Imputación, como encontraran alguna huella en algún sitio estratégico. 
+librar. Imputación, como encontraran alguna huella en algún sitio estratégico. Fuera culpable o no, iba a tener unas prácticas no remuneradas en el sistema judicial español. 
 
-Roble no lo siguió. Salió andando y dobló hacia la derecha, Fuentenueva abajo, en dirección inicial hacia la Facultad de Ciencias. Estaba anocheciendo y varios apps le avisaban de
+Roble no lo siguió. Salió andando y dobló hacia la derecha, Fuentenueva abajo, inicialmente  en dirección hacia la Facultad de Ciencias. Estaba anocheciendo y varios apps le avisaban de
 que no estaba haciendo suficiente de algo o estaba haciendo demasiado
 de otra cosa. Tenía que escribir, No había hecho suficiente
 ejercicio. No había tomado suficiente comida sana. Y había inspirado
 demasiado humo. Ninguna de esas cosas se iba a solucionar en la
-comisaría, así que empezó a andar en dirección a su casa. 
+comisaría, así que cambió de dirección y se dirigió a su casa. 
 
 ## La clave de la felicidad
 
