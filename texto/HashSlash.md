@@ -323,8 +323,8 @@ trajo Berta anoche y lo había dejado ahí. ¿Y Berta estaría en...?
 Su cerebro le estaba avisando a base de latidos dolorosos que no era
 ni momento de chequear gente ni de pensar, de hecho, nada. Así que se
 dirigió al otro, que no podría haber estado de ninguna de las maneras
-en la fiesta y cuya ropa, a la hora de comprarla, valdría tanto como uno de los zapatos del
- *hipster*. Sería amigo de un amigo. O vendedor de alguna compañía de
+en la fiesta y cuya ropa tendría un precio de venta al público tan alto como uno de los zapatos del
+ *hipster* y eso una vez deducido el precio de los cordones. Sería amigo de un amigo. O vendedor de alguna compañía de
  telecomunicaciones. 
 
 — ¿Tenéis un ibuprofeno? -, les preguntó. Hipster mono la miró
@@ -2672,7 +2672,7 @@ Jože le miró.
 
 —¿Quién eres? - le preguntó.
 
-—Roble Sáenz. Policía. 
+—Roble Sáenz. Policía -, contestó Roble, echándose mano al bolsillo donde llevaba la placa. 
 
 Ya había incumplido el protocolo de actuación policial con testigos, que indicaba que tenía que saludar  e identificarse
 antes de hacer cualquier pregunta, pero no creía que esa fuera razón
