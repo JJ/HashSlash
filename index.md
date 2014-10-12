@@ -57,10 +57,10 @@ línea temporal lo aclara
 
 |Libro | T1 | T2 | T3 | T4 |
 |-------|---- | --- | --- | --- |
-|Entre profesionales | x | x | x |  |
-|La muerta de verdad | x |   |   |   |
-|El fin del capítuoo |  | x | x | x | 
-|El día que me mataron | x | x |  |  |
+|[Entre profesionales](https://www.amazon.es/dp/B00IVTNGBC?tag=atalaya-21&camp=3634&creative=24822&linkCode=as4&creativeASIN=B00IVTNGBC&adid=1QZWAVN16K0F9J9R8F5Q&) | x | x | x |  |
+|[La muerta de verdad](https://www.amazon.es/dp/B00IBIYHC0?tag=atalaya-21&camp=3634&creative=24822&linkCode=as4&creativeASIN=B00IBIYHC0&adid=0BFKG8HBSKA1B4HDGZ4W&) | x |   |   |   |
+|[El fin del capítulo](https://www.amazon.es/dp/B00KUWR20O?tag=atalaya-21&camp=3634&creative=24822&linkCode=as4&creativeASIN=B00KUWR20O&adid=1B7ZJCX2J0R13SW4P0QS&) |  | x | x | x | 
+|[El día que me mataron](https://www.amazon.es/dp/B006HV9PE8?tag=atalaya-21&camp=3634&creative=24822&linkCode=as4&creativeASIN=B006HV9PE8&adid=0WH9NVRHYC8E3CWGQS4F&) | x | x |  |  |
 
 Es decir, que, por el momento,
 [#Slash: El fin del capítulo](https://www.amazon.es/dp/B00KUWR20O?tag=atalaya-21&camp=3634&creative=24822&linkCode=as4&creativeASIN=B00KUWR20O&adid=1YP1MMRAW7NA31WCDKNS&)
@@ -83,7 +83,7 @@ natural, @hashslash estaba ya pillado.
 ---
 
 Cuando deje todas las tramas atadas y bien atadas. Lo que podría
-suceder este año, pero tambień el siguiente.
+suceder este año, pero tambień el siguiente. Por lo pronto, parece complicado que sea este año después del parón de tres o cuatro meses.
 
  
  
