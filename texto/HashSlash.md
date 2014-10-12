@@ -21,9 +21,9 @@ Cecilio suspiró.
 —El que está introducido en el tercer espacio intercostal de la
 víctima - continuó, chasqueando la lengua.
 
-Roble puso la boca en posición de "Ah".
+Roble movió los músculos alrededor de la boca hasta colocarla en posición de "Ah".
 
-—No estarás poniendo nada de esto -, dijo, haciendo un gesto señalando a su
+—No estarás poniendo nada de esto -, dijo Cecilio, haciendo un gesto señalando a su
 alrededor con la mano - en la Internet esa.
 
 Cecilio hizo un inicialmente débil, pero paulatinamente más fuerte, esfuerzo para levantarse del sillón desfondado en el que se
