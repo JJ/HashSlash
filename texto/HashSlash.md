@@ -2764,7 +2764,7 @@ acento a veces hacía el español que profería indistinguible de su idioma nati
  
  –Problemas... - dijo Roble. Problemas mortales. 
 
-—Era amiga, buena amiga. Pero... No quiero problemas -, dijo Jože. Y se fue en dirección contraria a su barrio, en la dirección que se percibía más bullicio, hacia Doctor Olóriz, donde las hordas procedentes de la Facultad de Ciencias subían hacia sus pisos y residencias o se apelotonaban en el interior de los autobuses que subían hacia el Campus de Cartuja. 
+—Era amiga, buena amiga. Pero... No quiero problemas -, dijo Jože. Y se fue en dirección contraria a su barrio, en la dirección que se percibía más bullicio, hacia Fuentenueva, donde las hordas procedentes de la Facultad de Ciencias subían hacia sus pisos y residencias o se apelotonaban en el interior de los autobuses que subían hacia el Campus de Cartuja. 
 
 Problemas iba a tener. Ya no era Ignacio el último que la había visto
 con vida. Ahora era él. De las declaraciones en el juzgado no se iba a
