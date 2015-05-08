@@ -83,4 +83,10 @@ Cuando deje todas las tramas atadas y bien atadas. Lo que podría
 suceder este año, pero tambień el siguiente. Por lo pronto, parece complicado que sea este año después del parón de tres o cuatro meses.
 
  
+ Esta es una rama, "Muerta", que usa diferentes puntos de vista y en
+ la cual el personaje es la supuesta víctima, no el supuesto
+ asesino. Es para experimentar con la escritura simultánea de
+ diferentes versiones.
+ 
+ 
  

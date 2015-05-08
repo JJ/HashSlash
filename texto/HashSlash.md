@@ -2,6 +2,20 @@
 
 <h1>#slash</h1>
 
+## Ese día
+
+El día de mi asesinato no comenzó demasiado bien. Primero: el
+dolor de cabeza. Segundo: las náuseas. Tercero: un tío en pelotas al
+que no conozco de nada, a mi lado.
+
+Mejor borra tercero. Qué pedazo de tío. Joder, lo que se ve debajo de
+las sábanas. Y todavía lleva la máscara puesta. 
+
+Mejor bórralo todo. El día podía haber empezado sin resaca. Pero una vez
+que desperté al tío empezando, como es natural, por aquello, tampoco
+empezó demasiado mal.  
+
+
 1: #JustABelieber - 2: #pelisconnata - 3: #nomepises - 4: #masterchef - 5: #slash
 ---
 
@@ -281,17 +295,33 @@ sillón, diciendo
 por el camino “Afú” varias veces, y se puso a escribir en un bloc pequeñito, con  portada a
 cuadros y un alambre uniendo las hojas por su parte superior. 
 
-Se comenzaron a oir ruidos en dirección opuesta a l pasillo en el que se
+Se comenzaron a oir ruidos en dirección opuesta al pasillo en el que se
 encontraba el cadáver. Los dos giraron la cabeza en esa
 dirección. Luego se miraron el uno al otro y finalmente siguieron uno
 escribiendo en el móvil y otro en el bloc.
 
-Huir tampoco es fácil
----
+## Huir tampoco es fácil
 {: .writer}
 
 En realidad sí lo es. Y mancha mucho menos que cualquier
 actividad que uno haya realizado para necesitar embarcarse en tal huida.
+
+Kevin
+---
+
+Podría vivir así. Escribir y tirarme a tíos buenos. Y, bueno, estar con Kevin. 
+
+En realidad, yo lo quiero. Pero, primero, no le van los fetiches
+metálicos. Segundo, no es de los que les va la penetración. Tercero,
+no hace preguntas. 
+
+Bueno, borra tercero. Sí hace preguntas. No con la boca. Hace poco con
+la boca, la verdad. No como éste. Pero sí con los ojos. Mira,
+suplica. También hace el amor. Se lo hace a sí mismo, claro, mientras
+yo me divierto. A veces, si no me apetece después de una noche
+especialmente movida y sin él, una noche en el que el iBra que me
+regaló con el vano objetivo de controlarme no acaricia mis pezones, me
+mira. 
 
 Durmiendo con un cadáver. Y luego despertando.
 ---
@@ -387,6 +417,41 @@ que parecía no haber sido consciente hasta ese momento de que ella llevaba
 sólo una camiseta, miró hacia el sur y se ruborizó. Viejo verde. Joven
 inconsciente. Qué frío hacía, caray. 
 
+## Tina
+
+Qué sería de mi sin Tina. 
+
+Sería una persona más tranquila. No tendría que estar pensando en qué
+va a pasar cuando la pillen. No la policía. Alguien. La K es demasiado
+popular para que no levante envidias, y ella tiene el mercado de
+Granada copado. O eso dice. Y debe de ser verdad. Primero, porque no
+habrá mucha gente que tenga un proyecto de investigación donde consiga
+clorhidrato de Ketamina a granel. Ni, por el mismo precio, un
+laboratorio para purificarlo y extraer la K. Segundo, porque tiene una
+cantidad de dinero considerable debajo del colchón, esperando
+blanqueo. O en algún sitio. Yo no pregunto. Sólo veo cuando se lo
+gasta. En lo que se lo gasta. 
+
+Y tercero, porque el pobre Nachito dice que se la quitan de las
+manos. Lo dice con los ojos muy abiertos y con un poco de saliva en la
+comisura de los labios. Bueno, dice todo con un poco de saliva en las
+comisuras de los labios. El pobre Nachito. Que vive en la casita del
+perro, la llamamos así porque un buen día se plantó en la casa de
+enfrente con un cerrajero amigo suyo y se metió a vivir allí. Bueno,
+no la llamamos casita del perro por eso, por la forma de entrar Es
+porque antes aparecía, a veces, como un perrillo faldero para
+seguirme, para medir mi humor a distancia, para ver si era propicio
+hacerse el encontradizo y decirme algo, cualquier cosa y que yo le
+contestara algo, cualquier cosa. Siempre con "lo que quieras, Deme, de
+verdad, dímelo, que eres una tía guay". Eso incluso antes de que, un
+día, un buen día, después de que Kevin, se cabreara conmigo porque no
+lo había dejado terminar un juego y lo viera allí, limpio por una vez,
+afeitado, y me dijera a mi misma, qué diablos... Después de eso todo
+fue igual, pero ya nada fue lo mismo. Cuando se le veía feliz, estaba
+más feliz. Pero cuando era desgraciado, se le veía todavía más
+desgraciado.   
+
+Y a estas horas de la mañana, todavía estaba muerta.
 
 Consejos para una huida
 -----
@@ -536,8 +601,8 @@ hebras y un elenco de personajes extenso de algo que empezó con la compra de yo
 y terminó con la pérdida de un cargador del móvil. - ¡Y ni siquiera
 era de ella! 
 
-De la historia de Tina se transmitía una vaga animadversión. No la suficiente
-como para clavar un cuchillo en el esternón. Roble sonrió levemente
+De la historia de Tina se deducía una vaga animadversión. No la suficiente
+como para clavar  cuchillos en esternones, quizá. Roble sonrió levemente
 ante este pareado y lo anotó para un tuit posterior. También anotó la
 sonrisa para un selfie futuro. No duró mucho. En seguida pensó en cuantas justificaciones de asesinatos comenzaban así, con cargadores que ni siquiera eran de alguien. Tendría que averiguar de quién era el cargador del móvil. Del crimen. Sonrió de nuevo. El café había avivado sus neuronas. 
 
@@ -575,10 +640,6 @@ Matar
 —¿Haciendo sudokus? -, me pregunta un camarero en un área de servicio de la
 autovía, a la altura de Marbella. 
 
-No me gusta hablar con la gente. Corrijo. No me gusta hacer nada con
-la gente. Lo mío es hacerle *a* la gente. Pero a veces es inevitable
-que *la gente* te hable o te haga cosas.
-
 —No, escribiendo -, le contesto, tras dejarle claro con la pausa antes
 de la contestación que no tengo las más exiguas ganas de interaccionar
 con él; y si la pausa no es suficiente, la mirada. Que tampoco será
@@ -605,6 +666,32 @@ dejando de barrer por un momento. - Y mataría por publicar.
 Sin mirarle. Dejé el dinero del café sobre la barra y me
 largué. Todavía me quedaba más de una hora para llegar al puerto de Algeciras y
 tomar el ferry a Marruecos.
+
+
+## Viral
+
+Y la fiesta.
+
+De lanzamiento.
+
+¿Qué viene después de la K? La M. Si Tina es lista. Algún día dejarán
+de darle clorhidrato de ketamina, o se le morirán los cerdos, o
+acabará la tesis o la tesina o lo que esté haciendo. Y tendrá que
+buscar otro mercado. Es lista. Debería dedicarse a algo que le diera
+más dinero. Tráfico de armas nucleares o algo. O lo mismo, y escribir.  
+
+Lo tiene todo pensado. Hasta el marketing. ¿Cómo lanzas un nuevo
+producto? Pues ofreciéndolo gratis. La primera vez. En una fiesta.  
+
+No es que se muevan drogas en la casa. Solo las justas. Bueno, algo
+más que las justas. Nunca clientes. Pero. Futuros clientes.  
+
+Además, siempre conozco gente. Buena gente. Muy buena gente, como el
+chavalote con el que me he levantado esta mañana. A Kevin siempre le
+aburren. Bueno, a Kevin le aburre casi todo. Es una persona a la que
+le aburre casi todo y se entretiene con casi nada. Una combinación
+perfecta. Cuando se va, empieza la verdadera fiesta. Aún sin M, las
+fiestas son divertidas. Con M, las fiestas son de muerte.  
 
 Fiambres y bocadillos
 ---
@@ -723,24 +810,55 @@ donde retornar, donde tienes unas pantuflas y dónde hay un sillón que,
 a base de ser utilizado para sentarte, se ha adaptado perfectamente a
 los contornos de tus nalgas. Y viceversa.
 
-A veces, el sillón es una persona.
-
 Cuando llegue al puerto de Algeciras, a veces se ve el país que constituye,
 en el momento presente, mi hogar. A veces no. Hoy es de esos días. Hay
 nubarrones negros sobre el estrecho. De esos que los escritores suelen
 usar para reflejar un temperamento sombrío o un estado de ánimo
 tormentoso en los personajes. Pero sólo son nubes. Y yo me siento
-estupendamente. Por, ya saben. La misión cumplida y eso. Final satisfactorio, si bien con un ligero tufo a *ex machina*. *Machina* de matar, Es bueno, pero no espero que se rían.
+estupendamente. Por, ya saben. La misión cumplida y eso. Final satisfactorio, si bien con un ligero tufo a *ex machina*. *Machina* de matar. Es bueno, pero no espero que se rían.
 
 De repente, un rayo de sol abre las nubes y crea una isla de luz muy
 cerca de mi coche, dentro del que espero que la cola avance para
-introducirlo en las fauces del paquebote. 
+introducirlo en las fauces del paquebote.
 
 Es mentira. Sigue nublado. ¿Por qué diablos iba a salir un rayo de luz
 para nadie? Pero os he hecho creer que sí, ¿verdad? 
 
-Así somos los escritores. Ni siquiera estoy metido en el coche ni éste va a ser introducido, a su vez, el en paquebote. Voy por la carretera y he visto un cartel con una imagen kitsch de un barco que anuncia venta de tickets para el ferry. Inspirador. 
+Así somos los escritores. Ni siquiera estoy metido en el coche ni éste
+va a ser introducido, a su vez, el en paquebote. Voy por la carretera
+y he visto un cartel con una imagen kitsch de un barco que anuncia
+venta de tickets para el ferry. Inspirador.  
 
+
+## Inspiración
+
+No a todos les va lo de la máscara, claro. A algunos les agobia. A
+otros les pone más todavía. Tengo otras cosas. Un top masculino, sí,
+hay de esas cosas, color, en realidad no es color, no existen los
+colores metalizados, cobre. Lo compré en una tienda de artículos
+cachondos para gays. En París. Bueno, todas mis cosas las he comprado
+por ahí. No aquí, claro. 
+
+Pero si no les pone ni se ponen ni la máscara ni el top de cobre, para
+este último abstenerse los de la barriga cervecera; ahora que lo
+pienso, nunca me acuesto con los de barriga cervecera, entonces me
+toca a mi. Vestirme. Yo soy la mujer mecánica, la Maria de Metropolis,
+enviada por mis amos mecánicos para aparearme con todos los tíos
+buenos de la ciudad. 
+
+Eso siempre funciona. Como también funciona el condón que tienen que
+usar. Sexo seguro. Y metálico. 
+
+Todo lo hago por una razón, claro. No por joder a Kevin. Kevin no se
+deja joder, ya os lo he explicado. No por joder con otros. Bueno, un
+poco sí. Todo lo hago por las novelas, mis novelas. ¿Cómo iba a
+escribir mecaporno si yo misma no viviera el mecaporno? Mecaporno:
+basado en hechos reales, tendría que poner en las portadas. Tengo que
+vivirlo, porque, de no hacerlo, no sabría qué escribir. Mis lectoras,
+quizás algún lector también, claro, no sabrían qué leer. Mis
+imitadoras, bueno, también algún imitador, no sabrían qué imitar. 
+
+Lo que tiene que hacer una por la inspiración. 
 
 Asuntos propios
 ----
@@ -872,6 +990,37 @@ Se echó a llorar y Roble ya no pudo sacarlo de ese lugar oscuro y
 aparentemente muy líquido. Sonaron diferentes melodías procedentes de
 diferentes aparatos y Roble,
 eventualmente, se fue.
+
+## Mi postura sobre las drogas. Clara y rotunda.
+
+La fiesta del M estuvo bien. El hecho de que sea capaz de decir esto
+indica que no lo probé. En general, no tomo drogas. No, borra eso. En
+general, no tomo muchas drogas. Teniendo a Tina al lado, que es una
+farmacia andante y el departamento de investigación y desarrollo de la
+misma, todo junto, es difícil no hacerlo. No, borra eso también. Es
+fácil no hacerlo, pero es que no me apetece dejar de hacerlo.  En
+alguna ocasión. Generalmente, lo que me apetece es no hacerlo.
+
+Ya sé que todo el rollo literario, el malditismo, el parnaso y la
+hostia en verso, todo eso tiene un componente psiconáutico
+considerable. Bien, vale. Pero en este mundo *indie* hay 
+que producir material cada muy poco tiempo. Y una vez producido, hay
+que promocionarlo, corregirlo, mejorarlo y volver a
+promocionarlo. Escritora aquí, escritora allí, en todo el orbe del
+universo mundo. Es un jodido trabajo. Que da dinero. Pero hay que
+sudarlo. Y si te metes una loncha un día sí y otro también y el de
+en medio un porrito para relajarte, acabas dejando de escribir un día
+sí y otro también. Y no puedes permitírtelo. Porque esto es una jodida
+carrera y gentes como la pesada de la Ainhoa y el petardo del Iron
+Pedro, están ahí para llevarse a los lectores y a los que escriben fan
+fiction y a todo el mundo. 
+
+Por eso, cuando me desperté el día que me mataron estaba fresca, con
+varias ideas bullendo en mi cabeza y con ganas de volver al teclado a
+verter todo lo que me hervía dentro. 
+
+Por el camino a casa, ningún mensaje de Tina ni de Kevin ni de nadie. Como si
+me hubiera muerto. 
 
 
 ## Sentido y sensibilidad
@@ -1062,6 +1211,21 @@ uno en las últimas horas. Igual decía la verdad.
 
 —Pues invítame a una caña -, contestó el amigo, o, más concretamente,
 compañero de asiento en el autobús. 
+
+## Ya ocurrió
+
+Tenía que pasar. Han trincado a Tina. Tanta policía alrededor de
+nuestra casa no puede ser por otra cosa. 
+
+¿Tendría que haberla denunciado? ¿No tendremos eximentes por
+compañeras de piso o eso? Demasiado tarde, ahora. A trabar con lo que
+caiga. 
+
+Todo por la mierda de la fiesta. “¿Cómo voy a lanzar un producto
+nuevo, si no?“ Toma producto nuevo. Ahí lo tienes. Producto, vida y hasta traje nuevo. De color naranja, que es el nuevo negro. 
+
+El alivio que sentí al darme cuenta de que no estaban  ahí por
+Tina, sino por mi asesinato, fue considerable.
 
 ## Los muertos no hablan, los vivos sí.
 
@@ -1373,13 +1537,39 @@ En realidad, usamos alertas de Google, avisos de Twitter, seguimos por Facebook.
 
 Todo eso no son metáforas.
 
-En medio del mar, que todavía no era bravío y no parecía tener la intención de serlo, a pesar de los nubarrones, vibró brevemente el reloj. Alguna trampa había saltado, algo le había sucedido en torno a mi tema. Tema que se había quedado cerrado en Granada. Que debía de haberse quedado cerrado en Granada.
+En medio del mar, que todavía no era bravío y no parecía tener la
+intención de serlo, a pesar de los nubarrones, vibró brevemente el
+reloj. Alguna trampa había saltado, algo le había sucedido en torno a
+mi tema. Tema que se había quedado cerrado en Granada. Que debía de
+haberse quedado cerrado en Granada. 
 
-Estalla un trueno en la lontananza, cae un rayo, el mar se encrespa.
+Estalla un trueno en lontananza, cae un rayo, el mar se encrespa.
 
 Un par de palabras en un tweet de @demechza: “Sigo viva”.
 
-El MF Zabaleta continúa su travesía hacia Tánger. Mi mente vuelve a Granada y mi cuerpo también lo hará en cuanto que pueda.
+El MF Zabaleta continúa su travesía hacia Tánger. Mi mente vuelve a
+Granada y mi cuerpo también lo hará en cuanto que pueda. 
+
+## La pesada de Ainhoa
+
+Hay cosas en la vida de una escritora que no molan nada. Una es que
+escribas un libro y no le guste a nadie. Otra, que te quedes sin
+ideas. La tercera, tener fans que estén dándote por saco
+continuamente. La cuarta, que te copien.  
+
+No, borra eso. Da igual que te copien. Quien copia es un perdedor que
+demuestra que es incapaz de soportar la primera cosa que no mola nada
+y que está sufriendo la segunda cosa que no mola nada. Ainhoa era de
+esas. Pero, además, era, para mi, la tercera cosa que no mola nada. Y
+a la vez, la cuarta. La primera y la segunda no me han ocurrido nunca,
+gracias a Optimus Prime. 
+
+O sea, que una persona que no me mola nada aparece muerta en mi cuarto
+con un cuchillo de mi cocina. Eso tampoco mola nada. Pero me alegro
+por Tina, que parece que, por lo pronto, no va a ir a la cárcel. Eso
+sí mola. Bueno, tampoco mola nada que haya muerto Ainhoa. Apesta. Pero
+apesta un poquito sólo. 
+
 
 ## Interludios y preludios
 
@@ -1515,10 +1705,48 @@ de la obra.
 
 Y ahora es algo personal.
 
+## La felicidad de Kevin
+
+Kevin estaba feliz. Era feliz, en realidad. No unas horas antes. Y, en
+realidad, ahora tampoco. Íbamos a celebrar nuestro reencuentro con la
+vida con una sesión de sexo salvaje, es decir, él a su bola o a sus
+bolas mientras yo me ocupaba de lo mío y él me miraba. Pero,
+aparentemente, los relajantes que le habían dado todavía seguían
+haciéndole efecto lo que hacía que sus automagreos, o la visión de una
+diosa mecánica como yo proporcionándose placer, no funcionaran. Lo que
+lo hizo ligeramente infeliz. No mucho. Dedujo lógicamente que ya que
+las sustancias químicas en su cuerpo le pedían dormir, tendría que
+hacerlo y eso fue lo que hizo.
+
+Lo que me dejó a mi bastante despierta y, por decirlo así, a falta de
+una conclusión satisfactoria que tuve que llevar a cabo en la
+ducha. Lo que me dio tiempo a pensar.
+
+Pensar en Ainhoa. En por qué la habían matado. Yo sabía que yo no lo
+había matado. Ni me di cuenta de que estaba en la fiesta. Y tenía
+coartada. Coartada que no quería que Kevin supiera. O supiera a nivel
+consciente porque, a algún nivel, Kevin debía saberlo. Pero alguien la
+había matado en mi propio dormitorio, y eso no mola nada. Y no hay que
+descartar la posibilidad de que quien fuera quisiera, en realidad,
+matarme a mi. 
+
+Así que había que encontrar al asesino. Primero, porque no podía
+quedar impune lo que hizo. Optimus Prime no lo habría
+permitido. Segundo, para evitar que asesinara a alguien más, por
+ejemplo a mi misma.
+
+Mejor borra eso. Si en realidad quería matarme a mi, buscarlo es
+posible que no sea una gran idea. Por Optimus Prime, entonces. Y
+punto. 
+
+¿Cómo se encuentra un asesino? ¿Cómo se hace cualquier cosa? Con ayuda
+de un profesional. Y el policía bien vestido lo era. Y además,
+guapo. En realidad, el mal vestido parecía mucho más profesional. Pero.
+
 ## En otro mundo
 
 Clases. Más clases. El alumno que, al final de la clase, se queda
-preguntar por las claves, las verdaderas claves, para sacar adelante
+preguntar por las claves, las verdaderas claves, las que no dices en clase, para sacar adelante
 las oposiciones. ¿Alguien que conocer? ¿Alguien que sobornar? Cecilio
 no se cansaba de decirles que las oposiciones, como el trabajo
 policial, eran simplemente cuestión de constancia y de esfuerzo. A
@@ -1536,12 +1764,39 @@ todavía no sabía cómo funcionaba el mundo.
 
 Y, a estas alturas, tampoco tenía ganas de ponerse a averiguarlo. 
 
+## Buscando la ayuda de profesionales
+
+Hay profesionales-profesionales, como los amigos de Kevin. También
+aficionados-profesionales, como Tina. Y
+luego está Kevin. 
+
+En serio, Kevin es un amor. Siempre queriendo complacerme. También
+complacerse. O complacerme para complacerse. Metacomplacerse. Lo que
+sea. El caso es que se puede hablar con él. No reacciona mucho. En
+realidad, no para de mirar a su móvil y hacer cosas con él. Pero
+escucha. Cuando le conté lo de Tina, sonrió y me dijo que ya lo
+sabía. Es un aficionado profesional en saber cosas. Y en saber cómo
+saberlas.
+
+Y también estaba ligeramente infeliz por su problema de megahercios
+anterior. Así lo llamó él, problema de megahercios. Que no tenía
+suficientes revoluciones. Se levantó de la siesta en plan turbo, pero
+le conté el problema y él simplemente contestó “No hay problema“. Lo
+que me hacía suponer que en un momento determinado, si pudiera haber
+algo que contribuyera a averiguar quién la había querido matar a ella
+y, por tanto, a exculparme, me lo contaría.
+
+Pero yo soy siempre de poner huevos en diferentes cestas. En fundas
+cromadas, pero también en diferentes cestas. Y ya sabía, como sé todo
+lo que Tina hace o ve o activa desde el móvil, que Tina había quedado
+con el policía maqueado. Así que allí iríamos esta misma noche. 
+
 ## Citas
 
 Realmente, Roble se sorprendió cuando recibió un mensaje de Tina
 indicándole dónde estaba y si se le quería unir. 
 
-“Estoy liado“ Le contestó. Nunca era una mala táctica hacerse el
+“Estoy liado,“ le contestó. Nunca era una mala táctica hacerse el
 difícil, pero era cierto que le acababan de llegar los informes de la
 autopsia hacía una hora, a las nueve de la noche. La causa de la
 muerte era evidente, pero Roble aprendió que el deceso se había
@@ -1642,6 +1897,39 @@ Alhambra. Cuando terminó, tiró la cerveza que le sobraba por el fregadero, pus
 su cuarto. Se puso la serie policíaca que estuvieran echando en ese
 momento, una serie coreana titulada “Mala gente“. Se durmió antes de que apareciera en el episodio el
 informe del forense.
+
+## Escribir es como soñar
+
+No tengo mucha imaginación, ya os lo he dicho. Por eso, para mi
+escribir es como soñar. Es decir, reformular lo que te ha ocurrido
+durante el día dándole una vuelta o dos. 
+
+Hoy el amante mecánico de la novela que estoy escribiendo, que se
+llamará “Pasión de altas prestaciones“, tendrá un problema con su
+firmware que habrá que actualizar. Pero, mientras se actualiza el
+sistema operativo, *ella* no puede quedarse quieta, ¿verdad? 
+
+No sé por qué escogí este tema para escribir, la verdad. Quizás por mis primeras
+experiencias amorosas. Quizás porque leí “Los robots del amanecer“ a
+una edad demasiado temprana. Sí, donde el Gladia se cepilla al
+androide Jander antes de que lo desconecten. Isaac Asimov es el pionero del
+mecaporno, ¿de qué os extrañáis? Allí aprendí la palabra *tumefacción*
+que nunca, nadie, debería usar para referirse a la erección. O quizás
+sea porque mi primer beso fue con un chico que usaba aparato en los
+dientes. El sabor metálico, desde entonces, ha estado asociado para mi
+a la excitación y al erotismo. De veras. Y del sabor al tacto y de ahí
+al olor y de ahí a la textura a la vista, a los cinco sentidos... 
+
+Y de ahí a escribir historias con los Transformers y Mazinger Z y
+Afrodita A y todos ellos a la vez, en una orgía metálica y seguramente
+muy ruidosa, había un paso. El problema es que gustó. Recibí *favs* y
+seguidores por docenas. Y eso me convenció de que debía intentar mi
+propio camino, libre de las ataduras del canon de unas y otras
+historias. Así nació el mecaporno y su reina. Yo. Aplausos, aplausos,
+gracias.
+
+Así que a escribir. Quizás debería usar hoy la palabra tumefacción. Por
+la ausencia de la misma. Que rima con frustración.
 
 ## Nuboso, con posibilidad de polvo
 
@@ -1792,6 +2080,30 @@ de Demelza y la propia Tina. Al lado de Demelza, Kevin levantó
 brevemente la cabeza de su móvil, sin llegar a saludar y sin llegar realmente a despegar los ojos de él.
 
 —¡Hola! - dijo Demelza. 
+
+## Interludio con café
+
+Recogí a Kevin poco después de recibir en mi móvil los mensajes que
+Tina había intercambiado con el poli maqueado. Me había ido a un café,
+cerca de casa de Kevin, un bar donde nadie prestaba atención a nadie
+ni a nada más que a una pantalla. Ni el camarero. Pero tenía WiFi
+gratis, era acogedora y discreta y podía sentarme a escribir sin que
+nadie intentara, por esa razón o por la simple presencia física, ligar
+conmigo.
+
+No es que me importe que intenten ligar conmigo. Pero no cuando estoy
+escribiendo. Revivir las sensaciones, buscar las palabras para
+expresarlas, excitarme a veces... Prefiero estar sola. O sola en
+compañía. 
+
+Creo que todo el mundo viene a este sitio a lo mismo, aunque no estoy
+segura ni siquiera de que todos tenga la misma definición de *lo mismo*. De hecho, no
+estoy segura de que se trate de una cafetería. Es un sitio de gente
+que prefiere estar sola y donde a veces, con un poco de suerte, te
+ponen un café. Pero no te dicen nada si tú te traes tu propio café, y
+yo lo hago. El termo, su olor metálico y a la vez cálido, me ayuda a
+rememorar y a imaginar. Sí, es un símbolo fálico. Pero también lleva
+café. Y si lo acaricio a nadie le importa. Sólo en este café, claro.
 
 ## Interrogatorios a varias bandas
 
@@ -1967,6 +2279,22 @@ Pero sólo si hay contrato. Y no habrá uno nuevo hasta que se produzca esa muer
 me está resultando más difícil que las anteriores. Escribir es
 sufrir. 
 
+## Las limitaciones de la comunicación
+
+En un bar, delante de Tina, no he conseguido obtener mucha
+información. Ella estaba claro por donde iba, mi Tina, tan evidente
+para quien la conoce. No creo que fuera ella, la asesina, ¿no? Tanta
+sangre fría, horas dormida con un cadáver a unos cuantos
+metros... Aunque cuando le da el bajón, no hay quien la despierte. ¿Le
+daría el bajón después de? No creo. Espero que no. No, no creo. 
+
+Al otro lado del ring, el poli guapetón se dejaba querer. De pocas palabras. Más complicado sacarle
+algo. Pero no hace falta hablar para saber por dónde va. Kevin me
+ayudará a entrar en su casa. No, borra eso. Kevin, esta vez, no tiene
+que enterarse de nada. Los amigos de Kevin, solamente. A discretos no
+les gana nadie. Y a profesionales. 
+
+
 ## Sexo
 
 Y bastante explícito. Tina le fue dando un sneak preview, incluyendo
@@ -2083,6 +2411,35 @@ en la mesita de noche y empezó a actualizar todo lo que pudiera.
 
 —Nos veremos pronto. - oyó que decía según salía. 
 
+## Los porqués
+
+Hay muchos porqués. Ese el problema con los hombres, que nos
+subestiman. Piensan que tenemos una sola razón para hacer algo. No es
+así. A veces no tenemos ninguna y hacemos las cosas porque sí. Que
+también es un porqué. Pero a veces tenemos muchas.
+
+Pero yo tenía una muy gorda: colocar una nanoestación de escucha. Oye,
+son una maravilla. Coreanas. O copia coreana de una China. Tienen,
+para empezar, escuchas pasivas de todo: NFC, RFID, BlueTooth. Si hay
+algún dispositivo, captan su ID y la almacenan, con marca
+temporal. ¿Qué pasa? Estoy estudiando ingeniería electrónica y escribo
+sobre robots. Tendré que saber de todas estas cosas, ¿no?
+
+Las nanoestaciones no se quedan ahí: interceptan el tráfico WiFi que
+llega a sus alrededores, aunque sólo almacenan lo que le programes,
+porque no les cabe mucho en la memoria. Es el clásico Man in the
+Middle, pero en una mota que se puede esconder dentro de una pelusa de
+las que hay debajo de la cama y que no vale más que... bueno, sí vale
+cara. Quince días de ventas de libros. Pero merece la pena. Tina
+también tiene una en su cuarto, con micrófono incluido y cámara. Oye, que a veces mis propia experiencias
+no es suficiente inspiración y Tina es exuberante, imaginativa y muy
+entusiasta. 
+
+El problema que tiene la estación es que no puede almacenar gran cosa
+y hay que pasar cerca para recuperar la información y borrarla. Pero
+no hay problema. Ya le he dicho que nos veremos pronto. Y yo cuando
+digo algo, lo cumplo. 
+
 ## El camino hacia la policía
 
 Cecilio se aburría con la perorata de uno de sus tutorizados. Ley
@@ -2108,7 +2465,6 @@ Cabezada, tenía que ser cabezada. No, lomo. ¿O lomo y cabezada?
 Código bla bla bla artículo bla bla bla caso bla bla bla sentencia bla
 bla bla.
 
-
 ## Escribir es sufrir
 {: .writer}
 
@@ -2127,19 +2483,19 @@ si el tema te elude. Mucho más si se ha ido a Lituania. Allí es donde
 se ha ido la chica. Eso es lo que dice en su perfil en Facebook y sus
 tweets están geolocalizados por Vilna y alrededores. Cualquier día la
 vemos aparecer por Minsk. ¿Cómo puede haber llegado allí tan
-rápidamente? 
+rápidamente?
 
 Escribe, conocerás mundo. No lo dijo nadie, pero podía haberlo dicho
 Paul Theroux. Que sí dijo que no había visto pasar ningún tren al que
 no deseara subirse. También era un cretino. A este tren no me quiero
-subir. 
+subir.
 
 Lituania está jodidamente lejos. Espera, eso es poco
-literario. Lituania está la hostia de lejos. 
-Tampoco es literario, pero es la pura verdad. Lo peor de los sitios
-que están lejos no es que lo estén. Sino que para llegar a ellos hay
-que pasar forzosamente por alguna etapa en la que hay una línea de
-bajo coste. O pagar varios miles de euros.
+literario. Lituania está la hostia de lejos. Tampoco es literario,
+pero es la pura verdad. Lo peor de los sitios que están lejos no es
+que lo estén. Sino que para llegar a ellos hay que pasar forzosamente
+por alguna etapa en la que hay una línea de bajo coste. O pagar varios
+miles de euros. 
 
 Sin contrato editorial y con prisa. Vámonos a Lituania.
 
@@ -2157,6 +2513,42 @@ pidiéndoles nombres de profesionales de ese gremio, “para documentación“. 
 los teléfonos de un par de ellos en Lituania. Y otros dos en
 Birmania. Nunca se sabía cuando podía venir bien un asesino a sueldo
 en Birmania.
+
+## La vida fácil
+{: .muerta}
+
+O sea que Tina se había alquilado una suite en el Nazaríes, el hotel
+más pijo, o trash, o las dos cosas. Por las buenas. Allí
+me fui después del interludio con Roble, que así se llamaba el policía. La
+nanoestación estaría en su lugar recogiendo información, pero yo no me
+enteraría de qué hasta que pasara por allí.
+
+Así que decidí largarme a la universidad a encontrarme a mi misma, como en
+las pelis americanas. Además, estábamos a punto de entrar en la época
+de exámenes. 
+
+Automática. Me encantaba. Mientras montábamos sistemas de control
+industrial, en mi mente montaba elaborados Transformers cuyas
+transformaciones eran espectaculares especialmente en... bueno, no me
+voy a repetir, ya os lo imagináis, ¿no? Picaronas... Además, el tema
+de robótica era simplemente enorme. Mucha robótica industrial, pero
+también tenía sus posibilidades. Quizás en el siguiente libro.
+
+En las prácticas teníamos que usar una serie de procesos para
+monitorizar chismes diversos. Correas de transmisión. Detectores de
+cosas. Cosas. Había que reconfigurarlos, volver a lanzar el proceso,
+matando el proceso antes, claro.
+
+Pasaba algo. El proceso no moría. Daba las órdenes en el terminal,
+`kill 1111`, y no moría el maldito. Y vuelta a matarlo. Y el proceso
+seguía ahí, sin tomar los cambios. ¿Qué diablos pasaría?
+
+Pasaba que faltaba un uno, y listando los procesos del sistema me di
+cuenta. Estaba matando al proceso incorrecto. Un 
+`kill 11111`y el maldito pereció. Para matar a un proceso, no hay más
+que saber buscarlo. 
+
+Un momento... 
 
 ## El vecino
 
@@ -2447,6 +2839,62 @@ muerta. Pero también del mismo Ignacio Salido.
 Bajó las escaleras procurando no hacer ruido para buscar a Torres. Por
 lo pronto, se lo llevaban al calabozo. 
 
+## Huyendo virtualmente
+
+Me jode por los exámenes. Bueno, y por casi todo, Llevaba todas las
+prácticas al día, la asistencia no tanto, bueno, casi nada, pero había
+una probabilidad alta de que sacara una o dos o tres
+asignaturas. Mierda.
+
+Pero cuando desapareces virtualmente, andar por ahí por el mundo real
+no es demasiado compatible. Y más asistencias a exámenes que luego
+quedan reflejados en ficheros en la red. Que puede consultar
+cualquiera y especialmente quien te quiere asesinar.
+
+Porque hay que partir de la hipótesis de que era a mi a quien querían
+asesinar. Bueno, también de que no soy yo la asesina. Ni Kevin. Con
+esto no le estoy faltando al respeto a Kevin. Él es muy capaz de
+asesinar a quien haga falta. Tendría que hacer antes un MOOC para uso
+del arma del crimen y posteriormente otro de análisis de escenas del
+crimen y quizás uno de huidas precipitadas pero que no lo
+parezcan. Pero por lo pronto no los ha hecho, así que no creo que haya
+intentado asesinar a nadie. Tampoco Tina. No es su estilo. Tina habría
+preparado algo en su laboratorio que te habría matado de forma rápida
+y eficiente y además, habría parecido que era culpa tuya por una
+sobredosis de aliño en los macarrones. O similar.
+
+Si era a mi a quien querían asesinar, y no a la pobre desgraciada de
+Ainhoa, el asesino sabía dónde vivía, que había una fiesta y hasta
+cuanta gente podía ir a la fiesta. Todo esto debía saberlo por lo que
+voy poniendo en las redes sociales.
+
+Porque me gusta poner cosas, no voy a negarlo. Hay que mantenerse en
+contacto con los fans, perdón, con los lectores, perdón, con los
+fans. Adoro que me adoren. 
+
+Espero no tener demasiados fans en Lituania, porque se van a sentir
+decepcionados. Los amables amigos anónimos de Kevin han creado una
+serie de aplicaciones que van poniendo, por mi, historias en las redes
+sociales colocándome, geoposicionándome dicen ellos, por diferentes
+sitios en ese país y alrededores. Yo no he tenido más que escribir
+unas frases para indicar que me voy de viaje, de Erasmus nada menos,
+allí. 
+
+Los tíos son buenos, porque te garantizan que si un vuelo se ha
+cancelado o ha sucedido cualquier otra cosa, que haya alterado los
+planes de viaje, te lo incluyen también. Por el mismo precio. Que es
+ninguno. Para mi, precio de amigos y familia. Por Kevin.
+
+Me da un poco de pena, porque Vilna parecía bonito. Me han prometido
+sacarme tremenda en las fotos manipuladas que van a poner desde esos
+países. Que, por otro lado no deben de ser nada hospitalarios en esta
+época del año. Como sí lo es la suite que Tina me ha dejado para mi
+uso y disfrute hasta que se encuentre al asesino. O me asesine. Lo que
+suceda antes, me ha dicho Tina. 
+
+Es que me parto el pecho con ella, de verdad.
+
+
 ## La hora del vermú
 
 A  las una de la tarde, Cecilio estaba harto de alumnos displicentes, de
@@ -2580,6 +3028,7 @@ para sí.
 
 —Significa que ya tenemos al asesino.
 
+
 ## Tradiciones acendradas
 {: .writer}
 
@@ -2704,6 +3153,7 @@ tarde. Para escribir hay que sufrir.
 
 Así que a sufrir leyendo las frases producidas por los
 producefrases. Más tarde tengo una llamada a Lituania. 
+
 
 ## Preguntas frecuentemente preguntadas
 
@@ -5501,9 +5951,6 @@ Espera un momento, pensó Roble. ¿Coste negativo? ¿Es decir, que en vez de inv
 Visto así, tenía sentido. Y lo había deducido él solo, sin necesidad del móvil, que ninguno de los dos podía usar en presencia de Demelza, para evitar su geolocalización. Eso, y los sesos, eran lo que parecían haber hecho a Kevin especialmente locuaz.
 
 
-
-
-
 1: #33Q - 2: #spanishrevolution - 3: #BieberToSpainNot - 4: #slash - 5: #estonoesuntt
 ---
 
@@ -5606,7 +6053,8 @@ Los agentes habían interrogado, sobre la marcha, a más de treinta
 personas. Algunas personas habían escuchado un disparo, otras siete y
 otras ninguno. Para algunos Julia calló al suelo tras la primera
 campanada, para otras después de la séptima. Muchos pensaron que era
-parte de la narración. Pero no lo era. El cuento, verdaderamente, se había acabado para Julia.  
+parte de la narración. Pero no lo era. El cuento, verdaderamente, se
+había acabado para Julia. 
 
 ## Agradecimientos
 
@@ -5617,3 +6065,4 @@ error). También a [Jose María](http://blog.unlugarenelmundo.es/), por
 contestar a mis continuas dudas y preguntas y a
 [Manuel Cogolludo](http://twitter.com/makova65) por sus correcciones y
 su ayuda. 
+
